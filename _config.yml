@@ -1,0 +1,9 @@
+title: 我的博客
+description: WordPress 同步过来的文章
+# 如果你的项目托管在 https://github.com/qq420218831/themeforest/
+baseurl: "/lad"  # 一定要加 /themeforest，不能是空的
+theme: minima # 使用默认主题
+# 10篇/分页
+paginate: 30
+paginate_path: "/page:num"
+
