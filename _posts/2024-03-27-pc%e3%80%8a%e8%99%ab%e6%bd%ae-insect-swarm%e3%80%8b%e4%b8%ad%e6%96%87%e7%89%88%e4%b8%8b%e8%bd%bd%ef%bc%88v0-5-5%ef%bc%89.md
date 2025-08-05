@@ -1,0 +1,13 @@
+---
+title: "PC《虫潮 Insect Swarm》中文版下载（v0.5.5）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《虫潮 Insect Swarm》中文版下载，虫潮是一款射击游戏，废土风格的背景设定，玩家的敌人是无穷无尽的虫族大军，庞大的地图等你来探索，对这个类型游戏感兴趣的玩家不要错过。 　　游戏类型：射击类(STG)游戏 　　游戏制作：Parallel Portal 　　游戏发行：Parallel &hellip;"
+layout: post
+---
+
+ <p>　　PC《虫潮 Insect Swarm》中文版下载，虫潮是一款射击游戏，废土风格的背景设定，玩家的敌人是无穷无尽的虫族大军，庞大的地图等你来探索，对这个类型游戏感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=727386644&amp;bvid=BV1RS4y1i7JR&amp;cid=745796103&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e3ad6697.jpg" alt="PC《虫潮 Insect Swarm》中文版下载（v0.5.5）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e3b49c34.jpg" alt="PC《虫潮 Insect Swarm》中文版下载（v0.5.5）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e3baade7.jpg" alt="PC《虫潮 Insect Swarm》中文版下载（v0.5.5）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e3c12f51.jpg" alt="PC《虫潮 Insect Swarm》中文版下载（v0.5.5）" /></td> </tr> </tbody> </table> <p>　　游戏类型：射击类(STG)游戏</p> <p>　　游戏制作：Parallel Portal</p> <p>　　游戏发行：Parallel Portal</p> <p>　　《虫潮》是一款俯视射击类游戏，特点是玩家需要对抗数量庞大的虫群，在无边界的地图中自由探索，收集资源并升级机体与武器。</p> <p>　　新版本可以切换机甲模式，机甲装备大范围近战武器和重型加特林</p> <p>　　键盘控制移动，并用鼠标进行射击/近战，玩家可携带一种主武器和一种副武器进行战斗</p> <p>　　游戏中所有升级项目都是没有等级上限的，只要资源足够就可以一直升级。</p> <p>　　故事介绍</p> <p>　　战斗飞船驾驶员招募信息：&ldquo;你能一次应付数百甚至上千只恶心的异星昆虫吗?如果可以，那么快来加入战斗吧!对了，如果遇到体型巨大的虫子你最好优先保命。&rdquo;&mdash;&mdash; 来自一条在一片废土中不断发送的过时消息。</p> <p>　　没错，这颗星球只剩你下你一个人了，还有不计其数的大号虫子。就在几年前，探测器在浩瀚的宇宙中发现了这颗星球，虽然是颗荒芜的沙漠星球，但在星球表面却有很多貌似不属于这里的稀有矿物，这种矿物蕴含极高的能量，人们开始在这颗星球建造开采基地来开采这价值不菲的矿物，直到有一天.... 地底传出渗人的咆哮声，随即爬出数量惊人的外星生物，称之为&ldquo;血虫&rdquo;，随后发现这种矿物实际上是血虫的高浓度血液凝结而成的血晶!我们的大型矿车貌似打搅了这些沉睡在地下的生物，并向我们展开猛烈报复，几乎所有开采基地和设备都遭到了摧毁。而你身为一个没有来得及撤离的倒霉蛋，要自己想办法在这地狱中生存下去并撤离，如果可以的话.... 毁灭这里，以绝后患!祝你好运!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 64bit</p> <p>　　处理器: Core i5</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: GeForce GTX 960</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《虫潮 Insect Swarm》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">PIRAT3</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/4617/](https://lad.sfcrom.cn/2024/03/4617/)

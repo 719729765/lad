@@ -1,0 +1,13 @@
+---
+title: "switch《金属物语：超杀 Metal Tales Overkill》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《金属物语：超杀 Metal Tales Overkill》中文版下载，这是一款设定很有趣的动作冒险游戏，主角使用一把强力的吉他作为武器，同各种怪物进行战斗。喜欢这类动作射击游戏的玩家可以来看看。 　　这是一款动作冒险游戏。游戏中金属和肾上腺素的冲突将带给你一款终极的 3D Rogu&hellip;"
+layout: post
+---
+
+ <p>　　switch《金属物语：超杀 Metal Tales Overkill》中文版下载，这是一款设定很有趣的动作冒险游戏，主角使用一把强力的吉他作为武器，同各种怪物进行战斗。喜欢这类动作射击游戏的玩家可以来看看。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=927953123&amp;bvid=BV1aK4y1f7F9&amp;cid=260436620&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0dea09f.jpg" alt="switch《金属物语：超杀 Metal Tales Overkill》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0e620dd.jpg" alt="switch《金属物语：超杀 Metal Tales Overkill》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0ed0e7d.jpg" alt="switch《金属物语：超杀 Metal Tales Overkill》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0f4b172.jpg" alt="switch《金属物语：超杀 Metal Tales Overkill》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0fc33ff.jpg" alt="switch《金属物语：超杀 Metal Tales Overkill》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　这是一款动作冒险游戏。游戏中金属和肾上腺素的冲突将带给你一款终极的 3D Roguelike 吉他射击游戏。一个诅咒正在影响你和你的金属兄弟们，一切迫在眉睫，你必须要跟古老的邪恶做斗争，并将你的兄弟们解救出来。</p> <p>　　游戏介绍</p> <p>　　50 多个项目：为新吉他、琴弦、踏板、放大器、书籍和召唤物充电</p> <p>　　15 种不同的敌人来击败对手</p> <p>　　8 吉他 Boss - 终极对决!</p> <p>　　4 个可玩角色可供选择：你更喜欢 Metallica、Iron Maiden 还是 Black Sabbath?选择你最认同的角色!</p> <p>　　3 种环境：享受探索 3 种不同环境的乐趣，例如 Metal Den、Metal Festival 和 Hell</p> <p>　　以不可阻挡的能量冲破 6 个关卡</p> <p>　　程序生成的关卡：体验随机生成的关卡。没有会议将永远相同</p> <p>　　本地 CO-OP 与朋友一起狂欢</p> <p>　　任务系统可在运行之间解锁能力和升级统计数据</p> <p>　　原声带和国际金属乐队的歌曲 - 您一定会找到新的隐藏宝石!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd1022112.png" width="456" alt="switch《金属物语：超杀 Metal Tales Overkill》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《金属物语：超杀 Metal Tales Overkill》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">fffxxxyyy111</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100318/](https://lad.sfcrom.cn/2024/04/100318/)

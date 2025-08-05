@@ -1,0 +1,13 @@
+---
+title: "[藏经阁]NDS 马里奥对森喜刚2: 迷你大行进 Mario vs. Donkey Kong 2: March of the Minis[免费分享]"
+date: 2024-02-04
+tags: []
+categories: ["GAME藏经阁"]
+excerpt: "《马里奥对森喜刚2: 迷你大行进》是2006年发行的Game Boy Advance游戏《马里奥大战金刚》的续集，是Game Boy Donkey Kong游戏的后续作品，尽管它更注重解谜，但现在玩家使用触摸屏而不是马里奥自己控制了几个迷你马里奥。游戏还以波琳的回归为特色，她最后一次出场是在1994&hellip;"
+layout: post
+---
+
+ <div><ul>   <ul>    </ul> </ul> </div><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65be39f548213.png" title="NDS 马里奥对森喜刚2: 迷你大行进" alt="NDS 马里奥对森喜刚2: 迷你大行进 Mario vs. Donkey Kong 2: March of the Minis" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br>《马里奥对森喜刚2: 迷你大行进》是2006年发行的Game Boy Advance游戏《马里奥大战金刚》的续集，是Game</a> Boy Donkey Kong游戏的后续作品，尽管它更注重解谜，但现在玩家使用触摸屏而不是马里奥自己控制了几个迷你马里奥。游戏还以波琳的回归为特色，她最后一次出场是在1994年的《金刚》游戏中，这是Game Boy翻拍自原版《金刚》的游戏。它具有任天堂Wi-Fi连接。DS Download Station Series 3 系列遊戲集有一個簡短的遊戲演示。这是任天堂DS的第六款马里奥游戏。续集《马里奥对森喜刚2: 迷你大行进》于2009年6月发行。它可以通过DSiWare服务下载800个任天堂点。</p><p>2016年10月6日，该游戏以虚拟主机品牌在Wii U eShop上发布。</p><a name="ci_title0" ></a><h2>游戏截图</h2><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65be39f5b2003.png" title="NDS 马里奥对森喜刚2: 迷你大行进 游戏截图" alt="NDS 马里奥对森喜刚2: 迷你大行进 Mario vs. Donkey Kong 2: March of the Minis" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65be39f60849b.png" title="NDS 马里奥对森喜刚2: 迷你大行进 游戏截图" alt="NDS 马里奥对森喜刚2: 迷你大行进 Mario vs. Donkey Kong 2: March of the Minis" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65be39f654b2f.png" title="NDS 马里奥对森喜刚2: 迷你大行进 游戏截图" alt="NDS 马里奥对森喜刚2: 迷你大行进 Mario vs. Donkey Kong 2: March of the Minis" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65be39f6be722.png" title="NDS 马里奥对森喜刚2: 迷你大行进 游戏截图" alt="NDS 马里奥对森喜刚2: 迷你大行进 Mario vs. Donkey Kong 2: March of the Minis" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><a name="ci_title1" ></a><h2>游戏资源</h2><a name="ci_title2" ></a><h3>0573 - Mario vs. Donkey Kong 2 - March of the Minis (USA)</h3><p>https://juse.lanzouw.com/in7Jvx5c9od</p><a name="ci_title3" ></a><h3>0884 - Mario vs. Donkey Kong 2 - March of the Minis (Europe) (En,Fr,De,Es,It)</h3><p>https://juse.lanzouw.com/iFIxwx5c9qf</p><a name="ci_title4" ></a><h3>0995 - Mario vs. Donkey Kong 2 - MiniMini Daikoushin! (Japan)</h3><p>https://juse.lanzouw.com/id9GLx5c9ti</p> </div> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/02/6988/](https://lad.sfcrom.cn/2024/02/6988/)

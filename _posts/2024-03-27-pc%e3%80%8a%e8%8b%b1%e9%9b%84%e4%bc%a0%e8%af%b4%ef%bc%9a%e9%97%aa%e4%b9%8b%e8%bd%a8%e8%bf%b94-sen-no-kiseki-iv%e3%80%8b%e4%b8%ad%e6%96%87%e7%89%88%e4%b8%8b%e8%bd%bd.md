@@ -1,0 +1,13 @@
+---
+title: "PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载，这是经典角色扮演游戏闪之轨迹新系列的第四部作品，也是这个系列的完结篇，这部精彩的故事将在这一部作品中画上句号。 　　类型:角色扮演 　　开发商:Nihon Falcom 　　发行商:Clouded Leopard Ente&hellip;"
+layout: post
+---
+
+ <p>　　PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载，这是经典角色扮演游戏闪之轨迹新系列的第四部作品，也是这个系列的完结篇，这部精彩的故事将在这一部作品中画上句号。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=38386625&amp;bvid=BV1mt411e7T9&amp;cid=67475784&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393e5715fe.jpg" alt="PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393e5e68e6.jpg" alt="PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393e663442.jpg" alt="PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393e6dcb2e.jpg" alt="PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载" /></td> </tr> </tbody> </table> <p>　　类型:角色扮演</p> <p>　　开发商:Nihon Falcom</p> <p>　　发行商:Clouded Leopard Entertainment</p> <p>　　这是一款回合制策略冒险RPG，也是轨迹系列的最终章，在本作中玩家能够扮演多部作品中的角色，在复杂的世界中揭开黑暗，实现自己的目标。</p> <p>　　《巨硕黄昏》使得&ldquo;诅咒&rdquo;在埃雷波尼亚帝国中扩散开。与卡尔瓦德共和国之间的大战即将爆发，此时新旧《VII班》将如何采取行动呢?而遭到失控的鬼之力吞没，甚至失去了自我的《灰色骑士》黎恩又将面临什么样的命运?</p> <p>　　本作将搭载于日文版《英雄传说 闪之轨迹IV SUPER PRICE》版新增的&ldquo;高速略过模式&rdquo;、&ldquo;自动战斗模式&rdquo;，甚至可切换最高以6倍速推进事件、原野探索或是战斗，以提供玩家更加舒适畅快的游戏体验。</p> <p>　　追加新区域、历代系列作角色客串参战、丰富的小游戏、众多角色活跃的大量委托等等，轨迹系列的所有要素全都凝聚在这部系列完结篇当中!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Core i3-3220</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GeForce GTX 1050</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 25 GB 可用空间</p> <p>　　声卡: Onboard</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393e744dba.png" width="589" alt="PC《英雄传说：闪之轨迹4 Sen no Kiseki IV》中文版下载" /></p> <p>　　关于这款游戏就为大家介绍到这里了，喜欢这个系列的话大家一定不要错过哦。</p> <p><h4>下载地址(由网友<font color="red">a156123456</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52202/](https://lad.sfcrom.cn/2024/03/52202/)

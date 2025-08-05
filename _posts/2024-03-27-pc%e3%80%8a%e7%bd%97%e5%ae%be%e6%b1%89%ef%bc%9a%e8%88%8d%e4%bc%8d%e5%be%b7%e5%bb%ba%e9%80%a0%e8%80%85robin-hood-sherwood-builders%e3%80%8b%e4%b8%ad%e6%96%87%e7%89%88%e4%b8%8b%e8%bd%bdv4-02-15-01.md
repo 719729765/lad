@@ -1,0 +1,13 @@
+---
+title: "PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01!罗宾汉 - 舍伍德建造者》是一款带有基地建造元素的动作冒险 RPG 游戏，玩家将扮演一位经典英雄，反抗肆虐舍伍德的暴政和不公正。在游戏中，您将扮演一名典型的英雄，反抗肆虐舍伍德&hellip;"
+layout: post
+---
+
+ <p>　　PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01!罗宾汉 - 舍伍德建造者》是一款带有基地建造元素的动作冒险 RPG 游戏，玩家将扮演一位经典英雄，反抗肆虐舍伍德的暴政和不公正。在游戏中，您将扮演一名典型的英雄，反抗肆虐舍伍德的暴政和不公正。您可以战斗、制作工艺品、偷窃，当然还可以帮助当地人民发展壮大。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=489608128&amp;bvid=BV1iN41187gJ&amp;cid=1229679205&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c5c88a3fa.webp" width="700" alt="PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c5c8f280e.webp" width="700" alt="PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c5c95b59c.webp" width="700" alt="PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c5c9d9a08.webp" width="700" alt="PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c5ca596a5.webp" width="700" alt="PC《罗宾汉：舍伍德建造者/Robin Hood Sherwood Builders》中文版下载v4.02.15.01" /></p></div> <p>　　罗宾汉：舍伍德建设者》是一款具有城市建设元素的动作冒险 RPG 游戏，在游戏中，您将扮演一位经典英雄，与肆虐舍伍德的暴政和不公正作斗争。作为罗宾，您将战斗、狩猎、制作工艺品、偷窃，当然还要帮助当地人民发展壮大，以反抗诺丁汉郡长及其冷酷无情的政权--所有这一切都在一个可自由探索的开放世界环境中进行。</p> <p>　　罗宾汉是中世纪英国民间传说中的著名英雄，据说在那个时代，他曾和他的一帮忠心耿耿的亡命之徒在舍伍德森林中游荡。在游戏中，您还将遇到这些传奇人物，如玛丽安夫人、小约翰、塔克修道士、艾伦-戴尔和威尔-斯嘉丽。</p> <p>　　罗宾的主要目标是帮助一个由难民和叛军组成的新兴社区发展壮大。一开始，它只是一个小小的森林定居点，但经过精心照料、努力工作和好运气，它最终会成为一个人口众多的城镇。您可以招募当地农民、逃避法律制裁的叛乱分子，甚至诺丁汉的市民和守卫，成为新的非法定居者。</p> <p>　　您的冒险之旅从建造森林营地开始，随着新居民的到来，营地很快就会扩大。您将负责妥善管理在舍伍德森林中为自己争取到的空间，以建立村庄。</p> <p>　　打理定居点的另一项重要工作是管理社区成员的职业和任务，将他们训练成工匠、猎人或守卫，并管理定居点的资源，可以自己采集，也可以从车队和贵族庄园中窃取。</p> <p>　　随着罗宾汉的族人越来越多，剑术越来越高强，诺丁汉的起义可能会成为现实，从而彻底结束郡长的暴政。</p> <p><h4>下载地址(由网友<font color="red">lingdz</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52775/](https://lad.sfcrom.cn/2024/03/52775/)

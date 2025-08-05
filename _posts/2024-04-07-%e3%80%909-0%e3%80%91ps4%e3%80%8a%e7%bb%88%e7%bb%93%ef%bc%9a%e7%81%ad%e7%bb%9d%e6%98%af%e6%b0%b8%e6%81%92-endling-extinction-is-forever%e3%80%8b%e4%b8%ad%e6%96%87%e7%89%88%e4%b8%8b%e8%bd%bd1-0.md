@@ -1,0 +1,13 @@
+---
+title: "【9.0】PS4《终结：灭绝是永恒 Endling &#8211; Extinction is Forever》中文版下载1.03"
+date: 2024-04-07
+tags: []
+categories: ["PS4最新破解"]
+excerpt: "【9.0】PS4《终结：灭绝是永恒 Endling - Extinction is Forever》中文版下载1.03，这是独立风格的冒险游戏，玩家在游戏中控制的是一只狐狸妈妈，你需要保护好自己的孩子，非常唯美的一款游戏。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Herobeat St&hellip;"
+layout: post
+---
+
+ <p>【9.0】PS4《终结：灭绝是永恒 Endling - Extinction is Forever》中文版下载1.03，这是独立风格的冒险游戏，玩家在游戏中控制的是一只狐狸妈妈，你需要保护好自己的孩子，非常唯美的一款游戏。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=428180175&amp;bvid=BV1kG411W77h&amp;cid=766933756&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128b772cf64.webp" alt="【9.0】PS4《终结：灭绝是永恒 Endling - Extinction is Forever》中文版下载1.03" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128b7782e2a.webp" alt="【9.0】PS4《终结：灭绝是永恒 Endling - Extinction is Forever》中文版下载1.03" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128b77db51c.webp" alt="【9.0】PS4《终结：灭绝是永恒 Endling - Extinction is Forever》中文版下载1.03" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128b78483f8.webp" alt="【9.0】PS4《终结：灭绝是永恒 Endling - Extinction is Forever》中文版下载1.03" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Herobeat Studios</p> <p>　　游戏发行：HandyGames</p> <p>　　作为地球上最后的狐狸妈妈，你的幼崽需要你的悉心照顾才能在一个濒临毁灭的无情世界中生存。探索大自然的遗迹，保护你的家人免受所有威胁。你是它们的最后希望，因为灭绝是永恒的。</p> <p>　　游戏介绍</p> <p>　　在这个具有生态意识的冒险中，透过地球上最后一只狐狸的眼睛，体验被人类蹂躏的世界。</p> <p>　　发现人类的破坏力，因为它日复一日地腐蚀、污染和利用自然环境中最珍贵、最有价值的资源。</p> <p>　　探索各种3D横向滚动区域，保护毛茸茸的小动物，喂养它们，看着它们长大，注意它们独特的个性和恐惧，最重要的是，帮助它们生存。</p> <p>　　游戏特色</p> <p>　　基于当前实际问题探索被破坏的环境。</p> <p>　　狩猎其他动物来喂养幼崽，避免成为猎物。</p> <p>　　考验你的生存本能，并参与到情绪化的决定中。</p> <p>　　寻找新巢穴，以免受自然和非自然威胁。</p> <p>　　照顾幼崽，喂养它们并教它们新技能，减少它们的脆弱性。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10 64bit</p> <p>　　处理器: Intel Core i5 / AMD FX-6300</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GTX 760 2GB/ Radeon R9 270X 2GB or better</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 6 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《终结：灭绝是永恒 Endling - Extinction is Forever》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">administrator222</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/131963/](https://lad.sfcrom.cn/2024/04/131963/)

@@ -1,0 +1,13 @@
+---
+title: "switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版1.0.5补丁+4DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版下载，这是经典恐怖冒险游戏零系列的新作，本作的场景更加大，剧情也更加出色。 　　《零：濡鸦之巫女 PROJECT ZERO: MAIDEN OF BLACK WATER》是零系列最新一作，不&hellip;"
+layout: post
+---
+
+ <p>　　switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版下载，这是经典恐怖冒险游戏零系列的新作，本作的场景更加大，剧情也更加出色。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=17576585&amp;bvid=BV1bW411t78r&amp;cid=28694261&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/10-28/e3d34287b45f708053ca5afc726f2801.jpg" alt="switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版1.0.5补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/10-28/5e5a193b19057820ee6540b14088c1a7.jpg" alt="switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版1.0.5补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/10-28/537c20bcb55f88a4c129a5c525177890.jpg" alt="switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版1.0.5补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/10-28/fdadf353d80651b45550418a56a180da.jpg" alt="switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版1.0.5补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/10-28/e417bbe7dfacbdf6fdaebe2a647903ca.jpg" alt="switch《零：濡鸦之巫女 PROJECT ZERO MAIDEN OF BLACK WATER》中文版1.0.5补丁+4DLC下载" /></td> </tr> </tbody> </table> <p>　　《零：濡鸦之巫女 PROJECT ZERO: MAIDEN OF BLACK WATER》是零系列最新一作，不同于前几作的较为封闭的古宅环境，本作将场景换作了较为宽阔的日上山，而且还加入了许多开放区域。游戏讲诉了女主角不来方夕莉受一名叫做氷见野的女生委托，前往日上山寻找一个遭遇神隐的人，从而踏入了现世与隐世模糊不清的逢魔之刻。</p> <p>　　故事介绍</p> <p>　　女主角不来方夕莉接受了寻人委托，前往日上山寻找一个遭遇了&quot;神隐&quot;的人。灵山&ldquo;日上山&rdquo;，山顶上有个巨大的湖，从湖中涌出的泉水养育着山中的草木。然而，它也是只有选择自杀的人才会到访的死亡之山。进入山中，便是踏入&ldquo;现世&rdquo;与&ldquo;隐世&rdquo;的交界之地。&ldquo;日上山&rdquo;自古以来就被视为灵场而受到崇拜，其周边地区有着特殊的信仰传承。在这座山上&ldquo;水&rdquo;被视为御灵体，而有着&ldquo;人生而自水，亦自水归还&rdquo;的轮回观念。为此，人们相信若是&ldquo;欲迎向死亡者&rdquo;造访此山，并在碰触此山之水时临终，将能获得正式的死亡。(原本自杀者仅能被视为游魂，非正式之死)另外、此地除了特殊的仪式与风俗仍旧残留下来之外，也有发生阴惨的离奇案件与不可思议事件的情报。这个故事，就是以被称为灵山的&ldquo;日上山&rdquo;为舞台，由不来方夕莉、放生莲、雏咲深羽、三人所共同交织而成的，一则怪异幻想谭。</p> <p><h4>下载地址(由网友<font color="red">wf197851ns</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144245/](https://lad.sfcrom.cn/2024/04/144245/)

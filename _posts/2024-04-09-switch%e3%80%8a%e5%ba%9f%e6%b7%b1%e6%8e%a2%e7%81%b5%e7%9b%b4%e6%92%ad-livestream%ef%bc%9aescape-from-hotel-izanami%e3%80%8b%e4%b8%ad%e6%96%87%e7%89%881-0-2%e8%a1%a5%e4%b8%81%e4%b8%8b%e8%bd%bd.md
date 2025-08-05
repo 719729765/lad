@@ -1,0 +1,13 @@
+---
+title: "switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版1.0.2补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　【内含原版+TX专用魔改版】switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版。这是一款恐怖风格的冒险解谜游戏，玩家在游戏中可以操控你的角色在恐怖的酒店中探索，寻找线索，安全的逃离神秘玩偶的追杀。 　　在樱井的提案下，身为实况主的生驹、&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用魔改版】switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版。这是一款恐怖风格的冒险解谜游戏，玩家在游戏中可以操控你的角色在恐怖的酒店中探索，寻找线索，安全的逃离神秘玩偶的追杀。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=757377329&amp;bvid=BV1964y1U7dd&amp;cid=318127818&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153680d6676.png" alt="switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153681e4024.png" alt="switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615368324ac8.png" alt="switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661536846588f.png" alt="switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153685341e5.png" alt="switch《废深/探灵直播 LiveStream：Escape from Hotel Izanami》中文版1.0.2补丁下载" /></td> </tr> </tbody> </table> <p>　　在樱井的提案下，身为实况主的生驹、樱井和白石三人前往知名恐怖景点「伊邪那美酒店」拍摄些鬼影幢幢的影片。原本她们只是想渲染些特效，能够平安无事地结束拍摄就好，没想到...</p> <p>　　在摄影期间，走散的生驹被突如其来的人偶给袭击，之后一直徘徊在酒店里的三人也不断地受到人偶的袭击，为何始终会走不出酒店呢?究竟真能逃得出酒店呢?</p> <p>　　角色介绍</p> <p>　　生驹美樱</p> <p>　　影片直拨「奈奈频道」的成员之一。樱井和白石看到生驹孤苦伶仃的样子，决定邀请她一起参与直播的行列。克制着自己在荧幕面前的羞涩，她其实更喜欢在幕后工作。在废弃的饭店里，生驹奋不顾身地欲解救樱井和白石两位好友。</p> <p>　　樱井奈奈</p> <p>　　「奈奈频道」的创始者。企划此次以废弃饭店为主轴的全新直播。最初只是为了自己的兴趣而拍摄，然而伴随着观看人数节节上升，奈奈开始在意浏览数的增长。只要是任何能够增加浏览数的企划，奈奈绝对会贯彻到底。(虽然常常被生驹和白石给阻止)目标是100万人追踪人数!</p> <p>　　白石梓</p> <p>　　外表秀丽、能文能武且拥有广大的女性粉丝。和樱井是形影不离的旧识。受到樱井的委托，从事动画摄影集编辑的工作。樱井为求吸引广大的女性粉丝，硬把白石也拉进镜头内，因此在白石也时常出现在影片当中。冷静沉着的她负责相关协调的工作。此次的废弃饭店之企划，白石并没有参加的意愿。</p> <p><h4>下载地址(由网友<font color="red">dai43008</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143514/](https://lad.sfcrom.cn/2024/04/143514/)

@@ -1,0 +1,13 @@
+---
+title: "Xbox360《苍翼默示录 连锁反应 扩散 BlazBlue &#8211; Continuum Shift Extend》日文版下载"
+date: 2024-03-30
+tags: []
+categories: ["xbox360英日游戏"]
+excerpt: "　　Xbox360《苍翼默示录 连锁反应 扩散 BlazBlue - Continuum Shift Extend》日文版下载，这是一款动作格斗游戏，是苍翼默示录系列的一款非常好玩的作品，赶快来试试吧。 　　斗新作《苍翼默示录 连锁反应 扩散》将对应PSV、PS3、XBOX360三个平台，相对于2代&hellip;"
+layout: post
+---
+
+ <p>　　Xbox360《苍翼默示录 连锁反应 扩散 BlazBlue - Continuum Shift Extend》日文版下载，这是一款动作格斗游戏，是苍翼默示录系列的一款非常好玩的作品，赶快来试试吧。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240330_6607dc60427c6.webp" width="600" alt="Xbox360《苍翼默示录 连锁反应 扩散 BlazBlue - Continuum Shift Extend》日文版下载" /></p> <p>　　斗新作《苍翼默示录 连锁反应 扩散》将对应PSV、PS3、XBOX360三个平台，相对于2代本作将会有众多新角色、故事模式登场。而且PSV版的存档将可以和PS3版共存，也就是说在外可以使用PSV游戏，而回到家则可以将存档上传到PS3上继续大屏幕的游戏体验，此外本作的对战模式非常丰富，有2对2、3对3、2对4等组队战，前作的DLC付费内容也会一拼收录，及其厚道。</p> <p>　　游戏特色</p> <p>　　加入了新的角色，疯狂的人偶师-雷利乌斯&middot;克洛弗</p> <p>　　增强的故事模式，重新探索发生在《苍翼默示录：厄运扳机》中的事件</p> <p>　　新修改的游戏模式，无限毁灭模式中你讲面对最强敌人，在深渊模式中你将为生存而战，在军团模式总你讲可以领到一直军队去赢得胜利</p> <p>　　全面修订的战斗系统，所有的人物，新的和旧的，已经被彻底重新平衡，并装备了全新的策略组合</p> <p>　　改进了多人在线游戏</p> <p><h4>下载地址(由网友<font color="red">weiwosuoai</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/94873/](https://lad.sfcrom.cn/2024/03/94873/)

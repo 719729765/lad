@@ -1,0 +1,13 @@
+---
+title: "PC《编织潮汐 Weaving Tides》中文版下载（v1.0.10）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《编织潮汐 Weaving Tides》中文版下载，这一款解谜类型的游戏，它通过出色的美术风格为玩家带来了一个美丽的幻想世界，游戏的谜题设计也很优秀，感兴趣的玩家一定不要错过。 　　类型:动作,冒险,独立 　　开发商:Follow the Feathers 　　发行商:Crytivo 　　《&hellip;"
+layout: post
+---
+
+ <p>　　PC《编织潮汐 Weaving Tides》中文版下载，这一款解谜类型的游戏，它通过出色的美术风格为玩家带来了一个美丽的幻想世界，游戏的谜题设计也很优秀，感兴趣的玩家一定不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=502682635&amp;bvid=BV1fK411F7Jh&amp;cid=326059998&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660396340fae3.jpg" alt="PC《编织潮汐 Weaving Tides》中文版下载（v1.0.10）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660396349e675.jpg" alt="PC《编织潮汐 Weaving Tides》中文版下载（v1.0.10）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660396352a8a7.jpg" alt="PC《编织潮汐 Weaving Tides》中文版下载（v1.0.10）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039635a0077.jpg" alt="PC《编织潮汐 Weaving Tides》中文版下载（v1.0.10）" /></td> </tr> </tbody> </table> <p>　　类型:动作,冒险,独立</p> <p>　　开发商:Follow the Feathers</p> <p>　　发行商:Crytivo</p> <p>　　《Weaving Tides》是一款有趣的单人冒险游戏，背景设定为一个充满魔法和织物的世界。骑上毯龙，在织物之中上下穿梭，探索令人叹为观止的世界。</p> <p>　　游戏特色</p> <p>　　探索生机勃勃的编织世界</p> <p>　　全情投入这个迷人的编织世界，它的各种人物肖像完全手绘，配乐也美妙动听，让您沉浸其中，无法自拔。</p> <p>　　揭开动听故事中的隐藏秘密</p> <p>　　在 Tass 寻找父母的任务途中聚集古怪的盟友，收集过去的片段，并最终揭开编织世界尘封已久的秘密。</p> <p>　　和三种不同的可骑行织工成为朋友</p> <p>　　奇特的龙朋友将帮助您游览这个世界，并通过缝制找到解开特殊难题的方法。选择您最喜欢的个性的织工与您一起冒险。</p> <p>　　创新玩法模式</p> <p>　　在活动期间为您的织工解锁新的彩色丝带，并在游戏区功能中使用，以便自由缝制和创作自己的数字刺绣。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7, 64-bit</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 760 or AMD Radeon HD 7950</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603963601c4b.png" width="419" alt="PC《编织潮汐 Weaving Tides》中文版下载（v1.0.10）" /></p> <p>　　以上内容就是小编为大家带来的《编织潮汐 Weaving Tides》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">licl1</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51199/](https://lad.sfcrom.cn/2024/03/51199/)

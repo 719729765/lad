@@ -1,0 +1,13 @@
+---
+title: "switch怎么连接电视？switch TV模式图文详细教程"
+date: 2024-04-10
+tags: []
+categories: ["switch教程"]
+excerpt: "　　以TV模式来玩时主机以外所需物品 　　Nintendo Switch底座,一个连接电视必须的装置,拥有2个USB口以及充电插口和HDMI端口. 　　电视机一台,或者便携显示器也可以. 　　HDMI连接线一条,连接底座和电视机. 　　AC变压器[HAC-002](UKV)连接方法 　　1:打开Ni&hellip;"
+layout: post
+---
+
+ <p>　　以TV模式来玩时主机以外所需物品</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f967963a.webp" width="640" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　Nintendo Switch底座,一个连接电视必须的装置,拥有2个USB口以及充电插口和HDMI端口.</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f96c671e.webp" width="640" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　电视机一台,或者便携显示器也可以.</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f971b671.webp" width="640" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　HDMI连接线一条,连接底座和电视机.</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f975ff37.webp" width="640" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　AC变压器[HAC-002](UKV)连接方法</p> <p>　　1:打开Nintendo Switch底座背面的盖子。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f97bd36e.webp" width="1280" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　2:将AC变压器连接到最上方的插孔，HDMI连接线连接到最下方的插孔。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f98240e5.webp" width="1280" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　关上Nintendo Switch底座的盖子。</p> <p>　　3:将AC变压器连接插座。</p> <p>　　电视模式情况下耗电量大,请插入直连插座,不要插入插排.</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f986aa39.webp" width="1280" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　4:将HDMI连接线连接到电视机。5:打开电视机,将信号源切换到刚刚插入连接的HDMI线6:按下switch电源键后,按A进入主菜单.7:在Joy-Con&trade;安装到主机的状态下使用TV模式，将无法使用Joy-Con操作，所以需从主机取下左右Joy-Con。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f98cf26c.webp" width="1280" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　8:将主机放到Nintendo Switch底座中间并慢慢由上插入到Nintendo Switch底座。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_66162f99257bf.webp" width="1280" alt="switch怎么连接电视？switch TV模式图文详细教程" /></p> <p>　　9:若电视显示出画面,则即完成了模式切换。</p> <p><h4>下载地址(由网友<font color="red">arctopus</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/156498/](https://lad.sfcrom.cn/2024/04/156498/)

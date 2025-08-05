@@ -1,0 +1,13 @@
+---
+title: "PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10《北欧之烬：诸神黄昏幸存者》(Nordic Ashes: Survivors of Ragnarok) 是一款基于北欧背景的 Roguelite 群敌割草游戏，你需&hellip;"
+layout: post
+---
+
+ <p>　　PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10《北欧之烬：诸神黄昏幸存者》(Nordic Ashes: Survivors of Ragnarok) 是一款基于北欧背景的 Roguelite 群敌割草游戏，你需要在潮水般蜂拥而至的怪群中奋力求生。在征战不同界域的过程中解锁新武器和技能。制定出最为崩坏的角色构建方案，在敌人包围你之前杀出血路</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=861574332&amp;bvid=BV1PV4y1w7gJ&amp;cid=933823517&amp;page=1" width="410"></iframe></p> <p>　　关于这款游戏</p> <p>　　《北欧之烬：诸神黄昏幸存者》(Nordic Ashes: Survivors of Ragnarok) 是一款基于北欧背景的 Roguelite 群敌割草游戏，你需要在潮水般蜂拥而至的怪群中奋力求生。</p> <p>　　对抗各种凶猛敌人，从基础小怪到精英魔兽，再到史诗级头目，它们都有各自独特行为。别被外表所蒙蔽，即便是杂鱼小怪也很危险!</p> <p>　　在战斗中解锁新武器和技能。使用星座技能树升级角色数值，在它们包围你之前杀出血路，否则可能就太晚了&hellip;&hellip;</p> <p>　　诸神黄昏之后，世界树丧失了维持九界所需的近乎所有能量。只有一小部分英雄挺过了世界末日。在这一冒险中，你将使用多名角色：北欧狂战士阿塞尔多、凶猛猎手媞拉、元素大师哈夫格林。手持传奇刀剑或召唤古老火焰，屠戮你所在界域的所有敌人，并征服其它界域。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3ef69f06.webp" width="700" alt="PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3efd7877.webp" width="700" alt="PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3f04aabf.webp" width="700" alt="PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3f0a14cc.webp" width="700" alt="PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3f13c9f9.webp" width="700" alt="PC《北欧之烬：诸神黄昏幸存者(Nordic Ashes: Survivors of Ragnarok)》中文版下载v0.13.10" /></p></div> <p>　　在游戏进程中使用星座技能树升级伤害、范围、冷却时间和更多其它数值，制定不同的角色构建方案，让每一场游戏都不相同。</p> <p>　　探索由北欧传说中的世界树所联系的九界</p> <p>　　不同的角色各自具有独占技能和武器。</p> <p>　　星座技能树用以升级幸存者的能力</p> <p>　　制定最为强大的角色构建方案</p> <p>　　头目具有独特行为模式，让战斗更为史诗</p> <p>　　数十种圣物可供解锁</p> <p>　　世界树升级作为元成长要素</p> <p>　　抢先体验奖励独占皮肤!</p> <p>　　支持键鼠和手柄游玩。</p> <p><h4>下载地址(由网友<font color="red">22333322</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51076/](https://lad.sfcrom.cn/2024/03/51076/)

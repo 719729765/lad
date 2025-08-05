@@ -1,0 +1,13 @@
+---
+title: "switch《宇宙汉堡王 Godlike Burger》中文版nsp下载+v1.0.7补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "【更新1.0.7补丁】 switch《宇宙汉堡王 Godlike Burger》中文版nsp下载+v1.0.7补丁，这是一款脑洞很大的模拟经营游戏，玩家在宇宙中经营一家汉堡店，你可以用各种丧心病狂的方法来经营这家店，包括打劫你的顾客。 　　游戏类型：模拟经营类(SIM)游戏 　　游戏制作：Liqui&hellip;"
+layout: post
+---
+
+ <p>【更新1.0.7补丁】</p> <p>switch《宇宙汉堡王 Godlike Burger》中文版nsp下载+v1.0.7补丁，这是一款脑洞很大的模拟经营游戏，玩家在宇宙中经营一家汉堡店，你可以用各种丧心病狂的方法来经营这家店，包括打劫你的顾客。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=590467852&amp;bvid=BV19q4y1Z7u8&amp;cid=406308074&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6c88cf84.webp" alt="switch《宇宙汉堡王 Godlike Burger》中文版nsp下载+v1.0.7补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6c8f0f4b.webp" alt="switch《宇宙汉堡王 Godlike Burger》中文版nsp下载+v1.0.7补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6c97ed34.webp" alt="switch《宇宙汉堡王 Godlike Burger》中文版nsp下载+v1.0.7补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6c9e4901.webp" alt="switch《宇宙汉堡王 Godlike Burger》中文版nsp下载+v1.0.7补丁" /></td> </tr> </tbody> </table> <p>　　游戏类型：模拟经营类(SIM)游戏</p> <p>　　游戏制作：Liquid Pug</p> <p>　　游戏发行：Daedalic Entertainment</p> <p>　　《宇宙汉堡王》让你化身一名狂热的大厨，制作出全宇宙最棒的汉堡。秘密配方?就是顾客本人!经营餐厅、制作美味汉堡以及消灭大量外星人。不过要小心&mdash;&mdash;别让任何目击者逃生!</p> <p>　　游戏介绍</p> <p>　　白天，不同的外星人光临你的太空餐厅，过来品尝那些美味汉堡。唔，或者命丧此地，变成一团碎肉。毕竟冰柜不会自己填满，对吧?你可以拿着你信赖的切肉刀迎头攻击，或者利用各种各样的陷阱给他们一些更有创意的归宿。</p> <p>　　夜晚，抽空升级厨房用具和陷阱、购买物资以及烹饪&ldquo;秘密酱料&rdquo;。也许警察已经开始怀疑上你?最好将你的飞行餐厅搬到其他星球，或者稍微贿赂一把。要想打造整个星系最出名的汉堡餐厅，可不能被难缠的警察盯上!</p> <p>　　游戏特色</p> <p>　　烹饪最美味的汉堡，把你破败的小吃店变成宇宙最出名的餐厅。声望越高，顾客就越多，还可以前往新的星球，赚更多的钱!</p> <p>　　使用各种各样的隐藏陷阱、致命酱料或者惯用的切肉刀来杀死顾客!</p> <p>　　改进厨房，发现各个外星人种族的喜好&mdash;&mdash;揭开完美汉堡的秘密。</p> <p>　　探索星系及其中各个世界。外星人种族多种多样，他们各有强项和弱点等待着你去发现。</p> <p>　　别被抓到!不留下任何目击者，合理进行计划和操作，降低警察的疑心。</p> <p>　　夜间进行餐厅管理，每个合格的餐厅店主都必须做到以下几点：烹饪新的&ldquo;酱料&rdquo;，购买原料，升级厨房、陷阱和武器。</p> <p>　　完成任务，解决各种各样的问题，包括疏通马桶、应对流星雨、击退僵尸攻击等。</p> <p>　　以上内容就是小编为大家带来的《宇宙汉堡王 Godlike Burger》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">lisa2016</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101139/](https://lad.sfcrom.cn/2024/04/101139/)

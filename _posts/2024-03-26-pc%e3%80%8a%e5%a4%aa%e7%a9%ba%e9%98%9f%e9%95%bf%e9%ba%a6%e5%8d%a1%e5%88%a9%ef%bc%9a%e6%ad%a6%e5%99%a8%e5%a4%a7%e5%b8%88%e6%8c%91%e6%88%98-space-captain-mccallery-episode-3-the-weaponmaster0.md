@@ -1,0 +1,13 @@
+---
+title: "PC《太空队长麦卡利：武器大师挑战 Space Captain McCallery &#8211; Episode 3: The Weaponmaster&#039;s Challenge》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《太空队长麦卡利：武器大师挑战 Space Captain McCallery - Episode 3: The Weaponmaster&#039;s Challenge》英文版下载太空队长麦卡利系列的第三章故事，新的角色加入了游戏中，游戏的剧情依然出色。 　　游戏类型：动作冒险类(ACT)&hellip;"
+layout: post
+---
+
+ <p>　　PC《太空队长麦卡利：武器大师挑战 Space Captain McCallery - Episode 3: The Weaponmaster&#39;s Challenge》英文版下载太空队长麦卡利系列的第三章故事，新的角色加入了游戏中，游戏的剧情依然出色。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603434ae8a7f.jpg" alt="PC《太空队长麦卡利：武器大师挑战 Space Captain McCallery - Episode 3: The Weaponmaster&amp;#039;s Challenge》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603434c10f19.jpg" alt="PC《太空队长麦卡利：武器大师挑战 Space Captain McCallery - Episode 3: The Weaponmaster&amp;#039;s Challenge》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603434d024a5.jpg" alt="PC《太空队长麦卡利：武器大师挑战 Space Captain McCallery - Episode 3: The Weaponmaster&amp;#039;s Challenge》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603434d84c08.jpg" alt="PC《太空队长麦卡利：武器大师挑战 Space Captain McCallery - Episode 3: The Weaponmaster&amp;#039;s Challenge》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Renegade Sector Games</p> <p>　　游戏发行：Renegade Sector Games</p> <p>　　太空海盗船长麦卡利需要一名武器大师来充实他的新船员，他知道只有一个人能胜任这项工作：马克两个爆炸机。作为他的前机组成员，马克&middot;斯伯斯特(Mark Two Blasters)在其他机组成员因与其他一些机组成员的分歧而叛变前一年离开。他乘坐航天飞机飞往奥格拉三世行星，该行星是该区域最危险的行星之一，并花时间进行隔离训练。</p> <p>　　奥格拉三世，一个史前野兽的星球。奥格拉三世，一个拥有茂密森林和高台地的星球。在过去的一年里，马克&middot;杜布雷斯特在奥格拉尔三世安家。</p> <p>　　在这个3D动作冒险游戏中，麦卡利将不得不探索一个危险的世界，与史前怪物作战，在陆地上生存，并寻找他的老盟友。不管怎么说，麦卡利上尉知道马克&middot;二爆能枪不容易找到。如果McCallery想要两名爆炸机重新加入他的团队，他必须在武器大师的挑战中证明自己</p> <p>　　这一集《太空队长麦卡利》是一部独立的冒险片，可以在没有播放第一集的情况下播放。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 8/Windows 10</p> <p>　　处理器: SSE2 instruction set support</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: DX9 (shader model 3.0) or DX11 with feature level 9.3 capabilities.</p> <p>　　存储空间: 需要 200 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《太空队长麦卡利：武器大师挑战 Space Captain McCallery - Episode 3: The Weaponmaster&#39;s Challenge》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">wuyifz86</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41531/](https://lad.sfcrom.cn/2024/03/41531/)

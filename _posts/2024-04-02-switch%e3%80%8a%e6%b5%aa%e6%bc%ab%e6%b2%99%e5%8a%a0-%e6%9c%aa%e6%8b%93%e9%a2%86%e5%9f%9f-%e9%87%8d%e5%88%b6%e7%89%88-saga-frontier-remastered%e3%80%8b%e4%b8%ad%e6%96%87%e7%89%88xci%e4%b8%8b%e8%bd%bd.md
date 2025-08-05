@@ -1,0 +1,13 @@
+---
+title: "switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版xci下载【含1.0.1补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci中文游戏"]
+excerpt: "　　switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版，SaGa Frontier也被译作2沙加开拓者，是1997年的一款经典角色扮演游戏，重制后的版本加入了更加丰富的游戏内容。 　　《SaGa Frontier》这款RPG于1997年发售，至今仍深受&hellip;"
+layout: post
+---
+
+ <p>　　switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版，SaGa Frontier也被译作2沙加开拓者，是1997年的一款经典角色扮演游戏，重制后的版本加入了更加丰富的游戏内容。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=715063582&amp;bvid=BV1AX4y137rc&amp;cid=321562968&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a140556f.jpg" alt="switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a1477ac9.jpg" alt="switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a14eef37.jpg" alt="switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a15810f3.jpg" alt="switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a161d42a.jpg" alt="switch《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版xci下载【含1.0.1补丁】" /></td> </tr> </tbody> </table> <p>　　《SaGa Frontier》这款RPG于1997年发售，至今仍深受玩家喜爱。如今提升画质，並加入新要素，以全新面复苏!</p> <p>　　原先由七名主角交织而成的故事，将因新主角加入而进一步进化。</p> <p>　　提升画质並加入新要素的《SaGa Frontier Remastered》隆重推出。</p> <p>　　加入新主角，可从八名角色中选择自己喜欢的主角，游玩每个人的故事。</p> <p>　　并能藉由&rdquo;自由剧本系统&rdquo;，发展出属于自己的故事。</p> <p>　　在战斗中，则能以&rdquo;闪悟&rdquo;学会新招式，或与伙伴&rdquo;连携&rdquo;，享受更惊险刺激的战斗。</p> <p>　　【新要素】</p> <p>　　■新主角&rdquo;Fuse&rdquo;登场!</p> <p>　　只要满足条件，便能游玩新主角&rdquo;Fuse&rdquo;的充实剧情，还能看到其他主角崭新的一面。</p> <p>　　出自伊藤贤治之手的新乐曲也让Fuse篇更加精彩。</p> <p>　　■梦幻事件终于实装!</p> <p>　　Asellus篇新增原作发售当时没有实装的几个事件，将能进一步体验故事乐趣。</p> <p>　　■更美丽的画面与丰富新功能!</p> <p>　　除了画面高清化，用户界面也全面翻新，变得更容易操作。并新增倍速功能等许多便利功能，</p> <p>　　让游玩体验更加顺畅。</p> <p>　　以上内容就是小编为大家带来的《浪漫沙加 未拓领域 重制版 SaGa Frontier Remastered》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">wodeo</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/119957/](https://lad.sfcrom.cn/2024/04/119957/)

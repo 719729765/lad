@@ -1,0 +1,13 @@
+---
+title: "switch《精灵鼠传说 Ghost of a Tale》英文版1.0.1补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《精灵鼠传说 Ghost of a Tale》英文版下载！讲述了一只勇敢的吟游诗人老鼠蒂洛在一次危险的探索中逃离颓然高地，寻找真爱美拉的故事！ 一个《Ghost of a Tale(精灵鼠传说)》，讲述了一只勇敢的吟游诗人老鼠蒂洛在一次危险的探索中逃离颓然高地，寻找真爱美拉的故事。故事的&hellip;"
+layout: post
+---
+
+ <p>switch《精灵鼠传说 Ghost of a Tale》英文版下载！讲述了一只勇敢的吟游诗人老鼠蒂洛在一次危险的探索中逃离颓然高地，寻找真爱美拉的故事！</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=24855046&amp;bvid=BV1UW411w7Q2&amp;cid=41919484&amp;page=1" width="410"></iframe></p> <p>一个《Ghost of a Tale(精灵鼠传说)》，讲述了一只勇敢的吟游诗人老鼠蒂洛在一次危险的探索中逃离颓然高地，寻找真爱美拉的故事。故事的背景是一个中世纪的世界，在这个世界，老鼠统治着所有其他生物。《Ghost of a Tale(精灵鼠传说)》编织了一个史诗般的而亲密有趣的故事，结合了经典冒险，动作RPG和探索游戏的元素与丰富和高度沉浸式的美学设计。 你将凭借老鼠的隐身技能、敏捷天赋和伪装本领以及吟游诗人的音乐天才，探索腐朽的森林，从广袤的林地和湖岸到蜘蛛出没的地下墓穴，躲避无数危险，发现最古老的秘密。 颓然高地对一只小老鼠来说是一个危险的地方，因为蒂洛几乎不是一个战士。当面对两倍于你的致命敌人时，狡猾和敏捷是你唯一的盟友。与颓然高地的居民交谈，与敌人结盟，不遗余力地寻找美拉。 这就跟随着小树的镜头一起来看看吧!</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-09/aecc4ddca2ead9667c3a8548d1e08874.jpg" alt="switch《精灵鼠传说 Ghost of a Tale》英文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-09/9bc52281a75f0e89bc1a4b57ce0426d8.jpg" alt="switch《精灵鼠传说 Ghost of a Tale》英文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center">&nbsp;</td> </tr> </tbody> </table> <p><h4>下载地址(由网友<font color="red">chengong17</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146416/](https://lad.sfcrom.cn/2024/04/146416/)

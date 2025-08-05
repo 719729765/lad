@@ -1,0 +1,13 @@
+---
+title: "浴血黑帮:傀儡师 Peaky Blinders: Mastermind PC中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　浴血黑帮:傀儡师 Peaky Blinders: Mastermind PC中文版下载。这是一款基于电影改编而成的时空操控类冒险解谜游戏。在游戏中你将化身为一名黑帮大佬，潜入和策略每个任务的谜题，需要不被发现而且在时间限制内解决。 　　欢迎来到第一次世界大战刚刚结束之后的伯明翰。游戏故事的时间线&hellip;"
+layout: post
+---
+
+ <p>　　浴血黑帮:傀儡师 Peaky Blinders: Mastermind PC中文版下载。这是一款基于电影改编而成的时空操控类冒险解谜游戏。在游戏中你将化身为一名黑帮大佬，潜入和策略每个任务的谜题，需要不被发现而且在时间限制内解决。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=667820254&amp;bvid=BV1Aa4y147EB&amp;cid=181593146&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660385e308b4c.jpg" width="600" alt="浴血黑帮:傀儡师 Peaky Blinders: Mastermind PC中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660385e398a7e.jpg" width="600" alt="浴血黑帮:傀儡师 Peaky Blinders: Mastermind PC中文版下载" /></p> <p>　　欢迎来到第一次世界大战刚刚结束之后的伯明翰。游戏故事的时间线设定在电视剧第一季之前，《浴血黑帮：傀儡师》让你加入Shelby家族的犯罪集团。追随Tommy的崛起过程，他成功揭露了想让家族垮台的邪恶阴谋，并证明自己是Peaky Blinders货真价实的老大，</p> <p>　　傀儡师指的是Tommy在脑海中操纵每个帮派成员，推演复杂计谋的能力。作为玩家，你能够通过操控Shelby家族的关键成员(包括Tommy、Arthur、Polly等等)，来运用这种能力。成为傀儡师，你可以自由地重置并倒转每个角色的路径，以便让所有人的行动精准协调，完美无瑕。</p> <p>　　策略性地利用每个角色并在最佳时机潜入，以此解决各种复杂的迷局并获得最高的任务评分。</p> <p>　　游戏特色</p> <p>　　忠于原剧</p> <p>　　控制Tommy、Arthur、Polly、John、Ada和Finn，带他们经过熟悉的地点：包括 Garrison酒馆、 Charlie Strong的院子、Shelby的会客厅，等等等等。</p> <p>　　TOMMY的崛起</p> <p>　　因为自己帮派的成员被牵扯进了一个华人鸦片贩子的谋杀案，Tommy踏上了查明真相的征途，并在这个过程中慢慢成长为Peaky Blinders家族里面货真价实的幕后老大。</p> <p>　　成为傀儡师</p> <p>　　运用Tommy的能力，在脑海中反复推演计谋的每一个步骤，操控Shelby家族的每个关键成员同步开展各自的行动。</p> <p>　　操纵时间</p> <p>　　每个角色的行动自动记录在一条时间线中，而你可以自由重置、快进和倒转时间，直到计划被调整得完美无缺。</p> <p>　　潜入和策略</p> <p>　　每个任务的谜题越来越复杂，需要玩家不被发现而且在时间限制内解决。选择合适的角色和能力，协同执行你那最完美的谋略。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7/8.1/10 x64</p> <p>　　处理器: Intel i5-760 (4*2800) or equivalent</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GeForce GTX 760</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">xsy123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/47743/](https://lad.sfcrom.cn/2024/03/47743/)

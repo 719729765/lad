@@ -1,0 +1,13 @@
+---
+title: "PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.18|集成全DLC】"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.0正式版|集成全DLC】!你将控制一个思想者，在你的子民的帮助下，将你的村庄发展成一个繁荣的文明。 　　本作是一款独特的肉鸽村庄建设游戏。请注意，其迷人的风景隐藏着诸多威胁。其他部落为争夺资源而&hellip;"
+layout: post
+---
+
+ <p>PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.0正式版|集成全DLC】!你将控制一个思想者，在你的子民的帮助下，将你的村庄发展成一个繁荣的文明。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=521009200&amp;bvid=BV1cM411z7Ju&amp;cid=916366588&amp;page=1" width="410"></iframe></p> <p>　　本作是一款独特的肉鸽村庄建设游戏。请注意，其迷人的风景隐藏着诸多威胁。其他部落为争夺资源而纷争不休，恶劣天气随时可以将你从地图上抹除，巨大的生物可能崛起并摧毁你所建立的一切。当你开始取得胜利并获得因果报应时，世界的迷雾开始散尽，出现了新的独特的土地、技术、挑战和思想者来供你解锁、发现和学习。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3d135607.webp" width="640" alt="PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.18|集成全DLC】" /></p> <p>　　这款游戏其实还是蛮出乎我的意料之外的，如果找一个最为接近的游戏，那么大概是一个比较高度自动化的《工人物语》&mdash;&mdash;通过完成物资的采集和人口的繁衍，辅以一定量非必要的军事手段，完成既定的目标来获胜。之所以说它像工人物语主要原因在于它的快节奏&mdash;&mdash;如果是一个相对较为缓慢的，长&ldquo;科技流程&rdquo;的游戏作为对比的话，大概会是《海狸浮生记》。不过就我个人看来，大概正是这种快节奏也赋予了它一定的独特性，那么也就借其发布1.0版本的契机，来介绍一下它的玩法与优缺点。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3d1aafe9.webp" alt="PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.18|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3d226e01.webp" alt="PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.18|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3d298f3a.webp" alt="PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.18|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c3d2f16e0.webp" alt="PC《海岸桃源：文明之种 Kainga Seeds of Civilization》中文版下载【v1.1.18|集成全DLC】" /></td> </tr> </tbody> </table> <p align="center">&nbsp;</p> <p>　　摩登原始人high起来就赢了的玩法</p> <p>　　《海岸桃源：文明之种》的译名还是相当准确的概括出了这个游戏的特色：包含海岸在内的复杂地貌、一群原始人的文明进化过程。我们扮演的是一个&ldquo;智者&rdquo;，带领一个小的部族发展到一定的程度，建出了节日庆典即可获得游戏胜利，对于熟练的玩家而言，可能单局时间也就20-30分钟左右。</p> <p><h4>下载地址(由网友<font color="red">lfzr</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50915/](https://lad.sfcrom.cn/2024/03/50915/)

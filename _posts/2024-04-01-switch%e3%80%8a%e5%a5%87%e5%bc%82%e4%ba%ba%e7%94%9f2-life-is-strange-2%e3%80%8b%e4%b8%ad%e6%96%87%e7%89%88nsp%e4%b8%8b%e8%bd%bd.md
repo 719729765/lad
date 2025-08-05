@@ -1,0 +1,13 @@
+---
+title: "switch《奇异人生2 Life is Strange 2》中文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《奇异人生2 Life is Strange 2》中文版nsp下载!一次悲伤的事故后，肖恩&middot;迪亚兹和丹尼尔&middot;迪亚兹两兄弟从家中逃出。两个男孩一面因为警察的追捕而战战兢兢，一面要应对丹尼尔刚刚获得的隔空取物的超能力。二人决定逃往墨西哥，沿途的每一站，他们都会&hellip;"
+layout: post
+---
+
+ <p>　　switch《奇异人生2 Life is Strange 2》中文版nsp下载!一次悲伤的事故后，肖恩&middot;迪亚兹和丹尼尔&middot;迪亚兹两兄弟从家中逃出。两个男孩一面因为警察的追捕而战战兢兢，一面要应对丹尼尔刚刚获得的隔空取物的超能力。二人决定逃往墨西哥，沿途的每一站，他们都会遇到新的朋友和挑战。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=32450741&amp;bvid=BV1GW41167WF&amp;cid=56779291&amp;page=1" width="410"></iframe></p> <p>　　饱受赞誉的《奇异人生》系列重磅回归，DONTNOD Entertainment为玩家带来全新故事情节。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6467f862.webp" alt="switch《奇异人生2 Life is Strange 2》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f646c4236.webp" alt="switch《奇异人生2 Life is Strange 2》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f647243e9.webp" alt="switch《奇异人生2 Life is Strange 2》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f64769851.webp" alt="switch《奇异人生2 Life is Strange 2》中文版nsp下载" /></td> </tr> </tbody> </table> <p>　　一次悲伤的事故后，肖恩和丹尼尔两兄弟从家中逃出。两个男孩一面因为警察的追捕而战战兢兢，一面要应对丹尼尔刚刚获得的隔空取物的超能力。安全起见，他们决定前往父亲的故乡&mdash;&mdash;墨西哥的洛波斯港。</p> <p>　　忽然之间，16岁的肖恩担起了重任，他要保证丹尼尔的安全，为二人找到住处，还要教他明辨是非。随着丹尼尔的超能力不断增强，肖恩需要为他们的生活制定规则。隐藏丹尼尔的超能力，还是将其作为旅途的助力，加以利用?乞讨，借债还是偷盗?向亲人求助还是藏在暗处?</p> <p>　　作为肖恩，你的选择将决定迪亚兹兄弟的命运走向，以及沿途所见其他人的生活。</p> <p>　　从西雅图到波特兰，再到加州&hellip;&hellip;穿过加油站、废弃的棚户区、偏僻的街道和森林&hellip;&hellip;通往墨西哥的路遥远漫长，沿途危机四伏。但与此同时，这段经历也充满了友谊、惊奇和机遇。</p> <p>　　这次旅途可能会把肖恩和丹尼尔永远联系在一起&hellip;&hellip;或者让手足之情破裂。</p> <p>　　游戏主要特色：</p> <p>　　&bull;叙事巧妙，饱受赞誉</p> <p>　　&bull;丹尼尔会不断从肖恩身上学习&mdash;&mdash;你教会他的事会带来深远的影响。</p> <p>　　&bull;惊艳视觉效果，手绘画面质感</p> <p>　　&bull;美妙动人的原声音乐，由原版《奇异人生》作曲家Jonathan Morali倾情创作。更有来自Phoenix，The Streets，Sufjan Stevens，Bloc Party，First Aid Kit等创作者的授权音乐。</p> <p><h4>下载地址(由网友<font color="red">Bulechair</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100624/](https://lad.sfcrom.cn/2024/04/100624/)

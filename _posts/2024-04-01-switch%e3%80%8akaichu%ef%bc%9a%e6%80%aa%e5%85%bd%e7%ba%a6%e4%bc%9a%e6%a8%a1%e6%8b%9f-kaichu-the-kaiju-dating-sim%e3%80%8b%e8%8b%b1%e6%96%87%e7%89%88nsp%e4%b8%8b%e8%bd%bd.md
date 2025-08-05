@@ -1,0 +1,13 @@
+---
+title: "switch《Kaichu：怪兽约会模拟 Kaichu &#8211; The Kaiju Dating Sim》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版下载，这是一款画风卡通可爱的模拟游戏，以怪兽们进行恋爱模拟为主题，很有意思的题材，感兴趣的玩家可以尝试一下。 　　玩家在游戏中扮演Gigachu，一只正在寻求爱情的巨大浪漫主义者，认识其他&hellip;"
+layout: post
+---
+
+ <p>　　switch《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版下载，这是一款画风卡通可爱的模拟游戏，以怪兽们进行恋爱模拟为主题，很有意思的题材，感兴趣的玩家可以尝试一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=642055908&amp;bvid=BV1uY4y1V73H&amp;cid=734406479&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a99c5c8b77.jpg" alt="switch《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a99c6486ee.jpg" alt="switch《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a99c6c3e2b.jpg" alt="switch《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a99c753265.jpg" alt="switch《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a99c7c94ea.jpg" alt="switch《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　玩家在游戏中扮演Gigachu，一只正在寻求爱情的巨大浪漫主义者，认识其他六位符合自己条件的怪兽，并到访24个著名景点，在那里要回答各种问题，来决定自己与对方之间的关系是否继续走下去，还能够破坏地标来确认双方感情。</p> <p>　　担心怪兽之间的交流会产生问题吗? 玩家不需要担心种族间的语言问题，因为新闻主播会持续进行实况报道，玩家能依他们的评论了解状况做出合适的选择，游戏故事采非线性发展，玩家所做出的决定都会影响到结局分支，一开始就能够自由的在地图上探索去寻找心仪的对象，不同的怪兽们能否克服种种恋爱的障碍，成为一对羡煞众人的恩爱情侣呢。</p> <p>　　游戏特色</p> <p>　　&bull;多个故事情节和结局：6个可爱的kaiju。每个人都有自己的故事情节和关系障碍。</p> <p>　　&bull;非线性游戏：完全开放，从游戏开始就可以探索地图和日期。</p> <p>　　&bull;24个地点：均基于真实世界的地点，每个地点都有自己的可粉碎纪念碑。</p> <p>　　&bull;创新的问答游戏：根据每个kaiju的个性和偏好，通过兼容性问题重塑约会sim类型。</p> <p>　　&bull;手绘艺术：手绘背景和手绘动画kaiju，以电视动画的风格用爱制作。</p> <p>　　&bull;克拉克&middot;阿布德(Clark Aboud)原创配乐(好话，杀死尖塔)</p> <p>　　以上内容就是小编为大家带来的《Kaichu：怪兽约会模拟 Kaichu - The Kaiju Dating Sim》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">qxwdemon</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111564/](https://lad.sfcrom.cn/2024/04/111564/)

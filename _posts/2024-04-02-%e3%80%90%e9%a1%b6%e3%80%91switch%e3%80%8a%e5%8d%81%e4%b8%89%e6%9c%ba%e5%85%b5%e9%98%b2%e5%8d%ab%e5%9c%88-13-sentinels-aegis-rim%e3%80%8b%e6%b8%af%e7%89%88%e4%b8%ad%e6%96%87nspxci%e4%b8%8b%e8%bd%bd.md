@@ -1,0 +1,13 @@
+---
+title: "【顶】switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文nsp/xci下载【魔改版+卡带版+数字原版】"
+date: 2024-04-02
+tags: []
+categories: ["xci中文游戏"]
+excerpt: "　　switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文下载，《十三机兵防卫圈》是一款角色扮演游戏，主角多大13位，游戏通过多视角的叙事手法为玩家讲述了一个十分精彩的故事。 　　《十三机兵防卫圈》将会以13位主角的视角来讲述故事的发展。《十三机兵防卫圈》的故事背景设定&hellip;"
+layout: post
+---
+
+ <p>　　switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文下载，《十三机兵防卫圈》是一款角色扮演游戏，主角多大13位，游戏通过多视角的叙事手法为玩家讲述了一个十分精彩的故事。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=721912844&amp;bvid=BV1YS4y1R7jL&amp;cid=451183936&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c165dc1e.jpg" alt="【顶】switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文nsp/xci下载【魔改版+卡带版+数字原版】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c17127c8.jpg" alt="【顶】switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文nsp/xci下载【魔改版+卡带版+数字原版】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c1813228.jpg" alt="【顶】switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文nsp/xci下载【魔改版+卡带版+数字原版】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c18b1b30.jpg" alt="【顶】switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文nsp/xci下载【魔改版+卡带版+数字原版】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c199a6dc.jpg" alt="【顶】switch《十三机兵防卫圈 13 Sentinels Aegis Rim》港版中文nsp/xci下载【魔改版+卡带版+数字原版】" /></td> </tr> </tbody> </table> <p>　　《十三机兵防卫圈》将会以13位主角的视角来讲述故事的发展。《十三机兵防卫圈》的故事背景设定在现代的日本，而在一场名为&ldquo;那一天(that day)&rdquo;的事件后绝望席卷了整个区域。然而，初生牛犊不怕虎，一位名叫&ldquo;鞍部十郎&rdquo;的男孩站了出来并发起了反击。</p> <p>　　故事介绍</p> <p>　　这里是80年代的日本。日常生活被打破了，突如其来的怪兽们忽然从天而降，破坏着这个城市。这一天，13名少年少女开上了机兵，去对抗入侵城市的怪兽，挽救这个世界。</p> <p>　　这里究竟发生着什么?为什么会出现怪兽?为什么要驾驶机兵?机兵是怎么来的?这些并肩作战的战友们都是怎么来的?随着玩家的疑问，13名角色分别回忆起此前发生的一件件事。</p> <p>　　游戏特色</p> <p>　　13名主角有着截然不同的剧情风格和故事内容，其中包含许多经典科幻场景的重现，以及许多经典ACG作品名场面的致敬。</p> <p>　　这些剧情每一个都与主线牢牢联系着，互相交错，共同编织出了《十三机兵防卫圈》错综复杂又逻辑明晰的故事。</p> <p align="center">&nbsp;</p> <p>　　以上内容就是小编为大家带来的switch《十三机兵防卫圈》港版中文下载，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">ethanYE</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/119884/](https://lad.sfcrom.cn/2024/04/119884/)

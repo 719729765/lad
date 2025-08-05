@@ -1,0 +1,13 @@
+---
+title: "PC《夜深人静 At Dead Of Night》中文版下载（Build 8600699）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《夜深人静 At Dead Of Night》中文版下载，这是一款3D冒险解密游戏，为玩家准备的是一个恐怖氛围的故事，玩家要想办法从一个可怕的旅馆中逃出来，喜欢这个类型游戏的玩家不要错过。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Baggy Cat Ltd. 　　游戏发行：Ba&hellip;"
+layout: post
+---
+
+ <p>　　PC《夜深人静 At Dead Of Night》中文版下载，这是一款3D冒险解密游戏，为玩家准备的是一个恐怖氛围的故事，玩家要想办法从一个可怕的旅馆中逃出来，喜欢这个类型游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=671418124&amp;bvid=BV1CU4y1s7hJ&amp;cid=291627003&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039af5e2fbb.jpg" alt="PC《夜深人静 At Dead Of Night》中文版下载（Build 8600699）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039af6525cf.jpg" alt="PC《夜深人静 At Dead Of Night》中文版下载（Build 8600699）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039af6ad046.jpg" alt="PC《夜深人静 At Dead Of Night》中文版下载（Build 8600699）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039af716ed5.jpg" alt="PC《夜深人静 At Dead Of Night》中文版下载（Build 8600699）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Baggy Cat Ltd.</p> <p>　　游戏发行：Baggy Cat Ltd.</p> <p>　　一款身临其境的恐怖冒险解谜游戏，在游戏中玩家将扮演一位名叫maya的学生，在夜晚求宿时被一个怪人骗到了旅馆中绑架了，现在你要做的是设法让自己脱身，并且还要调查这个神秘的旅馆，揭开房主背后隐藏的秘密。</p> <p>　　游戏介绍</p> <p>　　《夜深人静》是一部恐怖电影，一部恐怖游戏，一部捉鬼游戏。它融合了真实的动作和图形，创造了独一无二的沉浸式恐怖体验。你扮演玛雅，一个被困在一个叫吉米&middot;霍尔的精神病患者经营的偏远旅馆里的学生。吉米用邪恶的意图把玛雅的朋友绑起来锁在他们的房间里。玛雅设法逃走了，但吉米正在四处寻找她。然而，为了让他释放她的朋友，玛雅必须揭开吉米的秘密。玛雅用她发现的一个古老的幽灵语音接收器，必须与吉米过去的鬼魂交流，这些鬼魂在酒店周围出现，并逐渐揭示他们的故事。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 8 64bit</p> <p>　　处理器: i5</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: Video acceleration preferred</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10 64bit</p> <p>　　处理器: i7 2.2gz</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: Video acceleration preferred</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《夜深人静 At Dead Of Night》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">123200698</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52558/](https://lad.sfcrom.cn/2024/03/52558/)

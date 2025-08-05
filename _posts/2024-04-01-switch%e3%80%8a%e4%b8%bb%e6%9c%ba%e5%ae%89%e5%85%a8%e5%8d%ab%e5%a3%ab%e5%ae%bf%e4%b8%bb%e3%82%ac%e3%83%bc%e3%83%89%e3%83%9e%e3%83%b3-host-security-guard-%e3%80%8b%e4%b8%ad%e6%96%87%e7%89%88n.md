@@ -1,0 +1,13 @@
+---
+title: "switch《主机安全卫士/宿主ガードマン &#8211; Host Security Guard -》中文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《主机安全卫士/宿主ガードマン - Host Security Guard -》中文版nsp下载!.『宿主保卫者 - Host Security Guard -』是描述在警备公司工作的，被人用高薪挖脚去担任诡异实验的实验对象，被捲入各种事件的故事。 　　原本是由「Incarose」公&hellip;"
+layout: post
+---
+
+ <p>　　switch《主机安全卫士/宿主ガードマン - Host Security Guard -》中文版nsp下载!.『宿主保卫者 - Host Security Guard -』是描述在警备公司工作的，被人用高薪挖脚去担任诡异实验的实验对象，被捲入各种事件的故事。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f15659c58.webp" width="700" alt="switch《主机安全卫士/宿主ガードマン - Host Security Guard -》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f156bb547.webp" width="700" alt="switch《主机安全卫士/宿主ガードマン - Host Security Guard -》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f157259c0.webp" width="700" alt="switch《主机安全卫士/宿主ガードマン - Host Security Guard -》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f1577c60f.webp" width="700" alt="switch《主机安全卫士/宿主ガードマン - Host Security Guard -》中文版nsp下载" /></p></div> <p>　　原本是由「Incarose」公司所发售的美少女游戏，现在于『PandaShojo』平台上进行重製，让全世界的玩家都能够享受游戏内容。</p> <p>　　◆游戏简介</p> <p>　　在一个比黑夜更加昏暗的黑暗之中。</p> <p>　　睁大眼睛一看，里面好像有甚麽物体在蠢动着。</p> <p>　　在里面等着我。</p> <p>　　我打开了那个盒子&hellip;然后瞬间就把里面的东西吞了下去。</p> <p>　　&hellip;&hellip;失去了意识。</p> <p>　　◆剧情概要</p> <p>　　近未来，在东京的东部的新市区的茅道区。</p> <p>　　只要在这个新城镇就职警备相关的工作，就能得到来自地方的支援。</p> <p>　　主角的藤田雅人也是接受地方支援过生活的其中一人</p> <p>　　之前是住在只有男生的共享公寓中，</p> <p>　　现在跟香乃早苗和妹妹的叶月，3人共同生活。</p> <p>　　雅人们过着互相帮忙且平稳与幸福的生活。</p> <p>　　某一天，从公司的前辈美咲提出了要不要成为某个实验的实验对象的提议。</p> <p>　　「好诡异。但，我需要钱&hellip;&hellip;。」</p> <p>　　就算面对的是不祥预感与加薪的两难，最后还是在文件上签了名字。</p> <p>　　但却不知道，这是会让雅人们的生活天翻地复的决定&hellip;&hellip;。</p> <p>　　◆角色</p> <p>　　・香乃 早苗</p> <p>　　「猫咪咖啡厅的回数券让两张给我啦~! 这样我就原谅你唷~!」</p> <p>　　总是充满笑容且温柔，端庄贤淑、才色兼备的香乃姊妹的长女。</p> <p>　　虽然年纪比雅人，却是会照顾其他两个同居人的学生。</p> <p>　　擅长料理也打算参加厨师考试。其实十分喜欢美国动漫。</p> <p>　　・香乃 叶月</p> <p>　　「如果是我们家的话，就是要处打扫厕所跟浴室4週的刑罚唷」</p> <p>　　虽然本性善良，但不善表达，总是会不小心说出反话的香乃姊妹的次女。</p> <p>　　虽然平常都直呼雅人的名字，但如果遇到像是要写信给长辈等时候，能撒娇要求帮忙，就会撒娇。</p> <p>　　打从心底尊敬且爱慕真心照顾自己的早苗。</p> <p>　　・美咲</p> <p>　　「藤田先生，你辛苦了，请喝咖啡」</p> <p>　　飘浮不定也难以捉模的公司女同事。常会找雅人搭话。</p> <p>　　有时候会变成前辈，有时候则会变成后辈，工作部属常常变来变去。</p> <p>　　虽然向雅人提出参加触手实验的提案，她究竟是敌是友&hellip;&hellip;。</p> <p>　　・藤田 雅人</p> <p>　　就职某企业的警卫。最喜欢早苗做的美味餐点与好喝的酒。</p> <p>　　因为在当然怎麽感觉都很诡异的研究设施的警卫，用着走钢索的心情在上班。</p> <p>　　十分重视在共享公寓里的幸福生活。</p> <p><h4>下载地址(由网友<font color="red">q568969336</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100440/](https://lad.sfcrom.cn/2024/04/100440/)

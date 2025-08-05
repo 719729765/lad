@@ -1,0 +1,13 @@
+---
+title: "switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》汉化版xci下载【含整合版+单独汉化补丁】"
+date: 2024-04-05
+tags: []
+categories: ["Switch汉化游戏"]
+excerpt: "　　【内含原版+TX专用9.2魔改版】switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》日文版nsp/xci整合版下载【含DLC】!收录了《大逆转裁判》两部作品《The Great Ace Attorney: Adventures》(大逆转裁判 -&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用9.2魔改版】switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》日文版nsp/xci整合版下载【含DLC】!收录了《大逆转裁判》两部作品《The Great Ace Attorney: Adventures》(大逆转裁判 -成步堂龙之介的冒险-)和 《The Great Ace Attorney 2: Resolve》(大逆转裁判2 -成步堂龙之介的觉悟-)的合集《The Great Ace Attorney Chronicles》。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=333698241&amp;bvid=BV1bw411f7us&amp;cid=356247590&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/07-27/40ff91986591275ed9b866b258b95878.jpg" alt="switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》汉化版xci下载【含整合版+单独汉化补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/07-27/628033b7c3cec25bcfd24347e2047b33.jpg" alt="switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》汉化版xci下载【含整合版+单独汉化补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/07-27/285016846169cff4d4fbc193495308ff.jpg" alt="switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》汉化版xci下载【含整合版+单独汉化补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/07-27/6d6fcc2e8092c29a3aa6ad3e0d40c29f.jpg" alt="switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》汉化版xci下载【含整合版+单独汉化补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/07-27/606435c89297206f5fa51e6643301e0c.jpg" alt="switch《大逆转裁判 编年史 The Great Ace Attorney Chronicles》汉化版xci下载【含整合版+单独汉化补丁】" /></td> </tr> </tbody> </table> <p>　　详细介绍</p> <p>　　法庭对战游戏《逆转裁判》系列的《The Great Ace Attorney: Adventures》和《The Great Ace Attorney 2: Resolve》两部作品将一并收录成为合集登场!本作作为法庭解谜类型的经典代表作，具有超过数十小时游戏时间的丰富内容，并经过画质提升和可玩性优化调整后被完美重现。</p> <p>　　本作共有10话，以19世纪末明治时代的日本和伦敦为舞台，讲述成步堂龙一的祖先&mdash;&mdash;成步堂龙之介作为律师大展拳脚的故事。缜密的遍布故事全篇的伏笔一一得到回收，高潮迭起的反转剧情将给你带来逆转裁判系列顶级的畅快感。</p> <p>　　本作除对应可自动播放文字对话的Autoplay外，还准备了便于新手玩家游玩的故事模式。在此模式设定下包括解谜在内的游戏剧情将会自动向前推进。即使是不擅长解谜的玩家，也能犹如在观赏推理剧般享受此游戏。</p> <p><h4>下载地址(由网友<font color="red">起的太把</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/130183/](https://lad.sfcrom.cn/2024/04/130183/)

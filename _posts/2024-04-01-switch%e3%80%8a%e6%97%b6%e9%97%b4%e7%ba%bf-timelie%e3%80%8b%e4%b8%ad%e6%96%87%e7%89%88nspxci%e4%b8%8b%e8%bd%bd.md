@@ -1,0 +1,13 @@
+---
+title: "switch《时间线 Timelie》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《时间线 Timelie》中文版下载，这是一款气质很特别的冒险解密游戏，主角是一名少女，她将和她的猫一起在一个神秘的空间中进行探索。玩家可以善用主角操纵时间的能力。 　　故事背景是一个能够想象过去和未来的神秘女孩，被困在一个时间以一种奇怪而又无法预测的方式流逝的世界。看起来与世界相连&hellip;"
+layout: post
+---
+
+ <p>　　switch《时间线 Timelie》中文版下载，这是一款气质很特别的冒险解密游戏，主角是一名少女，她将和她的猫一起在一个神秘的空间中进行探索。玩家可以善用主角操纵时间的能力。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=328360067&amp;bvid=BV1qA411q7sM&amp;cid=193801517&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/12-17/be0b5709de76946544eac70230a42792.jpg" alt="switch《时间线 Timelie》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/12-17/db4fbf6555642097788a94066e120323.jpg" alt="switch《时间线 Timelie》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/12-17/e4465228d914c96fc77afcbea7897435.jpg" alt="switch《时间线 Timelie》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/12-17/8ecd13e1ce73b5fb048cc88b8ed84501.jpg" alt="switch《时间线 Timelie》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/12-17/4b0131382f19b6da64268346d38d2173.jpg" alt="switch《时间线 Timelie》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　故事背景是一个能够想象过去和未来的神秘女孩，被困在一个时间以一种奇怪而又无法预测的方式流逝的世界。看起来与世界相连的猫成为了她的唯一盟友，她们之间的联系跨越了时间和空间，只有通过团队合作，她们才能揭露身后的秘密。神秘女孩试图用自己的力量控制时间克服障碍，从这个神秘的抽象世界中找到一条出路。</p> <p>　　游戏特色</p> <p>　　使用时间轴，玩家可以像在任何视频播放器一样控制游戏时间。向左拖动可将时间倒回过去并撤消操作。向右拖动以寻找未来并获取信息以改变您的过去。</p> <p>　　在时间轴上同时计划两个角色的动作，在单人游戏中提供前所未有的合作游戏体验。</p> <p>　　引导迷路的女孩和伴侣猫咪穿越充满活力，超现实和抽象的境界。操纵时间来发现隐藏的秘密，并让他们两个都回到家中。</p> <p>　　这款游戏就为大家介绍到这里了。喜欢这个类型的话大家可以来关注一下哦。</p> <p><h4>下载地址(由网友<font color="red">honghong</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100712/](https://lad.sfcrom.cn/2024/04/100712/)

@@ -1,0 +1,13 @@
+---
+title: "PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载!MISTROGUE 是一款「不可思议迷宫」风格的实时动作JRPG。故事背景设定在「活的地下城」中。 玩家需要利用他们自行组合的最强技能构建，使用「迷宫石」随意开辟出道路，以&hellip;"
+layout: post
+---
+
+ <p>　　PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载!MISTROGUE 是一款「不可思议迷宫」风格的实时动作JRPG。故事背景设定在「活的地下城」中。 玩家需要利用他们自行组合的最强技能构建，使用「迷宫石」随意开辟出道路，以应对不断涌来的陷阱和成群怪物。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=224280801&amp;bvid=BV1S8411T7mz&amp;cid=1006555263&amp;p=1" width="410"></iframe></p> <p>　　MISTROGUE是一款源自日本，致敬「不思议迷宫」系列的3D实时Roguelike动作游戏。每次主人公踏入地牢时，都会生成新的地图，玩家必须运用他们选择的技能构建并使用「迷宫石」来铺平道路，以对抗怪物大军。</p> <p>　　在游戏中，知道如何构建技能组合以及何时使用物品，比动作技巧更加重要。请利用「技能手册」来找出最适合你的技能组合。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc66aed19.webp" width="700" alt="PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc6722d99.webp" width="700" alt="PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc6782d9d.webp" width="700" alt="PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc67f0991.webp" width="700" alt="PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc686bf28.webp" width="700" alt="PC《迷雾魔域：迷雾与活地下城/MISTROGUE: Mist and the Living Dungeons》中文版下载" /></p></div> <p>　　游戏特色</p> <p>　　探索不断变化的「活的地下城」</p> <p>　　每次进入地牢都会生成新地图，主角迷雾的等级也会重置为Lv.1。采集并搭配稀有物品和装备总能带来新体验，由于楼层是随机生成的，因此随时可能会遇到成群的怪物!</p> <p>　　打造自己的技能组合</p> <p>　　武器、盾牌和手镯上都有可以安装技能的技能槽。在「技能手册」的帮助下，你可以找到超过80种的有利组合。找出哪些技能最有协同效应，并以此对抗强敌，是游戏的一大乐趣。</p> <p>　　紧张感十足的即时动作系统</p> <p>　　玩家有多种策略可以使用。例如，在躲避敌人范围攻击后立刻进行反击。在危急时刻，使用造成范围伤害的技能或施放对敌人造成负面状态效应的技能卷轴。你也可以通过使用物品来增强自己。</p> <p>　　迷宫石能帮助你应对机关</p> <p>　　「迷宫石」可以在地牢中创建或移除地块。这是游戏中的一个独特系统，可以帮助你前往位于棘手区域的宝箱，甚至摆脱困难的怪物群。</p> <p>　　多样的内容</p> <p>　　「故事模式」讲述了迷雾在主线故事中的冒险，而「无尽次元」是一个具有挑战性的地牢，必须在背包中没有装备或物品的情况下通过。最难的地牢是「百战磨练之路」，一定会考验你的技能组合。最后，「记忆宝藏」适合收藏家，但也为主线故事增添更多内容。</p> <p><h4>下载地址(由网友<font color="red">bakerchau</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51624/](https://lad.sfcrom.cn/2024/03/51624/)

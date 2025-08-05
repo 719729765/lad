@@ -1,0 +1,13 @@
+---
+title: "switch《软盘骑士 Floppy Knights》中文版nsz下载+2.0.4补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《软盘骑士 Floppy Knights中文版nsp下载+2.0.4补丁，这是一款风格很卡通的策略卡牌游戏，很有趣的玩法，玩家可以从软盘中召唤出帮手来进行战斗，对卡牌游戏感兴趣的玩家可以来尝试一下。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：Rose City Games 　　游&hellip;"
+layout: post
+---
+
+ <p>switch《软盘骑士 Floppy Knights中文版nsp下载+2.0.4补丁，这是一款风格很卡通的策略卡牌游戏，很有趣的玩法，玩家可以从软盘中召唤出帮手来进行战斗，对卡牌游戏感兴趣的玩家可以来尝试一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=250131736&amp;bvid=BV1zv411A7Gt&amp;cid=400875161&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f3b7ded3d.webp" alt="switch《软盘骑士 Floppy Knights》中文版nsz下载+2.0.4补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f3b851d66.webp" alt="switch《软盘骑士 Floppy Knights》中文版nsz下载+2.0.4补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f3b8c1e2c.webp" alt="switch《软盘骑士 Floppy Knights》中文版nsz下载+2.0.4补丁" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Rose City Games</p> <p>　　游戏发行：Rose City Games/wiip</p> <p>　　《软盘骑士》是一款混合了卡牌构建，砍杀，魔法等元素的回合制策略游戏。游戏将战棋和卡牌这两种大家耳熟能详的游戏类型融合成全新的风格，通过卡组召唤软盘骑士，投身回合制的棋盘战场。</p> <p>　　游戏用清新可爱的画风，勾勒出一个生机勃勃的幻想世界。在这里，炼金术与魔法并存。玩家将带领骑士们挑战胆大包天的哥布林、时髦的多肉植物等各类奇特的生物，以此打工赚钱，顺便拯救世界。</p> <p>　　游戏特色</p> <p>　　回合策略玩法与卡牌构建的完美融合</p> <p>　　将战棋和卡牌这两种大家耳熟能详的游戏类型融合成全新的风格!组合最喜欢的卡牌形成卡组，用它们召唤软盘骑士，投身回合制的棋盘战场。</p> <p>　　生气勃勃的幻想世界，复古科技与魔法并存</p> <p>　　踏入这个录音磁带与炼金术共存的奇幻国度。插画师 Marlowe Dobbe(曾经担纲《骰子地下城》美术)用可爱清新的手绘风格将骑士和敌人都惟妙惟肖地呈现了出来。</p> <p>　　达成小队目标</p> <p>　　准备好迎接各种挑战了吗?胆大包天的哥布林，时髦的多肉植物，还有各种各样奇妙的生物!你的麾下将聚集种类繁多，五颜六色的软盘骑士，指挥他们投身战斗吧!</p> <p>　　上手即玩，有瘾难弃</p> <p>　　我们从卡牌构建和回合策略玩法中汲取了最精华有趣的部分，将他们提炼成了一种可以快速上手，易于理解的全新模式。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 64 位</p> <p>　　处理器: Intel H81 core i3 4130T 2.90GHZ(四核)</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Intel HD 4400</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　附注事项: 软盘骑士不需要软盘就能玩。</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《软盘骑士 Floppy Knights》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">15507296500</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100458/](https://lad.sfcrom.cn/2024/04/100458/)

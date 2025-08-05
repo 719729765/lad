@@ -1,0 +1,13 @@
+---
+title: "switch《失乐园 Paradise Lost》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《失乐园 Paradise Lost》中文版下载，这是一款动作冒险类游戏，玩家将在虚构的世界末日背景下，探索一个充满神秘气息的地下堡垒。 　　在一个因上世纪50年代的核战争而毁灭后的世界，核战争的幸存者们在避难设施里已经生存了半个世纪，整个地球的科技水平都还维持在上个世纪中叶的状况。&hellip;"
+layout: post
+---
+
+ <p>　　switch《失乐园 Paradise Lost》中文版下载，这是一款动作冒险类游戏，玩家将在虚构的世界末日背景下，探索一个充满神秘气息的地下堡垒。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=972261451&amp;bvid=BV1Vp4y1a7Rv&amp;cid=314894386&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a004230758.jpg" alt="switch《失乐园 Paradise Lost》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0042b8b42.jpg" alt="switch《失乐园 Paradise Lost》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0043460bb.jpg" alt="switch《失乐园 Paradise Lost》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0043bcbd5.jpg" alt="switch《失乐园 Paradise Lost》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a004449dfb.jpg" alt="switch《失乐园 Paradise Lost》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　在一个因上世纪50年代的核战争而毁灭后的世界，核战争的幸存者们在避难设施里已经生存了半个世纪，整个地球的科技水平都还维持在上个世纪中叶的状况。波兰克拉科夫城遗址附近的一处避难所设施发生了一些事情，从出生起就在避难所里生活的12岁男主角被迫来到地表，他将在陌生的外部世界里展开自己的冒险。</p> <p>　　新的世界能在旧世界的余烬中重生吗?扮演一位12岁少年，发现神秘的纳粹地堡，在核战后的废土流浪。你在探索地堡中历史时所做出的决定将会影响你在后续旅途中的所见。</p> <p>　　没有赢家的二战</p> <p>　　僵持了二十多年之后，这场战争最终以遍地焦土的结局收场。欧洲绝大多数地区都在纳粹的核弹袭击下化为一片废墟。此后的岁月里，欧洲核心地带始终是满目疮痍的荒芜景象。在这片大地上蔓延的致命核辐射，更是令世界其他地区的人根本无法接近。</p> <p>　　地球上最后的故事</p> <p>　　你将扮演12岁的男孩 Szymon。核爆之后，他的母亲不幸殒命，只留他一人在波兰境内寸草不生的荒凉废土上游荡。这时，他意外发现了一座巨大的纳粹地堡。他的母亲一直珍藏着一张照片。他要寻找照片中那个身份不明的男人。他是谁?你能找到他吗?</p> <p>　　一个废弃的地堡</p> <p>　　这是一座深埋地底的复古未来主义风格的地堡，堡内先进的工业科技与神秘斯拉夫异教意象相互交织，更隐藏着一座地下城市供你探索。挖掘地堡背后不为人知的故事，了解它如何被波兰叛乱分子接管，而地堡内的居民最后又迎来了怎样的命运。他们都遭遇了些什么?</p> <p>　　寻找Ewa</p> <p>　　虽然这个地堡与世隔绝，但有个名叫 Ewa 的神秘女孩还是利用地堡内的科技联系上了 Szymon。如果他能找到她，或许就可以从她那里得知照片里那个男人的身份。如果他能找到她，他将终于不再是孤身一人&hellip;&hellip;</p> <p><h4>下载地址(由网友<font color="red">3443379766</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101099/](https://lad.sfcrom.cn/2024/04/101099/)

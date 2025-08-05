@@ -1,0 +1,13 @@
+---
+title: "switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《异度之刃3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.1.1补丁+4DLC】!《异度之刃3》是一款角色扮演类游戏，现在本作已经发布!一起来看看详细的情况吧! 实机视频 　　《异度之刃3》的故事发生在前作结局后的遥远未来，且玩家将会在本作中看到部分初代&hellip;"
+layout: post
+---
+
+ <p>switch《异度之刃3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.1.1补丁+4DLC】!《异度之刃3》是一款角色扮演类游戏，现在本作已经发布!一起来看看详细的情况吧!</p> <p style="text-align: center;"><strong><span style="font-size:18px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=770690780&amp;bvid=BV1vr4y1u7yf&amp;cid=766735958&amp;page=1" width="410"></iframe></p> <p>　　《异度之刃3》的故事发生在前作结局后的遥远未来，且玩家将会在本作中看到部分初代和二代人气角色的身影(比如预告中就出现了疑似尼娅和梅莉亚的角色)。</p> <p>　　《异度之刃》系列作为JRPG中最杰出的系列之一，凭借广袤的开放式地图，充满策略深度的指令战斗，波澜壮阔的宏大剧情，以及质量上乘的音乐收获了众多玩家的如潮好评。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f10c9b0e8.webp" width="480" alt="switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f10ceefe1.webp" width="480" alt="switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f10d54375.webp" width="480" alt="switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f10d9cafc.webp" width="480" alt="switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f10de3988.webp" width="480" alt="switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f10e35b07.webp" width="480" alt="switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f10e7cfe3.webp" width="480" alt="switch《异度之刃3/异度神剑3 Xenoblade Chronicles 3》中文版NSZ/XCI下载【含2.2.0补丁+4DLC】" /></p> <p>　　以上就是小编给大家带来的全部内容啦，更多信息资讯还请大家持续关注游戏年轮呦~</p> <p><h4>下载地址(由网友<font color="red">2567601596</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100121/](https://lad.sfcrom.cn/2024/04/100121/)

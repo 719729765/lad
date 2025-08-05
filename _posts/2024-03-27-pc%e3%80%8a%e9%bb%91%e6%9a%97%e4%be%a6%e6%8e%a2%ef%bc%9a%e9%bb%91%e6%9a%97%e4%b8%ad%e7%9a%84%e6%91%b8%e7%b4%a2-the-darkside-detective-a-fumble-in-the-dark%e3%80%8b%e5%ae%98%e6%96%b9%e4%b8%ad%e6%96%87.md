@@ -1,0 +1,13 @@
+---
+title: "PC《黑暗侦探：黑暗中的摸索 The Darkside Detective: A Fumble in the Dark》官方中文版下载【v2.18.0.4324d|集成全DLC】"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《黑暗侦探 The Darkside Detective》官方中文版下载，这是一款像素画风的推理解谜游戏，主角接手的都是一些笼罩着神秘力量的离奇案件，对这个类型游戏感兴趣的玩家不妨来体验一下吧。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Spooky Doorway 　　游戏发行&hellip;"
+layout: post
+---
+
+ <p>　　PC《黑暗侦探 The Darkside Detective》官方中文版下载，这是一款像素画风的推理解谜游戏，主角接手的都是一些笼罩着神秘力量的离奇案件，对这个类型游戏感兴趣的玩家不妨来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=630098508&amp;bvid=BV1rb4y1D7t7&amp;cid=324639552&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b32b4b534.webp" alt="PC《黑暗侦探：黑暗中的摸索 The Darkside Detective: A Fumble in the Dark》官方中文版下载【v2.18.0.4324d|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b32bab2d6.webp" alt="PC《黑暗侦探：黑暗中的摸索 The Darkside Detective: A Fumble in the Dark》官方中文版下载【v2.18.0.4324d|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b32bf1e97.webp" alt="PC《黑暗侦探：黑暗中的摸索 The Darkside Detective: A Fumble in the Dark》官方中文版下载【v2.18.0.4324d|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b32c52600.webp" alt="PC《黑暗侦探：黑暗中的摸索 The Darkside Detective: A Fumble in the Dark》官方中文版下载【v2.18.0.4324d|集成全DLC】" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Spooky Doorway</p> <p>　　游戏发行：Akupara Games</p> <p>　　用鼠尾草净化房间，带上旅行装通灵板，再次进入双湖城吧。这是美国排名34位的闹鬼名城。在像素化的世界中，与麦奎因侦探一起探索六个令人毛骨悚然的案件，冒着生命危险闯过重重迷雾，未加密笼罩在这座城市上方的可怕谜团。</p> <p>　　屡获殊荣的喜剧系列冒险游戏的第一季完结，故事讲述了麦奎因侦探和他的助手帕特里克&middot;杜利警官调查双湖城和当地各色居民的一连串案件。点触眼前的每件物品，在神秘怪异的地点周围点击，运用你的智慧(或借助好友)解决案件!</p> <p>　　游戏介绍</p> <p>　　一款文字冒险类的游戏</p> <p>　　玩家需要扮演一名侦探和好基友Dooley一起解决6桩灵异事件。</p> <p>　　6桩灵异事件彼此独立但又有相连</p> <p>　　最后会解答所有灵异事件发生的原因。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows XP</p> <p>　　处理器: Pentium 4</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: Intel HD Chipset 3000</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《黑暗侦探 The Darkside Detective》官方中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">wjn198458</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52532/](https://lad.sfcrom.cn/2024/03/52532/)

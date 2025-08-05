@@ -1,0 +1,13 @@
+---
+title: "switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）"
+date: 2024-04-10
+tags: []
+categories: ["switch金手指"]
+excerpt: "　　switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载(v1.0.4) 　　无敌 　　伤害倍率 　　金钱倍率 　　经验值倍率 　　无限精力 　　无限跳跃 　　金钱不减 　　道具不减 　　全部装备 　　蓝水晶不减 　　连击数2倍 　　可自动连击 　　格挡条不减 　　力量&hellip;"
+layout: post
+---
+
+ <p>　　switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载(v1.0.4)</p> <p>　　无敌</p> <p>　　伤害倍率</p> <p>　　金钱倍率</p> <p>　　经验值倍率</p> <p>　　无限精力</p> <p>　　无限跳跃</p> <p>　　金钱不减</p> <p>　　道具不减</p> <p>　　全部装备</p> <p>　　蓝水晶不减</p> <p>　　连击数2倍</p> <p>　　可自动连击</p> <p>　　格挡条不减</p> <p>　　力量晶体2倍</p> <p>　　力量晶体不减</p> <p>　　购买商品免材料</p> <p>　　移动速度提升</p> <p>　　跳跃高度提升</p> <p>　　降低下落速度</p> <p>　　水中氧气无限</p> <p>　　自动格挡攻击</p> <p>　　攻击范围扩大</p> <p>　　攻击附加剑气</p> <p>　　自动拾取金币(强化版)</p> <p>　　自动拾取晶体(强化版)</p> <p>　　自动拾取道具(强化版)</p> <p>　　显示敌人血量</p> <p>　　显示伤害数值</p> <p>　　显示敌人属性</p> <p>　　显示敌人破防条</p> <p>　　盾牌重量变为0</p> <p>　　提升破防暴击率</p> <p>　　采掘力变得稳定</p> <p>　　采掘力大幅提升</p> <p>　　道具掉落率提升</p> <p>　　显示掉落晶体类型</p> <p>　　减轻风雪气候影响</p> <p>　　雪地行走速度不减</p> <p>　　使用道具无需等待</p> <p>　　道具回复效果两倍</p> <p>　　道具持续时间延长(超级加倍)</p> <p>　　加快道具投掷速度</p> <p>　　盾牌重击快速冷却</p> <p>　　盾牌重击释放龙卷风</p> <p>　　双手武器可装备盾牌</p> <p>　　装备熟练度快速增加</p> <p>　　显示当前区域宝箱数量</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e99fbc64c.webp" width="480" alt="switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9a11a050.webp" width="480" alt="switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9a203c1e.webp" width="480" alt="switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9a2b0166.webp" width="480" alt="switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9a35ca01.webp" width="480" alt="switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9a432773.webp" width="480" alt="switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9a51fcc4.webp" width="480" alt="switch《神之天平(ASTLIBRA Revision)》47项修改金手指下载（v1.0.4）" /></p> <p><h4>下载地址(由网友<font color="red">acherr</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/152321/](https://lad.sfcrom.cn/2024/04/152321/)

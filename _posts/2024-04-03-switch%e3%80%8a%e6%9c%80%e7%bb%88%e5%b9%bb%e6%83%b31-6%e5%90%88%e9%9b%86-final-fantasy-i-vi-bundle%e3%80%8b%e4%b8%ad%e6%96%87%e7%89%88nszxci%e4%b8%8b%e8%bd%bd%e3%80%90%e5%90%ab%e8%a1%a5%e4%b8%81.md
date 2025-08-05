@@ -1,0 +1,13 @@
+---
+title: "switch《最终幻想1-6合集 FINAL FANTASY I-VI Bundle》中文版nsz/xci下载【含补丁+金手指】"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《最终幻想1-6合集 FINAL FANTASY I-VI Bundle》中文版nsz下载!此外，为《Final Fantasy》系列打造点阵角色的涩谷员子也加入开发团队之中，让所有的画面都以脱胎换骨的 2D 画面重现，并且追加了怪物图鉴、插画鉴赏与音乐鉴赏等要素，让玩家能够更进一步&hellip;"
+layout: post
+---
+
+ <p>　　switch《最终幻想1-6合集 FINAL FANTASY I-VI Bundle》中文版nsz下载!此外，为《Final Fantasy》系列打造点阵角色的涩谷员子也加入开发团队之中，让所有的画面都以脱胎换骨的 2D 画面重现，并且追加了怪物图鉴、插画鉴赏与音乐鉴赏等要素，让玩家能够更进一步享受游戏世界。</p> <p><span style="color:#FF0000;"><strong><span style="font-size:18px;">　　1、2、3更新至1.0.2</span></strong></span></p> <p><span style="color:#FF0000;"><strong><span style="font-size:18px;">　　4、5 更新至1.0.4</span></strong></span></p> <p><span style="color:#FF0000;"><strong><span style="font-size:18px;">　　6 更新至1.0.3</span></strong></span></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=952114435&amp;bvid=BV1xs4y1N7Cr&amp;cid=1084887189&amp;page=1" width="410"></iframe></p> <p>　　同时购买《FF1～6》即可获得每部作品的原声带和壁纸!</p> <p>　　以崭新的画质与音质复活的《FINAL FANTASY》像素复刻版。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d87651cf13.webp" width="700" alt="switch《最终幻想1-6合集 FINAL FANTASY I-VI Bundle》中文版nsz/xci下载【含补丁+金手指】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8765bdfdc.webp" width="700" alt="switch《最终幻想1-6合集 FINAL FANTASY I-VI Bundle》中文版nsz/xci下载【含补丁+金手指】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d87667429f.webp" width="700" alt="switch《最终幻想1-6合集 FINAL FANTASY I-VI Bundle》中文版nsz/xci下载【含补丁+金手指】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d87672555f.webp" width="700" alt="switch《最终幻想1-6合集 FINAL FANTASY I-VI Bundle》中文版nsz/xci下载【含补丁+金手指】" /></p> <p>　　本合辑能以优惠价格一次购买《FF1～6》共六部作品。</p> <p>　　还能获得共二十首乐曲的特别原声带和十四种壁纸。</p> <p>　　享受完全强化的2D点阵画面和优美的重编版乐曲。</p> <p>　　游戏系统方面则将UI优化，并新增图鉴、画廊和音乐播放器等功能，可以更投入游戏。</p> <p>　　※本合辑内作品为以各作品原版为基础开发的复刻版。不包含一部分其他重制版中变更、追加的要素。</p> <p>　　创造出代表《FF》的点阵角色的涩谷员子也加入进开发队伍之中，所有的画面都以鲜活的2D得以重现。</p> <p>　　为《FF》的世界注入生命的诸多名曲，也都在作曲者植松伸夫先生的完全监修之下获得改编。</p> <p>　　为了能够使玩家更加轻松地体验游戏，复刻版搭载了经过优化的UI系统与自动战斗功能。</p> <p>　　还追加了怪物图鉴、插画鉴赏与音乐鉴赏等能够更进一步享受游戏世界的要素。</p> <p><h4>下载地址(由网友<font color="red">1004746713</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124500/](https://lad.sfcrom.cn/2024/04/124500/)

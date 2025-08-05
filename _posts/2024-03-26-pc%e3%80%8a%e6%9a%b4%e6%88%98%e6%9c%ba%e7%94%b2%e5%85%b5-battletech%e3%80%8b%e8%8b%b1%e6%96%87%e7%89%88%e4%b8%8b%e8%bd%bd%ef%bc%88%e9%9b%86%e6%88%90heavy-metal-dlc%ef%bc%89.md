@@ -1,0 +1,13 @@
+---
+title: "[PC]《暴战机甲兵 BATTLETECH》英文版下载（集成Heavy Metal DLC）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　【PC】《暴战机甲兵 BATTLETECH》英文版下载(集成Heavy Metal DLC)。这款游戏将带玩家进入一个充满纷争的世界，机甲战争是这个世界的主要的战斗方式，现在你有机会指挥这些机甲为自己战斗。 　　游戏介绍 　　在回合制战斗中指挥一小队 　　以各种各样的组合部署 30 多个 Bat&hellip;"
+layout: post
+---
+
+ <p>　　【PC】《暴战机甲兵 BATTLETECH》英文版下载(集成Heavy Metal DLC)。这款游戏将带玩家进入一个充满纷争的世界，机甲战争是这个世界的主要的战斗方式，现在你有机会指挥这些机甲为自己战斗。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6602e0033e7d3.webp" width="600" alt="[PC]《暴战机甲兵 BATTLETECH》英文版下载（集成Heavy Metal DLC）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6602e003a2af2.webp" width="600" alt="[PC]《暴战机甲兵 BATTLETECH》英文版下载（集成Heavy Metal DLC）" /></p> <p>　　游戏介绍</p> <p>　　在回合制战斗中指挥一小队</p> <p>　　以各种各样的组合部署 30 多个 BattleMech。利用地形、定位、武器选择和特殊能力智取和打败对手。</p> <p>　　管理雇佣兵公司</p> <p>　　招募、定制和发展独特的 MechWarrior。改进和定制运输机。作为一名雇佣兵，穿越广阔的太空，投靠各种皇室贵族和地方派系，接受任务和管理您的声誉。</p> <p>　　参加绝望的内战</p> <p>　　沉浸在一位被暴力废黜的统治者的故事中，发动残酷的战争，在杂牌雇佣兵公司的支持下帮她夺回王位。</p> <p>　　定制您的 &#39;MECH</p> <p>　　用 MechLab 来维护和升级您的部队，用战场上从战败敌人那里夺来的装备替换毁坏的武器系统。</p> <p>　　玩家对战 (PVP) 多人游戏和小规模战斗模式</p> <p>　　为 &lsquo;Mech 和 MechWarrior 定制长矛以与好友们正面交锋，在网络上与对手抗争，或进入单人小规模战斗模式，与人工智能 (AI) 对战，检验您的战略。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: 64-bit Windows 7 or Higher</p> <p>　　处理器: Intel&reg; Core&trade; i3-2105 or AMD&reg; Phenom&trade; II X3 720</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Nvidia&reg; GeForce&trade; GTX 560 Ti or AMD&reg; ATI Radeon&trade; HD 5870 (1 GB VRAM)</p> <p>　　DirectX 版本: 11</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 35 GB 可用空间</p> <p>　　1. 解压缩 2. 载入镜像 3. 安装游戏 4. 复制CODEX文件夹内的未加密补丁到游戏目录中覆盖 5. 运行游戏</p> <p>　　11.22日发售DLC简介：</p> <p>　　8 种全新机甲已添加至《BATTLETECH》世界中，包含 7 种原版棋盘游戏的经典设计，以及 1 种前所未见的全新机甲，专为本次扩展包打造。新的破坏方式也将登场，8 种毁灭性武器系统全新推出，制造空前绝后的大破坏。《Heavy Metal》将机甲战斗提升至更高水平，全新的《Flashpoint》小型剧情战役推出了来自著名佣兵团&ldquo;狼族龙骑兵&rdquo;的两名传奇角色，以及一艘神秘的废弃货船。</p> <p>　　1 种原创战斗机甲和 7 种经典战斗机甲</p> <p>　　《BATTLETECH》35 传承中的 7 种经典战斗机甲凯旋回归，还有 1 种首次全新打造的机甲，专为本次扩展包设计。每款经典机甲皆有与原版棋盘游戏世界观相呼应的独特装备。</p> <p>　　8 种颠覆游戏的全新武器系统</p> <p>　　8 种全新的武器系统，让您可用各种独特方式摧毁最难以对付的敌人：全新的机甲迫击炮 (Mech Mortar) 是《BATTLETECH》中首款范围攻击型的武器，可一击摧毁多个单位。新的炎狱导弹 (Inferno Missiles) 则会以熊熊燃烧的燃料包覆目标，让敌人在战斗中停止运转。</p> <p>　　全新《Flashpoint》小型剧情战役</p> <p>　　与两名来自《BATTLETECH》故事的传奇角色面对面，分别是&ldquo;狼族龙骑兵&rdquo;里的赏金猎人 (Bounty Hunter) 和黑寡妇 (Black Widow)。一艘从外太空漂流至外围国度的废弃货船，隐藏着什么秘密?船上的神秘弹头最后又会落入谁的手中?</p> <p>　　关于这款游戏就为玩家朋友们介绍到这里了，赶快来体验一下它的最新版本吧。</p> <p><h4>下载地址(由网友<font color="red">palaebo</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40147/](https://lad.sfcrom.cn/2024/03/40147/)

@@ -1,0 +1,13 @@
+---
+title: "【JSON修改】PS4《星之海洋6：神圣力量 Star Ocean: The Divine Force》中文版PKG下载v1.03"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "　　PS4《星之海洋6：神圣力量》是一款由史克威尔艾尼克斯发行的角色扮演类游戏，该作将于2022年发售，游戏支持多种语言。 　　使用方法： 　　1、确保 PS4 为 5.05 以上破解，并确保为 GoldHEN 2.2 及以上版本，推荐：http://karo218.ir或https://wroze&hellip;"
+layout: post
+---
+
+ <p>　　PS4《星之海洋6：神圣力量》是一款由史克威尔艾尼克斯发行的角色扮演类游戏，该作将于2022年发售，游戏支持多种语言。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614e994c2b47.webp" width="700" alt="【JSON修改】PS4《星之海洋6：神圣力量 Star Ocean: The Divine Force》中文版PKG下载v1.03" /></p></div> <p align="center"><img align="" border="0" src="https://www.tekqart.com/forum.php?mod=attachment&amp;aid=MzcyMjgyfDE1MjhlY2MwfDE2ODQ5ODIxNDd8Mjc1MzIwMnwzNDQ1MDQ%3D&amp;noupdate=yes" width="600" alt="【JSON修改】PS4《星之海洋6：神圣力量 Star Ocean: The Divine Force》中文版PKG下载v1.03" /></p> <p>　　使用方法：</p> <p>　　1、确保 PS4 为 5.05 以上破解，并确保为 GoldHEN 2.2 及以上版本，推荐：http://karo218.ir或https://wrozen.com</p> <p>　　2、依次安装：&ldquo;V1.03 整合版 9.00&rdquo; --&gt; &ldquo;V1.03 修改补丁 5.05-9.00 (CHEAT-JSONBASE.pkg)&rdquo; --&gt; &ldquo;4 DLC (仅限 USB 或 FTP 安装)&rdquo;</p> <p>　　3、使用 FTP 或文件管理器 (PS4-Xplorer) 将 CUSA37321_01.12.json 文件导入到机器内置 /user/data/GoldHEN/cheats/json 目录里</p> <p>　　4、运行游戏，长按 SHARE 键呼出 GoldHEN Cheat Menu，根据喜好勾选修改项</p> <p>　　5、若要还原原版效果，安装 &ldquo;V1.03 还原补丁 5.05-9.00&rdquo; 即可</p> <p>　　6、使用修改前建议事先备份重要进度存档，相关软件可论坛搜索 Save Mounter 或 Apollo</p> <p>　　注意：个人只有 5.05 系统环境并测试有效，6.72 以上自行测试，基本 95% 以上都是 OK 的</p> <p>　　修改效果：</p> <p>　　Infinite HP | 无限 HP</p> <p>　　Infinite AP | 无限 AP</p> <p>　　Infinite VA | 无限 VA</p> <p>　　Infinite VA Rush | 无限 VA 冲刺</p> <p>　　Infinite VATTING Gauge | 无限 VATTING 量表</p> <p>　　999 HITS | 999 HITS</p> <p>　　One Hit Kill | 一击必杀</p> <p>　　Infinite Item Use | 无限道具使用</p> <p>　　Infinite Food Battles Effect Lasts | 料理效果持续战斗次数不减</p> <p>　　EXP Multiply 10 on Gain | 经验值 10 倍获得</p> <p>　　maxLevel After Upgrade | 升级后等级 255</p> <p>　　SP 9999999 | SP 9999999</p> <p>　　FOL 99999999 on Gain | 金钱获得时 99999999</p> <p>　　DP 99999999 on Gain | DUMA 点数获得时 99999999</p> <p>　　DP 99999999 on Use | DUMA 点数使用时 99999999</p> <p>　　Es&#39;owa Auto Win | 索尔棋自动获胜</p> <p>　　Instant Full Hacking Progress Gauge | 破解进度量表瞬间满 100%</p> <p>　　Infinite Hacking Progress Gauge Timer | 破解进度量表倒计时不减</p> <p>　　Enable CHAOS Difficulty | 可选 CHAOS 难度</p> <p>　　*破解进度量表：是指后期的&rdquo;融合厂&ldquo;，破解活体机械合志愿者用认证</p> <p>　　*可选 CHAOS 难度：选择全新游戏需在标题画面前开启，游戏设置中显示需一直开着才能显示，具体是否达到这个难度自测，默认是要二周目才能有此难度</p> <p><h4>下载地址(由网友<font color="red">klmy6666</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139309/](https://lad.sfcrom.cn/2024/04/139309/)

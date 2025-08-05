@@ -1,0 +1,13 @@
+---
+title: "[3DS]《极限脱出ADV 善人死亡(Zero Escape &#8211; Virtue&#039;s Last Reward)》中文版CIA下载"
+date: 2024-03-28
+tags: []
+categories: ["3DS中文游戏"]
+excerpt: "　　极限脱出ADV 善人死亡这款游戏主角名为&ldquo;西古马&rdquo;，你的任务是从封闭的空间逃出，并与多位同伴相会，是一款充满了恐怖与压抑要素的冒险游戏。你将要在个性丰富的9位登场角色的合作与背叛的故事中，解开游戏的一切谜题，快来帮助西古马逃出生天吧~ 英文名称：Zero Escape -&hellip;"
+layout: post
+---
+
+ <p>　　极限脱出ADV 善人死亡这款游戏主角名为&ldquo;西古马&rdquo;，你的任务是从封闭的空间逃出，并与多位同伴相会，是一款充满了恐怖与压抑要素的冒险游戏。你将要在个性丰富的9位登场角色的合作与背叛的故事中，解开游戏的一切谜题，快来帮助西古马逃出生天吧~</p> <p><strong>英文名称：</strong>Zero Escape - Virtue&#39;s Last Reward / Kyokugen Dasshutsu ADV - Zennin Shiboudesu</p> <p><strong>游戏语言：</strong>中文</p> <p><strong>开发厂商：</strong>CHUN SOFT</p> <p><strong>发行厂商：</strong>Aksys Games</p> <p><strong>发售日期：</strong>2012-10-23</p> <p><strong>游戏类型：</strong>文字类</p> <p><strong>游戏简介：</strong></p> <p>　　本作中的主角名为&ldquo;西古马&rdquo;，他将会以从一处封闭的空间中逃出为目标，并与多位同伴相会，是一款充满了恐怖与压抑要素的冒险游戏。但是，只是逃脱出来并不一定就能摆脱被&ldquo;背叛&rdquo;而死的命运。玩家将要在个性丰富的9位登场角色的合作与背叛的故事中，解开游戏的一切谜题，并最终逃出生天。</p> <p><strong>游戏截图</strong></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660523b2a428a.webp" width="400" alt="[3DS]《极限脱出ADV 善人死亡(Zero Escape - Virtue&amp;#039;s Last Reward)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660523b2eadf1.webp" width="400" alt="[3DS]《极限脱出ADV 善人死亡(Zero Escape - Virtue&amp;#039;s Last Reward)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660523b3567b7.webp" width="400" alt="[3DS]《极限脱出ADV 善人死亡(Zero Escape - Virtue&amp;#039;s Last Reward)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660523b3b17d5.webp" width="400" alt="[3DS]《极限脱出ADV 善人死亡(Zero Escape - Virtue&amp;#039;s Last Reward)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660523b412ec5.webp" width="400" alt="[3DS]《极限脱出ADV 善人死亡(Zero Escape - Virtue&amp;#039;s Last Reward)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660523b468d0c.webp" width="400" alt="[3DS]《极限脱出ADV 善人死亡(Zero Escape - Virtue&amp;#039;s Last Reward)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660523b4bdec3.webp" width="400" alt="[3DS]《极限脱出ADV 善人死亡(Zero Escape - Virtue&amp;#039;s Last Reward)》中文版CIA下载" /></p> <p align="center">&nbsp;</p> <p><h4>下载地址(由网友<font color="red">q1596754981</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/70349/](https://lad.sfcrom.cn/2024/03/70349/)

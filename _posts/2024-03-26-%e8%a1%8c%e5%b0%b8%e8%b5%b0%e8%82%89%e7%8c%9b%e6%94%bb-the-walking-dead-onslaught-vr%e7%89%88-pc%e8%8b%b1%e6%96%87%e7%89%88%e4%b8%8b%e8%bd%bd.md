@@ -1,0 +1,13 @@
+---
+title: "行尸走肉:猛攻 The Walking Dead Onslaught VR版 PC英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　行尸走肉:猛攻 The Walking Dead Onslaught VR版 PC英文版下载。这是一款角色扮演类的丧尸生存游戏，在游戏中玩家们将扮演一位世界末日的幸存者，你将在充满僵尸的世界中寻找武器对抗丧尸狂潮的进攻。 　　《行尸走肉：猛攻》为Survios和AMC合作，电视剧中的角色比如瑞克&hellip;"
+layout: post
+---
+
+ <p>　　行尸走肉:猛攻 The Walking Dead Onslaught VR版 PC英文版下载。这是一款角色扮演类的丧尸生存游戏，在游戏中玩家们将扮演一位世界末日的幸存者，你将在充满僵尸的世界中寻找武器对抗丧尸狂潮的进攻。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=926735960&amp;bvid=BV11T4y15756&amp;cid=224055868&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660308df11023.jpg" width="600" alt="行尸走肉:猛攻 The Walking Dead Onslaught VR版 PC英文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660308df6a746.webp" width="600" alt="行尸走肉:猛攻 The Walking Dead Onslaught VR版 PC英文版下载" /></p> <p>　　《行尸走肉：猛攻》为Survios和AMC合作，电视剧中的角色比如瑞克、米琼恩、卡萝尔等角色将在游戏中出现。玩家将扮演一位世界末日生还者，拾取随机武器，应对丧尸狂潮的攻击。</p> <p>　　游戏特色</p> <p>　　1、随着TWD的冲击，AMC和Survios提供了最沉浸的步行死亡体验。</p> <p>　　2、冲击战介绍了老兵虚拟现实工作室Survios迄今为止所建立的最直观的战斗经验。</p> <p>　　3、使用真实运动虚拟现实技术清理和使用标志性近战武器和远程武器库，并体验各种图形化的最终结果。</p> <p>　　4、我们正在通过您和对象之间的交互进行虚拟现实，通过多个阈值提供各种最终结果。这是迄今为止Survios所积累的最为发自内心的战斗经验。</p> <p>　　5、基于上下文的物理：根据上下文发生不同的反应;精确地切割敌人会导致卡住、拔出武器时的阻力和抓握(虚拟现实中的一种具有挑战性的技术)。</p> <p>　　6、步行者也可以被抓获和限制以进行精确近战攻击和战略防御。</p> <p>　　7、步行者也可以向其他步行者推和扔。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel Core i5-4590 / AMD FX 8350</p> <p>　　内存: 12 GB RAM</p> <p>　　显卡: NVIDIA GTX 970 / AMD Radeon R9 290 or greater</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 7 GB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">caojingge4</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/42762/](https://lad.sfcrom.cn/2024/03/42762/)

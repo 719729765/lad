@@ -1,0 +1,13 @@
+---
+title: "switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版nsp下载【含1.0.2补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版下载，这是一款面向女玩家的恋爱冒险游戏，这个系列是以吸血鬼为主题的，画风十分的精致，感兴趣的玩家不要错过。 　　女性向游戏品牌「Otomate」旗下作品，描述女主角与各式各样帅哥吸血鬼们恋爱故事的&hellip;"
+layout: post
+---
+
+ <p>　　switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版下载，这是一款面向女玩家的恋爱冒险游戏，这个系列是以吸血鬼为主题的，画风十分的精致，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=47999509&amp;bvid=BV1Gb411p7Gd&amp;cid=84082046&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98ac836ed.jpg" alt="switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版nsp下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98ad3bae1.jpg" alt="switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版nsp下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98adde709.jpg" alt="switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版nsp下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98aea3531.jpg" alt="switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版nsp下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98af6f359.jpg" alt="switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版nsp下载【含1.0.2补丁】" /></td> </tr> </tbody> </table> <p>　　女性向游戏品牌「Otomate」旗下作品，描述女主角与各式各样帅哥吸血鬼们恋爱故事的女性向恋爱游戏《Diabolik Lovers》系列最新续作，也是官方将登场人物之间的关系全部修正后全新推出的「家族混合企划」最新关联作品。</p> <p>　　本作故事背景方面，主角为过去被霸王封印在教会内沉睡的女性，但随着霸王的死亡而再度醒来，并因此而被某个家族的人给带走&mdash;&mdash;那是一个极度歪斜，与一般世俗概念的兄弟关系完全不同的吸血鬼家族，彼此为了争夺鲜血而纷争不断，而随着女主角的出现，一场争夺夏娃的混乱命运即将就此揭开序幕&mdash;&mdash;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98afc5b90.png" width="448" alt="switch《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版nsp下载【含1.0.2补丁】" /></p> <p>　　以上内容就是小编为大家带来的《魔鬼恋人 混乱族谱 DIABOLIK LOVERS CHAOS LINEAGE》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">ba4kp</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110773/](https://lad.sfcrom.cn/2024/04/110773/)

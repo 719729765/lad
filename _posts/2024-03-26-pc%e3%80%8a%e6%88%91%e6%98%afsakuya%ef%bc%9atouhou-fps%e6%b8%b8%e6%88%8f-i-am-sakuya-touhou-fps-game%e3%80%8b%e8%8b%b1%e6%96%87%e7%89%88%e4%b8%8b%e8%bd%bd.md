@@ -1,0 +1,13 @@
+---
+title: "PC《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版下载，这是一款第一人称射击游戏，东方的同人游戏，画风比较的复古，喜欢东方系列的玩家可以尝试一下。 　　游戏类型：第一人称射击类(FPS)游戏 　　游戏制作：Sigyaad Team &hellip;"
+layout: post
+---
+
+ <p>　　PC《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版下载，这是一款第一人称射击游戏，东方的同人游戏，画风比较的复古，喜欢东方系列的玩家可以尝试一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="410" scrolling="no" src="//player.bilibili.com/player.html?aid=858098578&amp;bvid=BV1xV4y1M7ct&amp;cid=832281552&amp;page=1" width="400"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034fd12de91.jpg" alt="PC《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034fd277ebd.jpg" alt="PC《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034fd2f1477.jpg" alt="PC《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034fd365a78.jpg" alt="PC《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：第一人称射击类(FPS)游戏</p> <p>　　游戏制作：Sigyaad Team</p> <p>　　游戏发行：Sigyaad Team</p> <p>　　在这款完美融合了子弹地狱和FPS的游戏中，当你通过10个美丽的关卡时，要躲避子弹，射击敌人，甚至停止时间。揭开佐久间的过去，调查猩红吸血鬼居住的豪宅，在这个东宝项目的方块游戏中!</p> <p>　　闪避子弹，射击敌人，甚至停止时间，在这个完美融合了子弹地狱和FPS的10个美丽关卡中导航。揭开坂屋&middot;伊扎伊过去的起源，并调查猩红色吸血鬼居住的豪宅，这是Touhou项目Fangame!</p> <p>　　游戏特色</p> <p>　　激烈的FPS游戏与子弹地狱的完美组合!没有廉价的hitscan敌人!只是纯粹的射击和躲避技能!</p> <p>　　停止时间，消灭你的敌人!</p> <p>　　史诗般的boss战斗将考验你的反应能力!</p> <p>　　一个多姿多彩的演员阵容，展示了投后项目的最爱!</p> <p>　　一个令人敬畏的配乐，让你的肾上腺素在整个游戏中泵!</p> <p>　　独特的武器，适用于几乎任何情况，如弹跳刀!</p> <p>　　我们有一个四管猎枪在游戏中!!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7/8/10/11</p> <p>　　处理器: Dual Core Processor</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: Integrated Graphics Card</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《我是Sakuya：Touhou FPS游戏 I Am Sakuya: Touhou FPS Game》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">zsh123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39324/](https://lad.sfcrom.cn/2024/03/39324/)

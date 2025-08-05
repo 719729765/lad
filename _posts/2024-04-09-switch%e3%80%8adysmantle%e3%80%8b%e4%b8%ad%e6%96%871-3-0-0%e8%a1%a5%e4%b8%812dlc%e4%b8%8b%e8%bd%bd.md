@@ -1,0 +1,13 @@
+---
+title: "switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载，这是一款以生存为目标的冒险游戏，玩家要在一个开放的地图上探索，收集资源建立自己的基地，同四周的野兽战斗。喜欢开放世界生存游戏的玩家不要错过哦。 　　《DYSMANTLE》这是一款开放世界动作类角色扮演游戏，玩家所扮演的角色需要从&hellip;"
+layout: post
+---
+
+ <p>switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载，这是一款以生存为目标的冒险游戏，玩家要在一个开放的地图上探索，收集资源建立自己的基地，同四周的野兽战斗。喜欢开放世界生存游戏的玩家不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=810369006&amp;bvid=BV1934y1s7P2&amp;cid=564035206&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550264ea2d.webp" alt="switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66155026b5dac.webp" alt="switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550271bb35.webp" alt="switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550279ed3c.webp" alt="switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615502802c66.webp" alt="switch《DYSMANTLE》中文1.3.0.0补丁+2DLC下载" /></td> </tr> </tbody> </table> <p>　　《DYSMANTLE》这是一款开放世界动作类角色扮演游戏，玩家所扮演的角色需要从一座充满怪物的小岛上离开。在游戏过程中，玩家可以探索世界、与怪物战斗、烹饪、狩猎、种植、钓鱼、为自己的栖身之所建造哨站、解决古墓中的谜题。</p> <p>　　《Dysmantle》的游戏中将会包含丰富的生存元素。玩家在游戏中可以通过破坏道具来获得相应的材料，才制作与道具。当然在这个末日后的世界中玩家也会遇到众多变异的生物，比如丧尸、变异的狼等等。同时《Dysmantle》还采用了生存游戏常用的日夜更替的游戏模式，在游戏中玩家将会按照每天的时间单位来进行游戏，能够在这个末日中存活多少天，就要看你的求生能力了。</p> <p>　　游戏特色</p> <p>　　使用正确的工具打破99%的材料对象。 没有障碍会阻止你。</p> <p>　　与后世界末日时代的讨厌和卑鄙的生物作斗争(或逃跑)。</p> <p>　　探索手工制作的开放世界，揭开其神秘面纱。</p> <p>　　生存。 明确的怪物区域并声称它是你的。</p> <p>　　建立前哨站以建立您的存在。</p> <p>　　制作永久性武器，工具，服装和小装饰品。</p> <p>　　寻找危险的游戏或为你的后世界末日动物园牧场驯服它们。</p> <p>　　当农作物成熟时，种植外来植物并获得回报。</p> <p>　　在Old Ones的墓穴中解决地上和地下的难题</p> <p>　　鱼在水面下狡猾的鳞状物。</p> <p>　　烹饪美味的食谱，永久统计和能力升级。</p> <p>　　以上内容就是小编为大家带来的《DYSMANTLE》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">laokuangkm</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144791/](https://lad.sfcrom.cn/2024/04/144791/)

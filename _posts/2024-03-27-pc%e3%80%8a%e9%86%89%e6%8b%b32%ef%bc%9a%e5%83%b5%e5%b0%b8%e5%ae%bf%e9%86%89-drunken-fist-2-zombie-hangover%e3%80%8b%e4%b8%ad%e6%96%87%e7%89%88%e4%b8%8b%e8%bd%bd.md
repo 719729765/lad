@@ -1,0 +1,13 @@
+---
+title: "PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载，这是一款3D的动作冒险游戏，玩家要扮演一个醉汉在城市中打僵尸，趣味性很强的游戏，感兴趣的玩家不妨来体验看看哦。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：DEKLAZON 　　游戏发行：&hellip;"
+layout: post
+---
+
+ <p>　　PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载，这是一款3D的动作冒险游戏，玩家要扮演一个醉汉在城市中打僵尸，趣味性很强的游戏，感兴趣的玩家不妨来体验看看哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b6696e1d.jpg" alt="PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b673424b.jpg" alt="PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b67a902d.jpg" alt="PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b6843a8b.jpg" alt="PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b68c2f5b.jpg" alt="PC《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：DEKLAZON</p> <p>　　游戏发行：Eastasiasoft Limited</p> <p>　　《Drunken Fist 2: Zombie Hangover》充斥着以轻松的低多边形风格展现的血腥和断肢场面，是一款具有怪诞色彩的生存恐怖游戏，采用基于物理机制的清版动作和布娃娃式格斗&mdash;&mdash;清醒的玩家都不会拿它当回事。现在该一瓶接一瓶地畅饮了，同时寻找食物维持体能，让自己的战力略强于那些蠢蠢而动的亡灵对手。当然，你也少不了偶尔吃个狗啃地。</p> <p>　　那醉醺醺的憨态风风火火地重返你的眼帘，让你在《Drunken Fist 2: Zombie Hangover》中继续体验宿醉者的乐趣!在一个遍地亡灵的城市里醒来，你的任务是跌跌撞撞地穿过街道，以那种只有在醉酒麻木状态下才会有的无畏放纵痛击丧尸。</p> <p>　　游戏特点：</p> <p>　　扮演一个宿醉的醉汉，在一场丧尸浩劫中生存下来!</p> <p>　　以独特的手段击败形形色色的敌人。</p> <p>　　探索广阔的场景，收集酒瓶和食物!</p> <p>　　不断倒下，不断地爬起来战斗。</p> <p>　　在城市街道上，或你站着的任何地方，对着敌人尿尿!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows XP</p> <p>　　处理器: Quad-core Intel or AMD processor, 2.5 GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: NVIDIA GeForce 470 GTX or AMD Radeon 6870 HD series card</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《醉拳2：僵尸宿醉 Drunken Fist 2 Zombie Hangover》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">youxinianluner12345</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53159/](https://lad.sfcrom.cn/2024/03/53159/)

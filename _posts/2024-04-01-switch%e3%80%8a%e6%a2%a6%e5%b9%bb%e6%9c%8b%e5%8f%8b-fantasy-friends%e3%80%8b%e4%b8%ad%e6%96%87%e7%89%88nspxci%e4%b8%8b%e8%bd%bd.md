@@ -1,0 +1,13 @@
+---
+title: "switch《梦幻朋友 Fantasy Friends》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《梦幻朋友 Fantasy Friends》中文版下载。这是一款模拟游戏，可以在游戏中与各种奇怪的小动物交流，并于它们成为朋友。游戏发生在一个童话般的世界，我们接受委托来照顾这些可爱的宠物朋友们。 &nbsp; 　　欢迎来到《Fantasy Friends》，一个魔法与梦幻横溢的天地&hellip;"
+layout: post
+---
+
+ <p>　　switch《梦幻朋友 Fantasy Friends》中文版下载。这是一款模拟游戏，可以在游戏中与各种奇怪的小动物交流，并于它们成为朋友。游戏发生在一个童话般的世界，我们接受委托来照顾这些可爱的宠物朋友们。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center">&nbsp;</td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0699e95d1.webp" alt="switch《梦幻朋友 Fantasy Friends》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a069a53e83.webp" alt="switch《梦幻朋友 Fantasy Friends》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a069aa92d8.webp" alt="switch《梦幻朋友 Fantasy Friends》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a069b0c0e6.webp" alt="switch《梦幻朋友 Fantasy Friends》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　欢迎来到《Fantasy Friends》，一个魔法与梦幻横溢的天地。</p> <p>　　游戏发生在一座美轮美奂的梦幻森林，一个什么事都有可能发生的地方!你在魔法仙子奥瑞尔的帮助下将照顾12个可爱的新宠物朋友!照料它们并确保它们所需要的爱你通通都给它们。如果你这么做了，你的宠物们就会长大并且跟你玩!你照管它们得越多，让他们处于健康快乐的状态，你就会挣得更多的魔力。用你的魔力获得新动物，给它们买新衣服，甚至更加酷炫的玩具给它们玩，还可以借助超级有趣的什物来装饰森林!</p> <p>　　邂逅12个特立独行的动物，有飞天熊猫，有彩虹独角兽，你会喜欢拥抱它们，喜欢跟它们玩。它们每个只要一诞生，就会需要你的注意力。</p> <p>　　游戏特色</p> <p>　　&bull;每个动物都需要一种独特的食物，你不得不生产。它们每个都住在它们自己的屋子里，有一个最喜欢的原创游戏。在一一结识这些动物的过程中收获乐趣吧!</p> <p>　　&bull;为你的宠物搜集上千种颜色和皮肤。挑战你的朋友，看谁拥有最独特的动物。成为第一个找到最罕见动物的人!</p> <p>　　&bull;获得炫酷的配件(帽子、太阳镜、丝带等)，对你的每个宠物进行自定义!</p> <p>　　&bull;根据你自己的风格用华丽亮堂的建筑物、琼花仙草和魔法物品来装饰森林 !份份惊喜等着你。</p> <p>　　&bull;任意的魔法事件随时都可能发生&hellip;你可以挣得更多的魔力，甚至获得专享皮肤!</p> <p><h4>下载地址(由网友<font color="red">HERBT115</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100299/](https://lad.sfcrom.cn/2024/04/100299/)

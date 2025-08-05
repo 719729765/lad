@@ -1,0 +1,13 @@
+---
+title: "switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含16.0.2补丁+273DLC】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含v16.0.0+273个DLC+金手指+MOD合集】，曙光是怪物猎人崛起推出的超大型资料片，为玩家带来了更家丰富的武器装备和怪物种类，喜欢怪猎的玩家不要错过。 　　通过这个超大型追加内容，《MO&hellip;"
+layout: post
+---
+
+ <p>switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含v16.0.0+273个DLC+金手指+MOD合集】，曙光是怪物猎人崛起推出的超大型资料片，为玩家带来了更家丰富的武器装备和怪物种类，喜欢怪猎的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=684946893&amp;bvid=BV1vU4y1R78q&amp;cid=746427348&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec1f4fd9b.webp" alt="switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含16.0.2补丁+273DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec1fc3c06.webp" alt="switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含16.0.2补丁+273DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec205ba00.webp" alt="switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含16.0.2补丁+273DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec20ccea2.webp" alt="switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含16.0.2补丁+273DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec214eb63.webp" alt="switch《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版下载【含16.0.2补丁+273DLC】" /></td> </tr> </tbody> </table> <p>　　通过这个超大型追加内容，《MONSTER HUNTER RISE》的世界将变得更广阔和更有乐趣。</p> <p>　　新的怪物和原野正在等候猎人们的来临!</p> <p>　　游戏介绍</p> <p>　　・追查王国异变的新故事</p> <p>　　为了查明在远洋以外的王国发生异变的原因，身为人称炎火村的&ldquo;烈焰&rdquo;的猎人，你将会来到全新的舞台!</p> <p>　　・个性独特的新怪物</p> <p>　　栖息于在新舞台&ldquo;观测据点埃尔迦德&rdquo;的所在地──王国附近的&ldquo;王域生物&rdquo;：爵银龙、冰狼龙和刚缠兽引发了异变!?</p> <p>　　未有于《MONSTER HUNTER RISE》登场的受欢迎怪物和亚种怪物将会露面!</p> <p>　　・ &ldquo;铁虫丝技&rdquo;追加新动作</p> <p>　　为运用翔虫的各个武器种类专用招式追加新动作。狩猎将会变得更自由和更深奥!</p> <p>　　・新据点和丰富多彩的角色</p> <p>　　&ldquo;观测据点埃尔迦德&rdquo;内集合著各具个性的角色们。为了调查&ldquo;王域生物&rdquo;而聚集到观测据点的人们各自胸怀不同的想法，时而寻求猎人的帮助，时而为猎人伸出援手。</p> <p>　　以上内容就是小编为大家带来的《怪物猎人崛起：曙光 Monster Hunter Rise Sunbreak》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">dck123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/121550/](https://lad.sfcrom.cn/2024/04/121550/)

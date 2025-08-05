@@ -1,0 +1,13 @@
+---
+title: "switch《睡衣小英雄：黑夜英雄 PJ MASKS HEROES OF THE NIGHT》中文版1.0.2补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《睡衣小英雄：黑夜英雄 PJ MASKS: HEROES OF THE NIGHT》中文版下载，这是一款卡通风格的动作冒险类游戏，根据同名动画改编而来，感兴趣的玩家不要错过。 　　《睡衣小英雄：黑夜英雄》(PJ Masks Heroes of the Night)是一款Outrigh&hellip;"
+layout: post
+---
+
+ <p>　　switch《睡衣小英雄：黑夜英雄 PJ MASKS: HEROES OF THE NIGHT》中文版下载，这是一款卡通风格的动作冒险类游戏，根据同名动画改编而来，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=462139232&amp;bvid=BV1wL411H7aR&amp;cid=383212145&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c8cef570.jpg" alt="switch《睡衣小英雄：黑夜英雄 PJ MASKS HEROES OF THE NIGHT》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c8d6f371.jpg" alt="switch《睡衣小英雄：黑夜英雄 PJ MASKS HEROES OF THE NIGHT》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c8de9530.jpg" alt="switch《睡衣小英雄：黑夜英雄 PJ MASKS HEROES OF THE NIGHT》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c8e8ab93.jpg" alt="switch《睡衣小英雄：黑夜英雄 PJ MASKS HEROES OF THE NIGHT》中文版1.0.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c8f03c8d.jpg" alt="switch《睡衣小英雄：黑夜英雄 PJ MASKS HEROES OF THE NIGHT》中文版1.0.2补丁下载" /></td> </tr> </tbody> </table> <p>　　《睡衣小英雄：黑夜英雄》(PJ Masks Heroes of the Night)是一款Outright Games制作的卡通平台冒险游戏，游戏操作简单容易上手，包含来自动画中粉丝们非常熟悉的8个游戏关卡，并且还有隐藏的道具等待你的发现。</p> <p>　　化身猫小子、猫头鹰和壁虎，用你的超能力探索睡衣面具的世界。你能阻止恶棍罗密欧、露娜女孩和夜忍者吗?</p> <p>　　谁进入黑夜拯救白天?你做!</p> <p>　　穿上你的睡衣，在迄今为止最激动人心的睡衣面具游戏中成为猫小子、猫头鹰和壁虎。从任务控制总部出发，踏上小英雄的平台冒险之旅。使用你的超能力&mdash;&mdash;比如猫小子的速度、猫头鹰的飞行和壁虎的肌肉&mdash;&mdash;来阻止夜间的坏人。探索八个 PJ Masks 地点，从神秘山一直到月球!在 PJ Robot 的帮助下，您会发现一个充满友谊、团队合作和秘密收藏品的世界。</p> <p>　　游戏特色</p> <p>　　你能从罗密欧、露娜女孩和夜忍者手中拯救世界吗?</p> <p>　　成为英雄 - 扮演猫男孩、猫头鹰和壁虎探索</p> <p>　　世界 - 参观 8 个熟悉的 PJ 面具地点</p> <p>　　安全游戏 - 使用专为小英雄设计的控件</p> <p>　　阻止坏人&mdash;&mdash;从罗密欧、露娜女孩、夜忍者等人那里拯救一天</p> <p>　　搜索收藏品&mdash;&mdash;找到很多很酷的隐藏物品。</p> <p>以上内容就是小编为大家带来的《睡衣小英雄：黑夜英雄 PJ MASKS HEROES OF THE NIGHT》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">LeeGao</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144936/](https://lad.sfcrom.cn/2024/04/144936/)

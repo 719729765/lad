@@ -1,0 +1,13 @@
+---
+title: "switch《灰色幻影扳机 GRISAIA PHANTOM TRIGGER》1~5.5合集中文版nsp/xci下载"
+date: 2024-04-04
+tags: []
+categories: ["ns合集"]
+excerpt: "　　switch《灰色幻影扳机&nbsp;GRISAIA PHANTOM TRIGGER 》中文版下载。灰色系列最新作品这一作承袭了灰色系列的世界观，是《灰色的乐园》的后续作品，纯粹日系视觉小说游戏，没有任何分支路线 　　故事介绍 　　自从Arisaka Shiori在刺客学院Mihama当老师已经&hellip;"
+layout: post
+---
+
+ <p>　　switch《灰色幻影扳机&nbsp;GRISAIA PHANTOM TRIGGER 》中文版下载。灰色系列最新作品这一作承袭了灰色系列的世界观，是《灰色的乐园》的后续作品，纯粹日系视觉小说游戏，没有任何分支路线</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=243725866&amp;bvid=BV1Sv411B7Yu&amp;cid=208280511&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ec0a7ab775.jpg" alt="switch《灰色幻影扳机 GRISAIA PHANTOM TRIGGER》1~5.5合集中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ec0a83744d.jpg" alt="switch《灰色幻影扳机 GRISAIA PHANTOM TRIGGER》1~5.5合集中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ec0a8a6e37.jpg" alt="switch《灰色幻影扳机 GRISAIA PHANTOM TRIGGER》1~5.5合集中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ec0a93557b.jpg" alt="switch《灰色幻影扳机 GRISAIA PHANTOM TRIGGER》1~5.5合集中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ec0a9b8042.jpg" alt="switch《灰色幻影扳机 GRISAIA PHANTOM TRIGGER》1~5.5合集中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　故事介绍</p> <p>　　自从Arisaka Shiori在刺客学院Mihama当老师已经过去了三个月，她尽力地适应着新环境，似乎她的学生终于接受了她。</p> <p>　　&ldquo;她，呃，异常谦虚，有点笨拙。但她是真诚的，她尽力做好她所做的一切......&rdquo;</p> <p>　　&ldquo;我认为她是一位优秀的老师，但仅凭这一点并不能让她留在美滨。&rdquo;</p> <p>　　Arisaka将这种严酷的现实视为一个客观地看待自己的机会，通过与学生的深入对话了解真相。然而，某种噩梦继续困扰着她，就像一场疾病......</p> <p>　　一个女孩，其家人被烙上凶手的印记，像茧一样闭上了她的心......</p> <p>　　&ldquo;我很害怕...&rdquo;</p> <p>　　&ldquo;太害怕外面的世界。&rdquo;</p> <p>　　&ldquo;我该怎么办?&rdquo;</p> <p>　　&ldquo;我怎么能说服他们让我一个人呆着?&rdquo;</p> <p>　　&ldquo;我做了什么?请原谅我......&rdquo;</p> <p>　　很快，Arisaka将做出她生命中最重要的决定。</p> <p>　　&ldquo;你还想继续这份工作吗?&rdquo;</p> <p>　　她选择住哪个世界......?</p> <p>　　游戏特色</p> <p>　　丰富性的剧情内容，丰富性的游戏元素</p> <p>　　精彩有趣的游戏过程</p> <p>　　一部动态小说，没有任何分支路线</p> <p>　　形象立体的人物角色，都有各自的特色</p> <p>　　精致细腻的图画场景，唯美的游戏环境</p> <p><h4>下载地址(由网友<font color="red">cc154630360@163.com</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/129185/](https://lad.sfcrom.cn/2024/04/129185/)

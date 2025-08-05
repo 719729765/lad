@@ -1,0 +1,13 @@
+---
+title: "瓦拉几亚：吸血鬼领域 Wallachia:Reign of Dracula PC免安装英文版下载（迅雷）"
+date: 2024-03-27
+tags: []
+categories: ["2020年游戏"]
+excerpt: "　　瓦拉几亚：吸血鬼领域 Wallachia:Reign of Dracula PC免安装英文版下载。一款复古像素风格的横版动作闯关游戏。游戏中的世界蛮荒而恐怖，你是一个没落王国的公主，手持长剑长矛和弓箭，为了光复自己的祖国而踏上了危险致命的旅程。 　　游戏背景 　　1462年，距离弗拉德&amp;midd&hellip;"
+layout: post
+---
+
+ <p>　　瓦拉几亚：吸血鬼领域 Wallachia:Reign of Dracula PC免安装英文版下载。一款复古像素风格的横版动作闯关游戏。游戏中的世界蛮荒而恐怖，你是一个没落王国的公主，手持长剑长矛和弓箭，为了光复自己的祖国而踏上了危险致命的旅程。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=370191758&amp;bvid=BV1VZ4y1x7CR&amp;cid=177778827&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660441102bf3c.jpg" width="585" alt="瓦拉几亚：吸血鬼领域 Wallachia:Reign of Dracula PC免安装英文版下载（迅雷）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66044110a11ba.jpg" width="585" alt="瓦拉几亚：吸血鬼领域 Wallachia:Reign of Dracula PC免安装英文版下载（迅雷）" /></p> <p>　　游戏背景</p> <p>　　1462年，距离弗拉德&middot;德拉库拉王子(Vlad Dracula)开始他的第二次统治，已经过去了6个血腥的岁月。在1448年以前失去王位后，德古拉(Dracula)发誓这种事情不会再次发生。</p> <p>　　在流放多年之后，他于1456年重新掌权，并开始清除任何可能反对他的人。</p> <p>　　游戏主要角色包括基拉&middot;巴克兰(Kira Buckland)和罗伯特&middot;贝尔格莱德(Robert Belgrade)，该游戏还具有独特的配乐，以及以黑豹弗拉德(Vlad the Impaler)的历史为基础的故事，因此本作不是典型的吸血鬼神话。</p> <p>　　游戏着重描写了老德还是人类时的纯粹残忍，穿刺刑，发动战乱攻打邻国等等，给德古拉本来刻板的印象多了一些新意，这一点成为了整个游戏最重要的加分项。</p> <p>　　游戏特色</p> <p>　　1、包含7个关卡的平台闯关冒险;</p> <p>　　2、此外还具有大量的奖励内容和迷你游戏，以及来自《血腥仪式之夜》的可解锁跨界内容;</p> <p>　　3、玩家将扮演一位崭新的角色，一劳永逸地解决瓦拉吉亚王国的暴君统治者。</p> <p><h4>下载地址(由网友<font color="red">walteryu</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/62178/](https://lad.sfcrom.cn/2024/03/62178/)

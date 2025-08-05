@@ -1,0 +1,13 @@
+---
+title: "switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版下载，这是由著名游戏厂商&ldquo;戯画&rdquo;推出的一款恋爱冒险游戏，讲述了一个温馨的故事，喜欢这个类型游戏的玩家不要错过。 　　王立サンドリヨン学园。 　　主人公泷田骏介为了实&hellip;"
+layout: post
+---
+
+ <p>　　switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版下载，这是由著名游戏厂商&ldquo;戯画&rdquo;推出的一款恋爱冒险游戏，讲述了一个温馨的故事，喜欢这个类型游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=712761025&amp;bvid=BV15D4y1R7dm&amp;cid=255442548&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8bcce123a.jpg" alt="switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8bcdb0d1d.jpg" alt="switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8bce8aa8f.jpg" alt="switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8bcf60a42.jpg" alt="switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8bcff27ed.jpg" alt="switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版nsp下载" /></td> </tr> </tbody> </table> <p>　　王立サンドリヨン学园。</p> <p>　　主人公泷田骏介为了实现某个约定，进入了从士科。</p> <p>　　王侯科的学生有陪读的课外活动，从士科则要照顾各种各样的公主&hellip;&hellip;</p> <p>　　&ldquo;这么说，应该是错过了啊~ ~ ~&rdquo;</p> <p>　　在入学典礼的那天整了个活儿的骏介，仅仅半年就陷入了留级的危机。</p> <p>　　曾经的约定【贝尔纳多特 &middot; 亨利埃塔 &middot; 艾泽尔斯顿】，王弟的秘密私生女【亨利=弗朗西斯 &middot; 拉 &middot; 贝尔纳尔德】，用神秘的语言说话的大企业的大小姐【佐々良織姫】，保守的同班同学【城釜奈緒美】</p> <p>　　在很多人的帮助下，骏介以成为一名合格的随从为目标。 是的，一切都只是为了那个&ldquo;约定&rdquo;。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8bd04eba2.png" width="537" alt="switch《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版nsp下载" /></p> <p>　　以上内容就是小编为大家带来的《ガラス姫と鏡の従者 Glass princess and mirror servant》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">r12128</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111244/](https://lad.sfcrom.cn/2024/04/111244/)

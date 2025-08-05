@@ -1,0 +1,13 @@
+---
+title: "switch《隐迹渐现 Pentiment》中文修正补丁"
+date: 2024-04-09
+tags: []
+categories: ["游戏mod"]
+excerpt: "　　switch《Pentiment》中文版nsz下载 　　本作由Obsidian负责制作，是一部历史题材的角色扮演游戏，极具神秘气息，内容注重刻画人物的成长，画面极具艺术美感，并且会根据玩家的决定呈现出不同的剧情发展，肯定能让您沉浸其中，难以自拔。 　　以上就是小编给大家带来的全部内容啦，更多信息&hellip;"
+layout: post
+---
+
+ <p>　　switch《Pentiment》中文版nsz下载</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=690247302&amp;bvid=BV1v24y1y7eX&amp;cid=893468196&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661505e7997dc.webp" width="700" alt="switch《隐迹渐现 Pentiment》中文修正补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661505e803ef0.webp" width="700" alt="switch《隐迹渐现 Pentiment》中文修正补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661505e8559c8.webp" width="700" alt="switch《隐迹渐现 Pentiment》中文修正补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661505e8add93.webp" width="700" alt="switch《隐迹渐现 Pentiment》中文修正补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661505e9138ce.webp" width="700" alt="switch《隐迹渐现 Pentiment》中文修正补丁" /></p></div> <p>　　本作由Obsidian负责制作，是一部历史题材的角色扮演游戏，极具神秘气息，内容注重刻画人物的成长，画面极具艺术美感，并且会根据玩家的决定呈现出不同的剧情发展，肯定能让您沉浸其中，难以自拔。</p> <p>　　以上就是小编给大家带来的全部内容啦，更多信息资讯还请大家持续关注游戏年轮呦~</p> <p><h4>下载地址(由网友<font color="red">hzk001</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/141289/](https://lad.sfcrom.cn/2024/04/141289/)

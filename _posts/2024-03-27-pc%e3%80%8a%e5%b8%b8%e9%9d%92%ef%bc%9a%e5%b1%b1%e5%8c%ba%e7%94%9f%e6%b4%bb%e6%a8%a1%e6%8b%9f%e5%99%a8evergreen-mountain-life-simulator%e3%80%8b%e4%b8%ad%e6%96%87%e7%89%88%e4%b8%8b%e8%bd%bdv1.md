@@ -1,0 +1,13 @@
+---
+title: "PC《常青：山区生活模拟器/Evergreen &#8211; Mountain Life Simulator》中文版下载v1.1.2"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2，Evergreen 是一款关于摆脱城市压力，在山谷中开始新生活的模拟游戏。 　　Evergreen 是一款关于摆脱城市压力，在山谷中开始新生活的模拟游戏。 　　这个模拟游戏&hellip;"
+layout: post
+---
+
+ <p>　　PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2，Evergreen 是一款关于摆脱城市压力，在山谷中开始新生活的模拟游戏。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=487896432&amp;bvid=BV1QN411U7PJ&amp;cid=1184188967&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bb4db7125.webp" width="700" alt="PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bb4e18386.webp" width="700" alt="PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bb4e99d50.webp" width="700" alt="PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bb4f18c70.webp" width="700" alt="PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bb4f7d5aa.webp" width="700" alt="PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bb4ff0ea7.webp" width="700" alt="PC《常青：山区生活模拟器/Evergreen - Mountain Life Simulator》中文版下载v1.1.2" /></p></div> <p>　　Evergreen 是一款关于摆脱城市压力，在山谷中开始新生活的模拟游戏。</p> <p>　　这个模拟游戏的目的是让人放松和平静的体验。用自己的双手建造房子，收集大自然提供的资源，到小村庄去卖掉你不需要的东西，在商店里购买用品，欣赏大自然的奇迹。</p> <p>　　- 建造你的家 -</p> <p>　　深入但直观的建筑系统。建造你的完全定制的小屋，这样你就可以在山中舒适地生活。</p> <p>　　选择从现在开始将成为你的家的形状、大小和材料。</p> <p>　　在附近的村庄购买家具和电器，并根据自己的喜好装饰每个角落。</p> <p>　　- 狩猎和收集材料 -</p> <p>　　猎杀动物，砍伐树木，寻找山中可以提供的资源。利用这些资源建造自己的住所，并通过出售木材、动物皮毛或其他材料赚钱。</p> <p>　　- 在村里购买资源 -</p> <p>　　用你的车前往附近的一个小村庄。</p> <p>　　将你收集的原材料卖给当地的工匠。</p> <p>　　参观商店，购买一切你需要的东西，使你在野外的生活更加舒适。小屋的家具、过冬的食物、打猎的武器、电器、汽油以及更多。</p> <p>　　- 动态环境 -</p> <p>　　采用虚幻引擎5的最先进的图形。</p> <p>　　探索一个具有昼夜循环和四季变化的动态世界。让自己沉浸在一个逼真而美丽的山谷中，让你逃离城市的喧嚣，过上更安静、更简单的生活。</p> <p><h4>下载地址(由网友<font color="red">wind999</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51367/](https://lad.sfcrom.cn/2024/03/51367/)

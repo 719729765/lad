@@ -1,0 +1,13 @@
+---
+title: "PC《大衮 Dagon by H. P. Lovecraft》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《大衮 Dagon by H. P. Lovecraft》中文版下载，这是一款克苏鲁题材的冒险解谜游戏，是根据著名的克系小说《DAGON》改编的，玩家可以通过游戏体验小说的精彩剧情，感兴趣的玩家不要错过。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Bit Golem 　　游戏发行&hellip;"
+layout: post
+---
+
+ <p>　　PC《大衮 Dagon by H. P. Lovecraft》中文版下载，这是一款克苏鲁题材的冒险解谜游戏，是根据著名的克系小说《DAGON》改编的，玩家可以通过游戏体验小说的精彩剧情，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=720640713&amp;bvid=BV18Q4y1z7bd&amp;cid=414840751&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d5732edc.webp" alt="PC《大衮 Dagon by H. P. Lovecraft》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d578fdd4.webp" alt="PC《大衮 Dagon by H. P. Lovecraft》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d57d7b48.webp" alt="PC《大衮 Dagon by H. P. Lovecraft》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d583da37.webp" alt="PC《大衮 Dagon by H. P. Lovecraft》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Bit Golem</p> <p>　　游戏发行：Bit Golem</p> <p>　　《Dagon》是基于宇宙悲观主义和怪奇小说大师H&middot;P&middot;洛夫克拉夫特所著的同名邪短篇小说开发的一部疯狂3D叙述体验。这是一扇通往他颇有争议的才华和他备受推崇的克苏鲁神话世界的交互式传送门，同时对新老爱好者开放。</p> <p>　　变化发生在我沉睡之际。</p> <p>　　扮演一位当过船长的瘾君子，潜入吸毒者思想的冥河深渊。揭开在遥远的怪诞之岛上一段不可名状且尘封已久的可怕故事，沉浸在洛夫克拉夫特式的恐怖之中。</p> <p>　　那时候我应该是疯了。</p> <p>　　那么，请坐在屏幕前的您放轻松，或是戴上您的虚拟现实设备，在这个100%忠实于原著的改编游戏中亲身体验宇宙的恐怖。体验只需要30分钟，但你可能永远无法直视海洋了。</p> <p>　　游戏特色：</p> <p>　　可以沉浸于带有全程语音的实时3D叙述式体验中</p> <p>　　探索克苏鲁神话的起源，以及H&middot;P&middot;洛夫克拉夫特的扭曲世界</p> <p>　　尽情享受短暂而免费的30分钟恐怖体验</p> <p>　　游玩同时，还可以了解故事原著、作者以及他们对文化的影响等</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7/8/8.1/10 (x64)</p> <p>　　处理器: Core i5-2400 or Ryzen 3 1200</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: NVIDIA GTX 660 2GB VRAM or equivalent (GTX 970 for VR)</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《大衮 Dagon by H. P. Lovecraft》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">hutehagan</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52812/](https://lad.sfcrom.cn/2024/03/52812/)

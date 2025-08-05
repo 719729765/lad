@@ -1,0 +1,13 @@
+---
+title: "switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版1.1.2补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版下载，这是一款健身游戏，玩家随着游戏中的节奏做出各种健身动作，需要健身游戏的玩家可以来关注一下。 　　该作为由日本知名医疗健康软件 FiNC 监修的健身游戏，以拳击、空手道、泰拳和功夫等各种武术的动作&hellip;"
+layout: post
+---
+
+ <p>　　switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版下载，这是一款健身游戏，玩家随着游戏中的节奏做出各种健身动作，需要健身游戏的玩家可以来关注一下。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=675015892&amp;bvid=BV1mU4y1E7L7&amp;cid=397044420&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153782a0ebd.jpg" alt="switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版1.1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661537832be32.jpg" alt="switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版1.1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661537839d857.jpg" alt="switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版1.1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153784242db.jpg" alt="switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版1.1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615378494667.jpg" alt="switch《节奏健身 HOME FiT Rhythm Fitness HOME FiT》中文版1.1.2补丁下载" /></td> </tr> </tbody> </table> <p>　　该作为由日本知名医疗健康软件 FiNC 监修的健身游戏，以拳击、空手道、泰拳和功夫等各种武术的动作为基础，包含 60 门课程，结合有氧运动和训练平衡整个身体的力量，提供给想在家中健身的用户达成高脂肪燃烧的效果。</p> <p>　　游戏介绍</p> <p>　　- 以格斗为基础的「节奏」健身游戏!</p> <p>　　《节奏健身 HOME FiT》是以拳击、空手道、泰拳、功夫等各种格斗运动为基础，将减肥效果卓越的有氧运动和全身肌肉运动相结合的健身游戏。另外，只要随着EDM、欧陆节拍、铁克诺、爵士乐、嘻哈等25种BGM节奏，并跟着教练的动作就可以轻松地游玩本游戏。</p> <p>　　- 和4名教练一起用中文配音进行健身!</p> <p>　　与4名个性不同的各人教练一起运动，时而严格时而亲切，帮助玩家继续运动。4名教练Alice、Christie、Matilda、Kevin皆由专业配音员录制中文语音，而且不仅中文，日后预计推出英文字幕及语音。</p> <p>　　- 针对各种不同目的的游戏模式</p> <p>　　玩家可以进行「个人训练」和「3分钟健身」两种游戏模式，只要设定运动的目的、作用部位、运动时间，每天就能有系统地进行相应的训练课程。另外，为了因应运动时间不足的情况，利用「3分钟健身」便可随时随地轻松地进行训练。还搭载了「伸展运动」模式，为了能安全地进行健身，在正式运动前利用本功能，便能避免受伤，并舒缓身体。</p> <p>　　- 检查训练成果并进行管理!</p> <p>　　利用「我的报告」功能，每天都可以确认训练的成果。在档案中以填入的体重和身高为基础计算出的消耗热量，可以透过每週/月/年等图表来确认，并且经由日历功能可以确认运动日的记录，一眼就能掌握身体的变化。</p> <p><h4>下载地址(由网友<font color="red">hyj007</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144290/](https://lad.sfcrom.cn/2024/04/144290/)

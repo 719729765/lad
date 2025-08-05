@@ -1,0 +1,13 @@
+---
+title: "switch《东京24区：祈 Tokyo 24th Ward -Prayer-》正式版日文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《东京24区：祈 Tokyo 24th Ward -Prayer-》日文版下载，这是一款冒险解谜玩法的游戏，主角是一名侦探，他卷入了一个复杂的案件之中。对这款游戏感兴趣的玩家不妨来体验游戏吧。 　　《东京24区：祈》最早曾经于2020年5月登陆PC平台发售，本作是一款2D卡通风格的侦&hellip;"
+layout: post
+---
+
+ <p>　　switch《东京24区：祈 Tokyo 24th Ward -Prayer-》日文版下载，这是一款冒险解谜玩法的游戏，主角是一名侦探，他卷入了一个复杂的案件之中。对这款游戏感兴趣的玩家不妨来体验游戏吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=211934666&amp;bvid=BV1Aa411h7SB&amp;cid=540259846&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f58aa17d.webp" alt="switch《东京24区：祈 Tokyo 24th Ward -Prayer-》正式版日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f5929d08.webp" alt="switch《东京24区：祈 Tokyo 24th Ward -Prayer-》正式版日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f5998a38.webp" alt="switch《东京24区：祈 Tokyo 24th Ward -Prayer-》正式版日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f5a02d49.webp" alt="switch《东京24区：祈 Tokyo 24th Ward -Prayer-》正式版日文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f5a71235.webp" alt="switch《东京24区：祈 Tokyo 24th Ward -Prayer-》正式版日文版nsp下载" /></td> </tr> </tbody> </table> <p>　　《东京24区：祈》最早曾经于2020年5月登陆PC平台发售，本作是一款2D卡通风格的侦探解谜游戏，玩家需要在游戏中扮演一个著名侦探，因为一次意外卷入到一个汽车炸弹案之中，因为这个案件牵扯到了竞选议员，所以其中的水非常深，你需要根据自己的智慧和对案件的掌控，搜集线索，找到突破口，锁定嫌疑人，排除万难将其抓捕归案!</p> <p>　　游戏介绍</p> <p>　　1、这是一款开放性剧情的解谜游戏，你的选择能够改变游戏的进程和最终结局;</p> <p>　　2、所以在做每一个决定之前，考虑一下后面的剧情，从而做出正确的选择;</p> <p>　　3、游戏画风相当不错，角色立绘也是非常讨喜，超多帅哥美女，性格塑造也很饱满!</p> <p>　　以上内容就是小编为大家带来的《东京24区：祈 Tokyo 24th Ward -Prayer-》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">janus137</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110346/](https://lad.sfcrom.cn/2024/04/110346/)

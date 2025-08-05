@@ -1,0 +1,13 @@
+---
+title: "switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版nsp/xci整合版下载【含1.0.3补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版下载，彩虹伊格德拉西尔是一款移植自手机平台的策略游戏，结合了roguelike和战棋的玩法还是很有趣的，喜欢策略战棋的玩家可以来看看。 　　彩虹伊格德拉西尔(Rainbow Yggdrasil)是一款融合了Roguelik&hellip;"
+layout: post
+---
+
+ <p>　　switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版下载，彩虹伊格德拉西尔是一款移植自手机平台的策略游戏，结合了roguelike和战棋的玩法还是很有趣的，喜欢策略战棋的玩家可以来看看。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=202133103&amp;bvid=BV1Lh411X78m&amp;cid=238496922&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fc717dc16.jpg" alt="switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版nsp/xci整合版下载【含1.0.3补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fc71d3cc5.jpg" alt="switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版nsp/xci整合版下载【含1.0.3补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fc72518d9.jpg" alt="switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版nsp/xci整合版下载【含1.0.3补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fc72b927c.jpg" alt="switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版nsp/xci整合版下载【含1.0.3补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fc731ddfc.jpg" alt="switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版nsp/xci整合版下载【含1.0.3补丁】" /></td> </tr> </tbody> </table> <p>　　彩虹伊格德拉西尔(Rainbow Yggdrasil)是一款融合了Roguelike元素的地牢战棋策略游戏，战略战棋游戏，游戏基于地下城Roguelike元素，控制女孩与怪物战斗，同时收集不同颜色元素，你的技能和动作会随着最终颜色效果的呈现而改变，要注意敌人的特点，部署不同颜色的攻击，有针对性地击败对手。</p> <p>　　游戏特色</p> <p>　　总共包含30个地牢，让你在游戏中获得更多的玩法;</p> <p>　　计划专门添加地牢可以让玩家们持续在游戏中进行挑战;</p> <p>　　可以在脚本模式下享受超过10个小时的内容。</p> <p>　　挑战不同关卡，成功可以获得相应的星星奖励，能够解锁更多实用道具;</p> <p>　　唯一一款游戏中体验堆叠的快乐，让心情愉悦和兴奋;</p> <p>　　角色人物设计简单，一起奔跑解锁更多关卡内容，画面质感流畅。</p> <p align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fc7365e91.png" style="width: 368px; height: 135px;" alt="switch《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版nsp/xci整合版下载【含1.0.3补丁】" /></p> <p>　　以上内容就是小编为大家带来的《彩虹伊格德拉西尔 Rainbow Yggdrasil》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">阿飞3330</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101594/](https://lad.sfcrom.cn/2024/04/101594/)

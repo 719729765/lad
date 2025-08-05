@@ -1,0 +1,13 @@
+---
+title: "PC《建立自己的王国 Make Your Kingdom》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《建立自己的王国 Make Your Kingdom》中文版下载，这是一款模拟经营类型的游戏，玩家的任务是建造和管理一座城市，在发展的同时，你还要小心的防御出现在四周的危险。 　　类型:独立,模拟,策略 　　开发商:yo_serjio 　　发行商:yo_serjio 　　Make Your &hellip;"
+layout: post
+---
+
+ <p>　　PC《建立自己的王国 Make Your Kingdom》中文版下载，这是一款模拟经营类型的游戏，玩家的任务是建造和管理一座城市，在发展的同时，你还要小心的防御出现在四周的危险。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=334875815&amp;bvid=BV1UA411w7gb&amp;cid=392431271&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660395b685967.jpg" alt="PC《建立自己的王国 Make Your Kingdom》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660395b6ec157.jpg" alt="PC《建立自己的王国 Make Your Kingdom》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660395b767c55.jpg" alt="PC《建立自己的王国 Make Your Kingdom》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660395b7e0d5b.jpg" alt="PC《建立自己的王国 Make Your Kingdom》中文版下载" /></td> </tr> </tbody> </table> <p>　　类型:独立,模拟,策略</p> <p>　　开发商:yo_serjio</p> <p>　　发行商:yo_serjio</p> <p>　　Make Your Kingdom 是一个造城模拟器，玩家需要扩展城市各区，妥善规划市内设施。成为中世纪新王国的一名君主吧!为了达成城市发展的目标，您需要用最合适的方法。让您想出各种方法，以便满足城市内所有市民的日常生活所需，并赢得市民的全力支持。</p> <p>　　每个市民都是独一无二的。为了满足市民的需求，必要建造房屋。您的每一个行为都是有意义的，直接影响到市民。快乐较高的市民将为王国的发展作出贡献，而不满的市民加入兽族会导致王国的毁灭。</p> <p>　　游戏介绍</p> <p>　　您需要管理定居点的基础设施，建造用于资源生产的特定建筑物，并正确分配人力。 此外，您需要处理居民的问题，并使这座城市对未来的城市更具吸引力。</p> <p>　　世间万物都有自己的法律生活。 大自然会不时地考验您和您人民的力量。 您需要密切注意建筑物的状况，消防安全以及该住区的其他关键指标。</p> <p>　　您可以出去看看一切：您的人民生活，对城市生活的看法。 您可以帮助他们获取资源，建造或维修建筑物</p> <p>　　最低配置:</p> <p>　　操作系统: ОС: 7 and newer, 64-bit</p> <p>　　处理器: Intel or AMD Dual-Core, 2.4 GHz+</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: nVidia GeForce 860 2GB</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　声卡: DirectX: 11</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660395b836939.png" width="488" alt="PC《建立自己的王国 Make Your Kingdom》中文版下载" /></p> <p>　　以上内容就是小编为大家带来的《建立自己的王国 Make Your Kingdom》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">newwh123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50697/](https://lad.sfcrom.cn/2024/03/50697/)

@@ -1,0 +1,13 @@
+---
+title: "switch《塔斯马尼亚虎™ 4：布什救援归来™(TY the Tasmanian Tiger™ 4: Bush Rescue Returns™)》英文版nsz下载"
+date: 2024-04-04
+tags: []
+categories: ["nsz英日游戏"]
+excerpt: "switch《塔斯马尼亚虎&trade; 4：布什救援归来&trade;(TY the Tasmanian Tiger&trade; 4: Bush Rescue Returns&trade;)》英文版nsz下载！故事发生在澳大利亚的丛林中，TY的老朋友们的家园受到了神秘势力的威胁。为了保护他们的家&hellip;"
+layout: post
+---
+
+ <p>switch《塔斯马尼亚虎&trade; 4：布什救援归来&trade;(TY the Tasmanian Tiger&trade; 4: Bush Rescue Returns&trade;)》英文版nsz下载！故事发生在澳大利亚的丛林中，TY的老朋友们的家园受到了神秘势力的威胁。为了保护他们的家园，TY决定重组Bush Rescue团队，并带领他们展开一场拯救行动。玩家将与TY一起探索广阔的丛林，解决各种谜题、击败敌人，最终找到并击败那些威胁他们家园的神秘势力。<br />故事发生在澳大利亚的丛林中，TY的老朋友们的家园受到了神秘势力的威胁。为了保护他们的家园，TY决定重组Bush Rescue团队，并带领他们展开一场拯救行动。玩家将与TY一起探索广阔的丛林，解决各种谜题、击败敌人，最终找到并击败那些威胁他们家园的神秘势力。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8bbb429d.webp" width="700" alt="switch《塔斯马尼亚虎™ 4：布什救援归来™(TY the Tasmanian Tiger™ 4: Bush Rescue Returns™)》英文版nsz下载" /></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8bc836d1.webp" width="700" alt="switch《塔斯马尼亚虎™ 4：布什救援归来™(TY the Tasmanian Tiger™ 4: Bush Rescue Returns™)》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8bd6e8fb.webp" width="700" alt="switch《塔斯马尼亚虎™ 4：布什救援归来™(TY the Tasmanian Tiger™ 4: Bush Rescue Returns™)》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8be7c396.webp" width="700" alt="switch《塔斯马尼亚虎™ 4：布什救援归来™(TY the Tasmanian Tiger™ 4: Bush Rescue Returns™)》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8bf82109.webp" width="700" alt="switch《塔斯马尼亚虎™ 4：布什救援归来™(TY the Tasmanian Tiger™ 4: Bush Rescue Returns™)》英文版nsz下载" /></p></div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8bfe410d.webp" width="700" alt="switch《塔斯马尼亚虎™ 4：布什救援归来™(TY the Tasmanian Tiger™ 4: Bush Rescue Returns™)》英文版nsz下载" /></p> <p>　　探索塔斯马尼亚虎TY的开膛手新面与这个公平的丁库姆，漫画风格的横向卷轴冒险!</p> <p>　　全球数百万人喜爱的英雄，塔斯马尼亚虎&trade; TY回来了!加入TY在伟大的澳大利亚内陆进行令人兴奋的新冒险。用你的智慧和回旋镖寻找隐藏的宝藏，帮助色彩缤纷的当地人，并揭开这片土地的奥秘。</p> <p>　　特点：</p> <p>　　* 澳大利亚内陆的 40 个冒险关卡，流畅的 60FPS。</p> <p>　　*通过冻结，砍杀等方式击败敌人，使用大量选择的新回旋镖。</p> <p>　　*现在有英语配音，全明星阵容，你会认出是TY的老伙伴!</p> <p>　　*多种游戏模式：冒险，时间攻击，土耳其追逐和危险竞技场。</p> <p>　　* 角色扮演 TY 的朋友，穿着一公吨的服装。</p> <p>　　*当然，改进了图形，音乐和重新制作的扩展过场动画。</p> <p><h4>下载地址(由网友<font color="red">3124925698</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/127571/](https://lad.sfcrom.cn/2024/04/127571/)

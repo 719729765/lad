@@ -1,0 +1,13 @@
+---
+title: "[工具]ns神级插件TKTOOLS"
+date: 2024-04-10
+tags: []
+categories: ["switch教程"]
+excerpt: "　　演示视频 　　插件说明： 　　本插件基于大气层系统开发，支持系统应该在8.0以上(未大量测试)。TX不可用。插件目前持续更新中，因为可用内存的关系，有概率出现未知的BUG，后期根据反馈会进行修复。 　　功能介绍： 　　1 显示信息 　　实时显示部分与游戏运行相关的系统及硬件信息。 　　2 底座模&hellip;"
+layout: post
+---
+
+ <p style="text-align: center;"><span style="font-size:20px;">　　演示视频</span></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=76214419&amp;cid=130363677&amp;page=1" width="410"></iframe></p> <p>　　插件说明：</p> <p>　　本插件基于大气层系统开发，支持系统应该在8.0以上(未大量测试)。TX不可用。插件目前持续更新中，因为可用内存的关系，有概率出现未知的BUG，后期根据反馈会进行修复。</p> <p>　　功能介绍：</p> <p><strong>　<span style="font-size:18px;">　1 显示信息</span></strong></p> <p>　　实时显示部分与游戏运行相关的系统及硬件信息。</p> <p><strong><span style="font-size:18px;">　　2 底座模式</span></strong></p> <p>　　对支持的游戏提供手持模式下的底座模式渲染，与已有的底座模式插件ReverseNX功能基本一致，同时修复与金手指的兼容问题。</p> <p><strong><span style="font-size:18px;">　　3 变速齿轮</span></strong></p> <p>　　提供0.5 -- 8级的游戏变速齿轮，游戏中可随时调整变速倍率。此功能某些情况下可加快游戏加载速度及游戏进程。</p> <p><strong><span style="font-size:18px;">　　4 一键超频</span></strong></p> <p>　　游戏硬件频率调整，一键超频模式下CPU 超频至 1326MHZ，GPU 超频至 768MHZ, 内存保持为1331MHZ。此模式能应付大部分游戏对超频的需求，同时不强制连接充电器使用。</p> <p>　<strong><span style="font-size:18px;">　5 极限超频</span></strong></p> <p>　　极限超频模式下所有硬件频率提升至最大，对部分游戏画面有巨大提升。此模式提供比一键超频更强大的硬件性能，建议连接官方充电器使用，但并不强制。</p> <p><strong><span style="font-size:18px;">　　6 超频微调</span></strong></p> <p>　　除一键超频和极限超频，同时提供频率的微调。</p> <p>　　CPU 8级可调，</p> <p>　　GPU 9级可调，</p> <p>　　内存5级可调。</p> <p><strong><span style="font-size:18px;">　　7 模块禁用</span></strong></p> <p>　　对于不支持底座模式和变速齿轮的游戏，提供暂时禁用模块功能，防止游戏报错。</p> <p>　　8 金手指</p> <p>　　可在游戏中随时开启或关闭某项游戏金手指功能。</p> <p><strong><span style="font-size:18px;">　　安装说明：</span></strong></p> <p>　　1. 确保已安装完整的大气层系统。</p> <p>　　2. 删除TKTools已包含功能的其他插件，尽量确保没有安装会占用大量内存的系统插件(如FTP,SysDVR等等)。</p> <p>　　3. 确定是否安装过底座模式插件，如已安装，请删除SD卡中atmospherekipssaltysd_spawner.kip文件，同时删除根目录的SaltySD文件夹。</p> <p>　　4. 解压复制TKTools压缩包中的所有文件覆盖至SD卡根目录。</p> <p>　　5. 重启大气层系统。进入HOME界面后按住 - (减号键)加 Y键，如能呼出TKTools菜单，说明已安装成功。</p> <p>　　最后总结一下</p> <p>　　该插件属于收费插件目前收费模式是一次付费终生提供更新收费金额是28元目前宅基地独家提供免费版下载</p> <p>　　免费版阉割一些功能但是一键底座模式一键超频变速齿轮功能仍然给大家试用</p> <p>　　唯一的要求就是希望大家用过之后回帖提供建议比如希望加入哪些功能哪里出现了BUG之类的</p> <p>　　这款插件目前只支持大气层</p> <p>　　TX版会有进入游戏后无法HOME返回进入相册的问题必须退出游戏才行所以暂时不提供TX版的试用版</p> <p>　　PS.目前插件作者自己的机器是系统8.0大气层9.4没问题请大家测试一下反馈自己的版本号谢谢</p> <p>　　PS2.各功能建议尽量不要再游戏加载过程中使用，先进入游戏再开会好一点。</p> <p>　　PS3.除低版本的，其他安装失败或者其他的问题的，建议排查插件冲突以及删除内存占用大的插件</p> <p><h4>下载地址(由网友<font color="red">yuanguo8</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/7316/](https://lad.sfcrom.cn/2024/04/7316/)

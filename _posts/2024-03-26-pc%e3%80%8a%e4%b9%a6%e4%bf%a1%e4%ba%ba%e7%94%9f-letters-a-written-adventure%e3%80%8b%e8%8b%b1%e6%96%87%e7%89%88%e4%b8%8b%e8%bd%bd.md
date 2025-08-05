@@ -1,0 +1,13 @@
+---
+title: "PC《书信人生 Letters a Written Adventure》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《书信人生 Letters a Written Adventure》英文版下载，这是一款益智解谜类型的游戏，为玩家准备了十分治愈的手绘画风，这款游戏以字谜为主要玩法，感兴趣的玩家可以来体验一下哦。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：5am Games GmbH 　　游戏发&hellip;"
+layout: post
+---
+
+ <p>　　PC《书信人生 Letters a Written Adventure》英文版下载，这是一款益智解谜类型的游戏，为玩家准备了十分治愈的手绘画风，这款游戏以字谜为主要玩法，感兴趣的玩家可以来体验一下哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=376235410&amp;bvid=BV18o4y1k71N&amp;cid=354718438&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660323f3cba15.webp" alt="PC《书信人生 Letters a Written Adventure》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660323f43d4ab.webp" alt="PC《书信人生 Letters a Written Adventure》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660323f49b733.webp" alt="PC《书信人生 Letters a Written Adventure》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：5am Games GmbH</p> <p>　　游戏发行：5am Games GmbH/PID Games</p> <p>　　Letters是一个关于友情、成长和寻找自己在生活中的位置的有趣的字谜游戏。跟随萨拉&mdash;&mdash;一个来自瑞士的害羞女孩，浏览她的笔友信件和聊天记录。用文字的力量解开谜语，与她的朋友们互动，并决定她将成长为什么样的大人。</p> <p>　　游戏介绍</p> <p>　　手写的怀旧</p> <p>　　回到 90 年代，用精美的手绘字母跟随莎拉的生活阴谋。详细了解她的朋友、她对书呆子的痴迷，或者她为什么有最讨厌的妹妹。然后随着莎拉长大，一切都开始数字化。陶醉于 2000 年代初期互联网的怀旧像素世界，同时感受青春期的那些故事、焦虑和乐趣。</p> <p>　　改变你的未来</p> <p>　　看着莎拉长大并做出改变她生活的决定(没有压力)。报复你的妹妹，整天玩游戏或坠入爱河。全取决于你。</p> <p>　　不喜欢结局?然后继续重写她的故事。 (看到了吗?我们说过，不要紧张。)</p> <p>　　文字的力量</p> <p>　　在纸和电脑的世界里，文字很重要。所以用它们来改变阻碍你的图画，帮助友好的角色，并与莎拉的朋友互动。</p> <p>　　有时可能很难找到正确的文本。特别是对于像莎拉这样害羞的人。所以请帮助她把它们拆开并创造新的单词供她使用。</p> <p>　　有趣又健康</p> <p>　　Letters 是一个关于友谊、成长和寻找生活方式的温馨、时而有趣、时而悲伤的故事。探索莎拉多彩的世界，用文字的力量改变她的生活!或者......只是成堆的猫或其他东西。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows Vista&reg;, Windows&reg; 7, Windows&reg; 8, Windows&reg; 10</p> <p>　　处理器: 2 GHz Dual Core</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: nVidia&reg; 8800 GT / AMD&reg; 4670 or faster</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的以上内容就是小编为大家带来的，更多精彩内容敬请关注游戏年轮。，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Andd</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41095/](https://lad.sfcrom.cn/2024/03/41095/)

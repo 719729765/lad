@@ -1,0 +1,13 @@
+---
+title: "switch《遗忘之城云版本 The Forgotten City – Cloud Version》中文版nsp/xci整合版下载【含1.01补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《遗忘之城云版本 The Forgotten City &ndash; Cloud Version》中文版nsp/xci整合版下载【含1.01补丁】，这是一款角色扮演游戏，在游戏中玩家将穿越到公元前的罗马时期，你要利用自己的能力在这里生存下去。 　　游戏介绍 　　时值罗马帝政时代，二十六&hellip;"
+layout: post
+---
+
+ <p>switch《遗忘之城云版本 The Forgotten City &ndash; Cloud Version》中文版nsp/xci整合版下载【含1.01补丁】，这是一款角色扮演游戏，在游戏中玩家将穿越到公元前的罗马时期，你要利用自己的能力在这里生存下去。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=583508312&amp;bvid=BV1gz4y1R7R7&amp;cid=202307853&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2021/08-27/fc752657511768dc3cb7a132ad67a5dd.jpg" width="600" alt="switch《遗忘之城云版本 The Forgotten City – Cloud Version》中文版nsp/xci整合版下载【含1.01补丁】" /></p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2021/08-27/a16ca920f979799f05cba54939b229da.jpg" width="600" alt="switch《遗忘之城云版本 The Forgotten City – Cloud Version》中文版nsp/xci整合版下载【含1.01补丁】" /></p> <p>　　游戏介绍</p> <p>　　时值罗马帝政时代，二十六个迷失的灵魂被困于一座神秘的地底城市，苦苦求生。在这个危机四伏的乌托邦，只要有一个人触犯神秘的黄金戒律，所有人就都得死。你作为一名回到两千年前的时间旅行者，将在无限的循环中亲历他们生命的最后时刻，通过探索和询问，运用你发现的每一个秘密来改变这被诅咒之日。</p> <p>　　只有巧用时间循环，作出艰难的道德抉择，你才有希望解开这里的惊天秘密。在这里，你的决定至关重要。这座城市的命运，就握在你手中。</p> <p>　　游戏特色</p> <p>　　探索一座用虚幻引擎打造的逼真开放世界式罗马古城。</p> <p>　　与血肉丰满的角色深度互动，同呼吸共命运。</p> <p>　　在两难的道德困境中饱受煎熬，因为你的抉择将决定人们的生死。</p> <p>　　调查一起扣人心弦的非线性神秘事件，体验多个不同结局。</p> <p>　　自由选择人物性别、种族和背景故事，体验高自由度的角色扮演。</p> <p>　　用自己独到的手法解决问题，无论是依靠理性，还是魅力、贿赂、秘密行动和恐吓都可以，或者干脆巧用时间循环。</p> <p><h4>下载地址(由网友<font color="red">wwzihao</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100298/](https://lad.sfcrom.cn/2024/04/100298/)

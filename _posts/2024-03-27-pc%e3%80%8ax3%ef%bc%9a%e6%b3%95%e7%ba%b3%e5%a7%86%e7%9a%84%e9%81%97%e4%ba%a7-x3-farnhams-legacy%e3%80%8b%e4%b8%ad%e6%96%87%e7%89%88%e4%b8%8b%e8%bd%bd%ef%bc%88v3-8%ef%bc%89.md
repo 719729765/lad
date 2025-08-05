@@ -1,0 +1,13 @@
+---
+title: "PC《X3：法纳姆的遗产 X3: Farnham&#039;s Legacy》中文版下载（v3.8）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《X3：法纳姆的遗产 X3: Farnham&#039;s Legacy》中文版下载，这是游戏《X3: Albion Prelude》的一个DLC，是一款集合了模拟、冒险等元素的游戏，以浩瀚的太空为背景，喜欢这个系列游戏的玩家不要错过。 　　类型:动作,模拟,策略 　　开发商:Egosoft &hellip;"
+layout: post
+---
+
+ <p>　　PC《X3：法纳姆的遗产 X3: Farnham&#39;s Legacy》中文版下载，这是游戏《X3: Albion Prelude》的一个DLC，是一款集合了模拟、冒险等元素的游戏，以浩瀚的太空为背景，喜欢这个系列游戏的玩家不要错过。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039631413d9.jpg" alt="PC《X3：法纳姆的遗产 X3: Farnham&amp;#039;s Legacy》中文版下载（v3.8）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039631b68de.jpg" alt="PC《X3：法纳姆的遗产 X3: Farnham&amp;#039;s Legacy》中文版下载（v3.8）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039632265b3.jpg" alt="PC《X3：法纳姆的遗产 X3: Farnham&amp;#039;s Legacy》中文版下载（v3.8）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660396328e980.jpg" alt="PC《X3：法纳姆的遗产 X3: Farnham&amp;#039;s Legacy》中文版下载（v3.8）" /></td> </tr> </tbody> </table> <p>　　类型:动作,模拟,策略</p> <p>　　开发商:Egosoft</p> <p>　　发行商:Egosoft</p> <p>　　X3：法纳姆的遗产是X3太空游戏系列的一个新游戏。在一个活生生的宇宙中进行贸易、战斗、建设和思考。它包含了一个新的故事情节，并对构成所有X系列游戏核心的开放、自由形式的游戏性进行了更多的补充。被困在一个与世隔绝的太空区域，你首先需要利用新的探索功能来找到返回文明的道路。然后，一旦你到了那里，你将能够使用新的外交选项来帮助塑造你与你发现的派别之间的关系。</p> <p>　　游戏特色</p> <p>　　探索工具和探索者公会</p> <p>　　外交和动态关系</p> <p>　　新的无人机载具和装甲运输船</p> <p>　　拥有新的先进设施的玩家总部</p> <p>　　独特的、非常特别的新船</p> <p>　　建站和复杂的规划服务</p> <p>　　舰艇浏览器和超链接的百科全书</p> <p>　　新的海盗选项和玩法</p> <p>　　真正的部门所有权</p> <p>　　改进的日志和图表</p> <p>　　增强的修改支持</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10 / 8 / 7 / Vista SP1 / XP SP2</p> <p>　　处理器: Pentium&reg; IV or AMD&reg; equivalent at 2.0 GHz</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: 256 MB 3D DirectX 9 Compatible video card (not onboard) with Pixel Shader 1.1 support</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p>　　声卡: Soundcard (Surround Sound support recommended)</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039632d5f66.png" width="535" alt="PC《X3：法纳姆的遗产 X3: Farnham&amp;#039;s Legacy》中文版下载（v3.8）" /></p> <p>　　以上内容就是小编为大家带来的《X3：法纳姆的遗产 X3: Farnham&#39;s Legacy》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">流霜</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51189/](https://lad.sfcrom.cn/2024/03/51189/)

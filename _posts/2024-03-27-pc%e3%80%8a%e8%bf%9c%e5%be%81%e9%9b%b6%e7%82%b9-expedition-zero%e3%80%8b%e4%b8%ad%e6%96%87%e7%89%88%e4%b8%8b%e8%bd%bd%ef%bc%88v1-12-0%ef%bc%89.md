@@ -1,0 +1,13 @@
+---
+title: "PC《远征零点 Expedition Zero》中文版下载（v1.12.0）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《远征零点 Expedition Zero》中文版下载，这是一款恐怖风格的动作冒险游戏，讲述的是主角在寒冬中生存的故事，玩家将通过第一人称视角来体验游戏中的精彩内容，赶快来关注一下吧。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Enigmatic Machines 　　游戏发行：&hellip;"
+layout: post
+---
+
+ <p>　　PC《远征零点 Expedition Zero》中文版下载，这是一款恐怖风格的动作冒险游戏，讲述的是主角在寒冬中生存的故事，玩家将通过第一人称视角来体验游戏中的精彩内容，赶快来关注一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=589879035&amp;bvid=BV1bq4y1S7rF&amp;cid=390556041&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b15804ee.webp" alt="PC《远征零点 Expedition Zero》中文版下载（v1.12.0）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b15d4747.webp" alt="PC《远征零点 Expedition Zero》中文版下载（v1.12.0）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b163afdb.webp" alt="PC《远征零点 Expedition Zero》中文版下载（v1.12.0）" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Enigmatic Machines</p> <p>　　游戏发行：tinyBuild</p> <p>　　远征零点(Expedition Zero)是一款第一人称视角生存恐怖动作冒险游戏，背景设定在发生异常的西伯利亚中心区域，探索腐败的森林和废弃的研究设施，面对可怕的怪物，揭开发生这里的真相。建造临时基地，升级你的装备，以在极端环境和危险生物的威胁下活下来。</p> <p>　　游戏介绍</p> <p>　　故事发生在西伯利亚针叶林深处，一场剧烈的陨石撞击改变了当地地形，而军事基地也立即陷入了无线电静默。当地人心惶惶，交谈着当天发生的一切，一座村庄消失了，森林深处发现了一些食肉动物的痕迹。</p> <p>　　苏联立马派出一队装备最先进防护服和研究设备的科学考察队&ldquo;零号远征队&rdquo;进入该地区，但&hellip;&hellip;远征队信号第一天就消失了。</p> <p>　　你作为远征队的一员，你并没有死!而为了寻找回家的路，寻求灾难背后的真相，你必须学会在极端环境中生存，学会如何面对凶恶的食肉动物。</p> <p>　　游戏特色</p> <p>　　战斗或躲藏</p> <p>　　你在森林里并不孤单。在致命的决斗中面对可怕的怪物。你将如何处理其他堕落的居民和生物?逃跑、反击或成为猎物。</p> <p>　　生存</p> <p>　　致命的怪物不是你唯一的敌人。您还必须应对资源稀缺、极端天气和暴风雪。</p> <p>　　升级</p> <p>　　为您的机甲战衣掠夺和制作有用的设备和模块。为短暂的休息建立一个新的安全基地。这是您在探险中获得的唯一帮助。</p> <p>　　揭开真相</p> <p>　　原来的研究营被废弃了，被一堵50米高的围墙包围着。探索腐败森林，揭开苏联研究考察和绝密军事实验的黑暗真相。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: Intel Quad Core or Equivalent</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GTX 670 or higher</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 12 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《远征零点 Expedition Zero》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">邵愆</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52743/](https://lad.sfcrom.cn/2024/03/52743/)

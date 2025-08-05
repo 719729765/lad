@@ -1,0 +1,13 @@
+---
+title: "switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版下载，这是一款3D的动作冒险游戏，玩家将进入一个神奇的魔法世界，寻找丢失的魔法钻石。对这个风格感兴趣的玩家可以来看看。 　　超级小丑丢失的钻石是由Tero Lunkka开发制作发行的一款冒险游戏，在游戏&hellip;"
+layout: post
+---
+
+ <p>　　switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版下载，这是一款3D的动作冒险游戏，玩家将进入一个神奇的魔法世界，寻找丢失的魔法钻石。对这个风格感兴趣的玩家可以来看看。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=382741303&amp;bvid=BV1eZ4y1m7Eq&amp;cid=560202502&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8fe1070d7.webp" alt="switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8fe15d342.webp" alt="switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8fe1dd175.webp" alt="switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8fe25f8a7.webp" alt="switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8fe2c05e8.webp" alt="switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　超级小丑丢失的钻石是由Tero Lunkka开发制作发行的一款冒险游戏，在游戏中玩家的任务还是比较简单的，只需要使用跳跃技能来解决谜题和解决出现在面前的敌人，当然这个过程有些奖励需要玩家进行收集。</p> <p>　　游戏介绍</p> <p>　　邪恶的飞行傀儡和他的军队由不朽的骷髅、射击大炮、病毒粘液、袋熊和邪恶的蓝龙等敌人组成，他们正在保护这些红色钻石。超级小丑需要使用他的跳跃技能和地面冲击技能来击败敌人。敌人可以通过在头上跳来杀死。一些敌人，如大炮和大老板傀儡，发射蓝色能量球。在傀儡敌人的头上跳跃3次，杀死他。</p> <p>　　游戏特色</p> <p>　　-20级-不同的敌人：跟随病毒粘液、骷髅、射击炮、邪恶袋熊、蓝色邪恶龙和大部分危险的敌人飞行戈梅尔</p> <p>　　-像钉子一样的陷阱</p> <p>　　-检查点系统</p> <p>　　-提供更多能量的炉子</p> <p>　　-硬币。收集10枚硬币，给予额外的生命</p> <p>　　-跳台、移动台、转台</p> <p>　　-游泳力学</p> <p>　　-从地图上坠落会杀死玩家</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8fe31608f.webp" width="407" alt="switch《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版nsp下载" /></p> <p>　　以上内容就是小编为大家带来的《超级小丑：失落的钻石 Super Clown Lost Diamonds》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">win396</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110771/](https://lad.sfcrom.cn/2024/04/110771/)

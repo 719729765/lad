@@ -1,0 +1,13 @@
+---
+title: "PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072，这是一款冒险解谜类型的游戏，故事发生在一个迷你的游戏世界，这款游戏为玩家带来了多种经典游戏元素。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Supra Games 　　游戏发行&hellip;"
+layout: post
+---
+
+ <p>PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072，这是一款冒险解谜类型的游戏，故事发生在一个迷你的游戏世界，这款游戏为玩家带来了多种经典游戏元素。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=680728743&amp;bvid=BV1TS4y177sM&amp;cid=484616710&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1c141111.jpg" alt="PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1c1ad96d.jpg" alt="PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1c2229e7.jpg" alt="PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1c27fc90.jpg" alt="PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Supra Games</p> <p>　　游戏发行：Supra Games</p> <p>　　Supraland Six Inches Under 是一个第一人称类银河战士恶魔城游戏。这意味着，你身处一个封闭的世界，你获得的能力越多，你能到达的世界区域也就越多。</p> <p>　　游戏包含大概45%的探索，45%的解谜，以及10%的战斗。</p> <p>　　本该是以《Supraland》的DLC而推出，因为越来越多的游玩内容而被开发商以新游戏的形式发布了出来。</p> <p>　　传送门、塞尔达和银河战士的结合体。探索，解谜，战斗!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: Intel Core2Duo 2.66GHz</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GTX 780</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 6 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制CODEX文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1c2d4806.png" width="480" alt="PC《超级领地：六英寸之下 Supraland Six Inches Under》中文版下载v1.1.6072" /></p> <p>　　以上内容就是小编为大家带来的《超级领地：六英寸之下 Supraland Six Inches Under》，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">imbataeyeon</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53619/](https://lad.sfcrom.cn/2024/03/53619/)

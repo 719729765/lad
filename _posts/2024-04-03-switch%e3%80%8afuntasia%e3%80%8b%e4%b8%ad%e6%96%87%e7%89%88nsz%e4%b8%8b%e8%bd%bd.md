@@ -1,0 +1,13 @@
+---
+title: "switch《Funtasia》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《Funtasia》中文版下载，这是一款横版卷轴类型的赛车游戏，基于物理特性的玩法，玩家在一个遭受污染的神奇世界中，通过开车闯关来让这个世界的环境变好，感兴趣的话就来试试吧。 　　Funtasia，一个被空中垃圾污染的彩色天堂。只有少数英雄和他们落后的车轮计划可以帮助抵挡这些垃圾。踩&hellip;"
+layout: post
+---
+
+ <p>　　switch《Funtasia》中文版下载，这是一款横版卷轴类型的赛车游戏，基于物理特性的玩法，玩家在一个遭受污染的神奇世界中，通过开车闯关来让这个世界的环境变好，感兴趣的话就来试试吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=635708488&amp;bvid=BV1Jb4y1J7Za&amp;cid=484393491&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d718154059.jpg" alt="switch《Funtasia》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7181dc822.jpg" alt="switch《Funtasia》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d71827a9c7.jpg" alt="switch《Funtasia》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d71831d1a3.jpg" alt="switch《Funtasia》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7183adcda.jpg" alt="switch《Funtasia》中文版nsz下载" /></td> </tr> </tbody> </table> <p>　　Funtasia，一个被空中垃圾污染的彩色天堂。只有少数英雄和他们落后的车轮计划可以帮助抵挡这些垃圾。踩着车子迎接敌人，快速驾驶，在单人与合作模式下，在这个基于物理学、横屏卷轴式赛车游戏中占据生存之地!</p> <p>　　游戏介绍</p> <p>　　是时候在毛茸茸的路上勇往直前了!Funtasia是一款横屏卷轴式2D赛车游戏，目标很简单:尽可能快地开车到达终点线。帮助拯救美丽、绿色生态的的Funtasia世界和它的毛茸茸的居民，让他们不会因为从太空倾倒而下的数吨垃圾的死亡。</p> <p>　　上手很简单，但要真正掌握却极具挑战性，Funtasia是考验你的时间观念和平衡能力。赛道此起彼伏，山丘、深坑、桥梁、流沙、悬崖和洞穴将横亘在你与终点线之间。到达终点需要你平衡油门、刹车和车身，各方面都要恰到好处(司机肯定不喜欢在硬质地面上以100KM时速亲吻路面，而且医生也不建议这样做哦)。</p> <p>　　还有一件事要记住，你没法停车，只有开得非常非常快。懦夫才要休息。汽车电量终生无限!</p> <p>　　游戏特色</p> <p>　　以极快的速度通过10条奇幻的赛道，拯救Funtasia，一个充满毛茸茸动物的天堂，让它们免受垃圾的末日灾难。</p> <p>　　掌握40种不同的汽车，它们有各自的性能、挑战和特质!</p> <p>　　与阴暗卑鄙的敌人对战，从各个关卡闯关中杀出一条生路。</p> <p>　　孤身独闯这条毛茸茸的道路，或者在合作或挑战模式下双人共进。</p> <p>　　在全球联机排行榜上挑战世界各地的玩家，在疾速纪录中占据一席之地</p> <p>　　体验意大利艺术家Emanuele Olives的奇特艺术风格，画面灵感来自Heinz Edelmenn的作品《Adventure Time》和《Troma》。</p> <p>　　以上内容就是小编为大家带来的《Funtasia》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">2015406040222</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124245/](https://lad.sfcrom.cn/2024/04/124245/)

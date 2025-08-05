@@ -1,0 +1,13 @@
+---
+title: "3DS《超速变形 螺旋Z 战斗之翼 Chousoku Henkei Gyrozetter – Albatross no Tsubasa》日版3ds下载"
+date: 2024-03-29
+tags: []
+categories: ["3DS英日游戏"]
+excerpt: "　　3DS《超速变形 螺旋Z 战斗之翼 Chousoku Henkei Gyrozetter &ndash; Albatross no Tsubasa》日版3ds下载。本作将最多可以进行3对3的战斗，通过战斗积累的经验值可以让螺旋Z进行成长，并因玩家的心意来进行强化。在战斗中，如果承受对方的攻击可以&hellip;"
+layout: post
+---
+
+ <p>　　3DS《超速变形 螺旋Z 战斗之翼 Chousoku Henkei Gyrozetter &ndash; Albatross no Tsubasa》日版3ds下载。本作将最多可以进行3对3的战斗，通过战斗积累的经验值可以让螺旋Z进行成长，并因玩家的心意来进行强化。在战斗中，如果承受对方的攻击可以积累能量槽，当能量槽到达100%，则可以使用强力无比的最终爆裂。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_66062709f2e91.png" width="493" alt="3DS《超速变形 螺旋Z 战斗之翼 Chousoku Henkei Gyrozetter – Albatross no Tsubasa》日版3ds下载" /></p> <p>　　英文名称：Chousoku Henkei Gyrozetter: Albatross no Tsubasa</p> <p>　　游戏语言：日文</p> <p>　　开发厂商：Square Enix</p> <p>　　发行厂商：Square Enix</p> <p>　　发售日期：2013-06-13</p> <p>　　游戏容量：1G(8Gbits)</p> <p>　　游戏类型：角色扮演类</p> <p><h4>下载地址(由网友<font color="red">年轮0EfSX</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/73190/](https://lad.sfcrom.cn/2024/03/73190/)

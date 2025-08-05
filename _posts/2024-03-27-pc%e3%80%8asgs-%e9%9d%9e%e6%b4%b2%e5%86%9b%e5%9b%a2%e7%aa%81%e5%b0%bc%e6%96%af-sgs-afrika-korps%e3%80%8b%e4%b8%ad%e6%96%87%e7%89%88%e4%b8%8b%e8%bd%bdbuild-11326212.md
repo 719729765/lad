@@ -1,0 +1,13 @@
+---
+title: "PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212!游戏重现了&ldquo;沙漠之狐&rdquo;隆美尔的传奇非洲军团于1941和1942年间在利比亚的战斗和战役。控制轴心国部队征服最具价值的目标：苏伊士运河，或是指挥第八集团军的士兵，包括著&hellip;"
+layout: post
+---
+
+ <p>　　PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212!游戏重现了&ldquo;沙漠之狐&rdquo;隆美尔的传奇非洲军团于1941和1942年间在利比亚的战斗和战役。控制轴心国部队征服最具价值的目标：苏伊士运河，或是指挥第八集团军的士兵，包括著名的沙漠之鼠，击退入侵者</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=805874524&amp;bvid=BV1Y34y1U73e&amp;cid=415831545&amp;page=1" width="410"></iframe></p> <p>　　《非洲军团》</p> <p>　　包含了多个场景，覆盖了从1940年到1942年利比亚和埃及北非沙漠战场的不同时期。小型场景包含著名的十字军行动、战斧行动和阿拉曼战役。中型场景包含1940年意大利入侵埃及失败的E行动和奥康纳的反击、1941年春非洲军团刚抵达北非时的战役，还有1942年开始的战役。在大型战役场景中你能率领隆美尔或英联邦的军队作战，从1941年到1942年底，从阿格海拉到阿拉曼。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b0de69976.webp" width="700" alt="PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b0deccf1a.webp" width="700" alt="PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b0df45735.webp" width="700" alt="PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b0df9a1eb.webp" width="700" alt="PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b0dff2a59.webp" width="700" alt="PC《SGS 非洲军团:突尼斯 SGS Afrika Korps》中文版下载Build.11326212" /></p></div> <p>　　场景长短不一，从4回合(小型场景)到42回合，每回合代表1941年4月到1942年12月中的2周时间(意大利攻势场景中还有1940年的几个月)。一个玩家控制轴心国在北非的德国和意大利(地面和空中)单位，另一个玩家指挥英国、印度、澳大利亚、南非、波兰、希腊、自由法国、皇家空军的单位为盟军一方作战。</p> <p>　　轴心国在游戏开始时拥有数量众多但组织度低的意大利军队;德国援军量少而精锐，如果指挥得当，以逸待劳，就能发挥决定性作用。</p> <p>　　英联邦和盟军部队有时必须顽强抵抗强敌一开始的猛烈攻势，但他们会不断获得更好的装备、更多的部队和能胜任的指挥官，最终获得长期的优势。他们必须坚守阵地，保护苏伊士运河，再发起反击，将敌军一路推回突尼斯，而火炬行动将为北非的敌军敲响丧钟。</p> <p>　　注意一些小型精锐单位的潜在弱点。最重要的是关注你的补给线，在沙漠中如果缺少适当的后勤，你就打不了仗。补给和交通网络的控制权将是胜负的关键。</p> <p>　　游戏中的事件牌模拟了外交、军事、政治和经济领域的多种形势，所以很有可重玩价值。</p> <p><h4>下载地址(由网友<font color="red">sammilzfj</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53401/](https://lad.sfcrom.cn/2024/03/53401/)

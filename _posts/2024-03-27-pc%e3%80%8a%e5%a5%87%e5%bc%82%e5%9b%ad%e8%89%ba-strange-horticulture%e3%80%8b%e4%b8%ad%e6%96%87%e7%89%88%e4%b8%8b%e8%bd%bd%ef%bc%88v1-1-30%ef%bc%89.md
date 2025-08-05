@@ -1,0 +1,13 @@
+---
+title: "PC《奇异园艺 Strange Horticulture》中文版下载（v1.1.30）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《奇异园艺 Strange Horticulture》中文版下载，Strange Horticulture是一款解密玩法的游戏，这款游戏在故事中加入了很多神秘学的元素，玩家可以通过它了解到很多有趣的内容。 　　类型:冒险,模拟 　　开发商:Bad Viking 　　发行商:Iceberg I&hellip;"
+layout: post
+---
+
+ <p>　　PC《奇异园艺 Strange Horticulture》中文版下载，Strange Horticulture是一款解密玩法的游戏，这款游戏在故事中加入了很多神秘学的元素，玩家可以通过它了解到很多有趣的内容。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=423276188&amp;bvid=BV1H3411Y7wU&amp;cid=488863647&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a16c993d8.jpg" alt="PC《奇异园艺 Strange Horticulture》中文版下载（v1.1.30）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a16d2c8d9.jpg" alt="PC《奇异园艺 Strange Horticulture》中文版下载（v1.1.30）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a16daa717.jpg" alt="PC《奇异园艺 Strange Horticulture》中文版下载（v1.1.30）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a16e30178.jpg" alt="PC《奇异园艺 Strange Horticulture》中文版下载（v1.1.30）" /></td> </tr> </tbody> </table> <p>　　类型:冒险,模拟</p> <p>　　开发商:Bad Viking</p> <p>　　发行商:Iceberg Interactive</p> <p>　　欢迎来到昂德米尔镇。这个古朴小镇周围环绕着沼泽密布的森林和崎岖不平的山脉。你是园艺家，当地植物商店Strange Horticulture的店主。随着一群形形色色的顾客光临你的小店，你迅速被卷入到一起延续数百年的神秘学事件中。</p> <p>　　探索店外的广袤土地，寻找新的植物，但要小心!幽暗的森林与湖泊并不总会对一个小小的草药师释放善意。你可能会发现绝对意想不到的力量&mdash;&mdash;或者彻底迷失心智。根据情境线索决定哪些地方值得一探，哪些地方必须避开!</p> <p>　　值得信赖的百科知识和探索途中发现的线索可以让你进一步了解你遇到的奇怪植物。通过识别每种植物，你将能够利用它们的功效来影响故事走向&mdash;&mdash;从催眠幻剂到致命剧毒，应有尽有。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 or later</p> <p>　　处理器: 2.4 GHz</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: 512 MB display memory</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a16e728c9.png" width="388" alt="PC《奇异园艺 Strange Horticulture》中文版下载（v1.1.30）" /></p> <p>　　以上内容就是小编为大家带来的《奇异园艺 Strange Horticulture》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">ccsasuke</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/4872/](https://lad.sfcrom.cn/2024/03/4872/)

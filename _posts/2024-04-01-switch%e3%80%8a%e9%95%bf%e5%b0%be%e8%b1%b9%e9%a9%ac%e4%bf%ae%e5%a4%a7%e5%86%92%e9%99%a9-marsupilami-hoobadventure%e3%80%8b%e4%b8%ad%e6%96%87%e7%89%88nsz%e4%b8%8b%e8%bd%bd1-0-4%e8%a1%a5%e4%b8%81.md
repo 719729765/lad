@@ -1,0 +1,13 @@
+---
+title: "switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁，这是一款卡通风格的动作冒险游戏，原作是很有人气的一部动漫，对这个可爱的长尾豹感兴趣的玩家可以来体验一下哦。 　　&ldquo;长尾豹马修&rdquo;是比利时漫画家在1951年创作出&hellip;"
+layout: post
+---
+
+ <p>switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁，这是一款卡通风格的动作冒险游戏，原作是很有人气的一部动漫，对这个可爱的长尾豹感兴趣的玩家可以来体验一下哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=764148064&amp;bvid=BV15r4y1y7D7&amp;cid=440607428&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-15/96a1b010de491a8bf6cd19bd402a8672.jpg" alt="switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-15/8fe2009b7ff34fbec29150776bfe76fb.jpg" alt="switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-15/976dde6a8e18fa81dae5358a539938eb.jpg" alt="switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-15/e837283500ded98d644fc9d091b82257.jpg" alt="switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-15/a8a495a8db9166aff9eda3ab46052d14.jpg" alt="switch《长尾豹马修大冒险 Marsupilami Hoobadventure》中文版nsz下载+1.0.4补丁" /></td> </tr> </tbody> </table> <p>　　&ldquo;长尾豹马修&rdquo;是比利时漫画家在1951年创作出的小动物，它拥有8米长的尾巴，像松鼠一样身手敏捷，有点捣蛋，喜欢恶作剧。自诞生后也不断推出漫画、动画和电影，在全球范围内拥有广泛影响力，特别受到孩子们的喜爱。</p> <p>　　游戏《长尾豹马修：大冒险》中三位主角在海滩游玩时，失手释放出了神秘幽灵，使得所有动物遭受诅咒，于是三只长尾豹决定一起冒险，打破诅咒拯救动物们。</p> <p>　　《长尾豹马修：大冒险》包含多种场景，玩家可以使用跳跃、冲刺、拳击等动作，对于追求完美的玩家，游戏还提供了收集要素和计时功能，不断挑战关卡最快通过记录。</p> <p>　　故事介绍</p> <p>　　Punch、Twister 和 Hope 是三只长尾豹，它们在 Palombia 过着平静的生活。当三个伙伴在海滩上玩碎片以打开一个被诅咒的石棺时，无意中释放出一个神秘的幽灵，幽灵对所有动物都施下了可怕的诅咒。幸运的是，这些诅咒对长尾豹无效。我们的三位英雄将不得不踏上冒险，追逐幽灵，由此来避开咒语。</p> <p>　　游戏特色</p> <p>　　3 个不同的世界。</p> <p>　　20 多个关卡。</p> <p>　　可调整的难度，可面对更多挑战。</p> <p>　　精致的图形、丰富多彩的艺术风格和沉浸式的环境。</p> <p>　　计时模式可以打破纪录。</p> <p>　　发现并收集奖励，解锁秘密关卡。</p> <p><h4>下载地址(由网友<font color="red">2143946152</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100479/](https://lad.sfcrom.cn/2024/04/100479/)

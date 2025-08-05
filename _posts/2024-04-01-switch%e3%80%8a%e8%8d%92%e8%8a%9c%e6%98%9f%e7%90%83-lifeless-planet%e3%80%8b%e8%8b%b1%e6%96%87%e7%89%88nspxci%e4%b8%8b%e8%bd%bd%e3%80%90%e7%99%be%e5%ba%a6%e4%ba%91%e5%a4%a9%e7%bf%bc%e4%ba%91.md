@@ -1,0 +1,13 @@
+---
+title: "switch《荒芜星球 Lifeless Planet》英文版NSP+XCI下载【百度云+天翼云】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "switch《荒芜星球 Lifeless Planet》英文版NSP+XCI下载【百度云+天翼云】，荒芜星球是一款3D的冒险游戏，玩家将扮演一位在太阳系外探索的宇航员。 实机视频 　　《荒芜星球》(Lifeless Planet)是一款全新的3D冒险游戏，玩家要扮演一个宇航员到遥远的太阳系之外，寻找&hellip;"
+layout: post
+---
+
+ <p>switch《荒芜星球 Lifeless Planet》英文版NSP+XCI下载【百度云+天翼云】，荒芜星球是一款3D的冒险游戏，玩家将扮演一位在太阳系外探索的宇航员。</p> <p style="text-align: center;"><strong><span style="font-size:22px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=201340503&amp;bvid=BV14h411o7Wd&amp;cid=210984621&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2c1830a21.webp" style="border-width: 0px; border-style: solid; width: 600px; height: 338px;" alt="switch《荒芜星球 Lifeless Planet》英文版NSP+XCI下载【百度云+天翼云】" /></p> <p align="center"><img align="" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2c18ab2bd.webp" style="border-width: 0px; border-style: solid; width: 600px; height: 338px;" alt="switch《荒芜星球 Lifeless Planet》英文版NSP+XCI下载【百度云+天翼云】" /></p> <p>　　《荒芜星球》(Lifeless Planet)是一款全新的3D冒险游戏，玩家要扮演一个宇航员到遥远的太阳系之外，寻找一个适居星球。独自行走在这片荒地，和他同道的宇航员失踪而且他的氧气罐也开始泄漏，宇航员的处境变成绝望。他开始探索星球上他失踪的船员，但只发现一个更深的谜团：一个被遗弃的犯罪实验室。难道他的任务是一个骗局?</p> <p>　　如果你喜欢陈星汉的《旅途》和八十年代的科幻冒险电影，《荒芜星球》应该也会符合你的口味。除了少量的解谜元素之外，它所有的游戏性几乎都集中在探索地图上，美术氛围别具一格，还有一段耐人寻味的故事;只有带着感性才能体验到它的魅力。</p> <p>　　游戏中没有武器，没有需要打败的怪物，在大漠荒原中不断前进，能否有耐心把旅程坚持下去，很大一部分依赖于场景设计是否能被你所喜欢。在这方面《荒芜星球》做的很不错，虽然在技术层面相对比较简单(全是重复贴图)但是创意也得到了发挥，游戏中有十几种变幻多样的地貌特征，在超现实主义美学和复古色彩的调和下，有不少场景会给你留下深刻的印象;例如最初沙漠中的苏联小镇，中期的死亡森林，后期的地狱火山等，并且地图面积都不算小，在如此广阔的空间中带给我们的不止是视觉上的感受，更多是一种心灵上体会。当你身处一个未知的星球，不知身边有什么样的危险，赖以生存的氧气即将消耗光，这种感觉是多么令人绝望，而面对无法抗拒的自然就更深地发觉人类的愚昧和自我的渺小，一种敬畏之心油然而生，这种情怀正是和《旅途》所相似的&mdash;&mdash;前提你是一个感性且富有想象力的人。</p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2c192da67.webp" style="width: 600px; height: 338px;" alt="switch《荒芜星球 Lifeless Planet》英文版NSP+XCI下载【百度云+天翼云】" /></p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2c19c598c.webp" style="width: 600px; height: 338px;" alt="switch《荒芜星球 Lifeless Planet》英文版NSP+XCI下载【百度云+天翼云】" /></p> <p>　　游戏并没有太多刺激的内容，为大家展示的是一段心旷神怡的旅程，喜欢的玩家可以来试一下。</p> <p><h4>下载地址(由网友<font color="red">qbysms</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/108459/](https://lad.sfcrom.cn/2024/04/108459/)

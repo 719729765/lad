@@ -1,0 +1,13 @@
+---
+title: "switch《胡闹厨房！全都好吃 Overcooked！ All You Can Eat》中文版nsz/xci下载【含1.0.11补丁+1DLC】"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《胡闹厨房！全都好吃 Overcooked！ All You Can Eat》中文版nsz/xci下载【含1.0.11补丁+1DLC】！该游戏囊括了《胡闹厨房！》、《胡闹厨房2》以及其他额外内容 &rdquo; 　　在《胡闹厨房：全都好吃》中，《Overcooked!》、《Overcoo&hellip;"
+layout: post
+---
+
+ <p>switch《胡闹厨房！全都好吃 Overcooked！ All You Can Eat》中文版nsz/xci下载【含1.0.11补丁+1DLC】！该游戏囊括了《胡闹厨房！》、《胡闹厨房2》以及其他额外内容 &rdquo;</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=542699086&amp;bvid=BV1Mi4y1L7nN&amp;cid=251744904&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d72f35eeaf.webp" alt="switch《胡闹厨房！全都好吃 Overcooked！ All You Can Eat》中文版nsz/xci下载【含1.0.11补丁+1DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d72f3e03bb.webp" alt="switch《胡闹厨房！全都好吃 Overcooked！ All You Can Eat》中文版nsz/xci下载【含1.0.11补丁+1DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d72f45150e.webp" alt="switch《胡闹厨房！全都好吃 Overcooked！ All You Can Eat》中文版nsz/xci下载【含1.0.11补丁+1DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d72f4c04ec.webp" alt="switch《胡闹厨房！全都好吃 Overcooked！ All You Can Eat》中文版nsz/xci下载【含1.0.11补丁+1DLC】" /></td> </tr> </tbody> </table> <p>　　在《胡闹厨房：全都好吃》中，《Overcooked!》、《Overcooked! 2》和其他额外内容经过重新制作，成为《Overcooked!》决定版，美味上菜啦!</p> <p>　　你可以和其他玩家共同闯过数百个乱七八糟的协作烹饪关卡，以及越来越稀奇古怪又危机四伏的厨房!</p> <p>　　游戏介绍</p> <p>　　《Overcooked!》上线了!</p> <p>　　《Overcooked!》史上第一次完全地统合了多人在线游戏模式，你即可使用惊人的 4K 高分辨率，在线重温你在第一代《Overcooked!》最喜爱的厨房!</p> <p>　　跨平台多人联机</p> <p>　　你可以和好友跨平台多人联机，通过语音通话一起体验烹饪大战!共享多人匹配联机大大缩短了游戏等待时间，给你换取更多疯狂的美食战役!</p> <p>　　视觉飨宴!</p> <p>　　两代游戏都配备令人惊艳的 4K 分辨率，最精美的《Overcooked!》系列就在这儿!</p> <p>　　令人垂涎的新内容!</p> <p>　　新的关卡、新的厨师、新的疯狂，统统只在《Overcooked! 全都好吃》!</p> <p>　　多种游戏模式!</p> <p>　　玩家可以选择战役模式、生存模式和练习模式，以及《全都好吃》新增的辅助模式!辅助模式提供多种选项，你可以延长做菜时间、增长回合时间、跳过关卡，以缓解疯狂游戏带来的负担。</p> <p>　　所有人都可以玩!</p> <p>　　《Overcooked! 全都好吃》附有特殊内部功能，所有人都可以参与美食狂欢派对!游戏里可以调整用户界面，还有适用于阅读障碍及色盲人士的文字选项。</p> <p>　　再次回到洋葱王国，一起加入《Overcooked! 全都好吃》的终极美食飨宴吧!</p> <p><h4>下载地址(由网友<font color="red">13920138611</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124741/](https://lad.sfcrom.cn/2024/04/124741/)

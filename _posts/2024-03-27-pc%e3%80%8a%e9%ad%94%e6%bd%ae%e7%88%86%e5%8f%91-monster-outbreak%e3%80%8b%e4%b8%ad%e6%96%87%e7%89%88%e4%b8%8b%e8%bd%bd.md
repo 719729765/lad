@@ -1,0 +1,13 @@
+---
+title: "PC《魔潮爆发 Monster Outbreak》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《魔潮爆发 Monster Outbreak》中文版下载，这是一款像素画风的游戏，结合了生存冒险、基地建造、策略塔防等元素，讲述了主角在魔潮冲击下生存的故事，感兴趣的玩家不要错过。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：GameMunchers 　　游戏发行：Freedom &hellip;"
+layout: post
+---
+
+ <p>　　PC《魔潮爆发 Monster Outbreak》中文版下载，这是一款像素画风的游戏，结合了生存冒险、基地建造、策略塔防等元素，讲述了主角在魔潮冲击下生存的故事，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=642787070&amp;bvid=BV12Y4y1J7Jy&amp;cid=755193141&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039fa2f398d.jpg" alt="PC《魔潮爆发 Monster Outbreak》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039fa37960b.jpg" alt="PC《魔潮爆发 Monster Outbreak》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039fa3e9e9b.jpg" alt="PC《魔潮爆发 Monster Outbreak》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039fa46a45a.jpg" alt="PC《魔潮爆发 Monster Outbreak》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：GameMunchers</p> <p>　　游戏发行：Freedom Games</p> <p>　　本作是一款自上而下的像素生存动作游戏，讲述了国王的维度球体发生故障，让财富、知识和上古传说充斥着王国，但怪兽也随之而来。</p> <p>　　故事介绍</p> <p>　　维度球超越了人类最疯狂的梦想，是财富和知识的象征，之前一直隐世不现，后来终被发现并为国王所得。作为人类，国王轻易地迷失了自我，换来暂时的知识与财富。维度球让财富、知识和上古传说充斥着这个王国&hellip; 但怪兽也随之而来。</p> <p>　　数不清的怪兽。</p> <p>　　游戏特色</p> <p>　　皇家卫队的最后抵抗还没有结束&mdash;&mdash;它会结束的。</p> <p>　　尤利娅可以使用各种各样的魔法武器，从简单的剑和斧头到高级弓箭，这些武器可以造成额外伤害的元素攻击，创造出新的方法来阻止敌人无休止的攻击。</p> <p>　　建立防御!有数十种炮塔可供选择，包括炸弹标枪发射器、弩炮炮塔和炸弹弹弓，可帮助您建立高杀伤力防御。</p> <p>　　可选择部署陷阱，包括尖刺棒、绊线炸弹和元素陷阱，以阻止成群的次元怪物。</p> <p>　　如果堡垒可以守住(可能不是&ldquo;如果&rdquo;)，将尤莉亚送到防护罩外的战场，与兽群战斗。</p> <p>　　每一波攻击最终都会结束。利用战斗中的空闲时间来修复你的基地&mdash;&mdash;或者冒险探索地面、修复桥梁和清理废弃的王国。</p> <p>　　追捕怪物以获得制作武器和道具的基本部件，增加你的生存机会 - 但要小心暴虐的老板，他们可能会在最意想不到的时刻破坏你的计划。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Dual core 2.0Ghz+</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Dedicated graphics card</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. (如果有setup.exe文件的话)安装游戏</p> <p>　　3. (如果存在crack文件夹的话)复制crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《魔潮爆发 Monster Outbreak》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">qq1423362389</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52292/](https://lad.sfcrom.cn/2024/03/52292/)

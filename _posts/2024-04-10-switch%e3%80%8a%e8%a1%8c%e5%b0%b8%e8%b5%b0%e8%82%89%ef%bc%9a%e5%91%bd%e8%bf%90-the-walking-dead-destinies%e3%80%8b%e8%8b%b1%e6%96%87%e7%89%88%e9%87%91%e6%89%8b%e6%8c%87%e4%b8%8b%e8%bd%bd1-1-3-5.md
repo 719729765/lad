@@ -1,0 +1,13 @@
+---
+title: "switch《行尸走肉：命运 The Walking Dead: Destinies》英文版金手指下载1.1.3.5"
+date: 2024-04-10
+tags: []
+categories: ["switch金手指"]
+excerpt: "switch《行尸走肉：命运 The Walking Dead: Destinies》英文版金手指下载1.1.3.5!改变 AMC 的 The Walking Dead 的历史进程。与丧尸搏斗，重温标志性时刻，通过你的选择将英雄与反派、幸存者和丧尸分离，改变The Walking Dead 宇宙的命&hellip;"
+layout: post
+---
+
+ <p>switch《行尸走肉：命运 The Walking Dead: Destinies》英文版金手指下载1.1.3.5!改变 AMC 的 The Walking Dead 的历史进程。与丧尸搏斗，重温标志性时刻，通过你的选择将英雄与反派、幸存者和丧尸分离，改变The Walking Dead 宇宙的命运。你会像Rick一样做出相同的选择，还是另辟蹊径?</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=449953853&amp;bvid=BV1mj411v7f9&amp;cid=1305050864&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9f22b178.webp" width="700" alt="switch《行尸走肉：命运 The Walking Dead: Destinies》英文版金手指下载1.1.3.5" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9f27c78a.webp" width="700" alt="switch《行尸走肉：命运 The Walking Dead: Destinies》英文版金手指下载1.1.3.5" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9f2d790e.webp" width="700" alt="switch《行尸走肉：命运 The Walking Dead: Destinies》英文版金手指下载1.1.3.5" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e9f333fe8.webp" width="700" alt="switch《行尸走肉：命运 The Walking Dead: Destinies》英文版金手指下载1.1.3.5" /></p></div> <p>　　关于这款游戏</p> <p>　　在一座医院中醒来，四周都是丧尸，以瑞克&middot;格莱姆斯(Rick Grimes)的身份孤身一人开始旅程。从亚特兰大到格林家族农场、再到监狱和伍德伯里，组建盟友并与无处不在的丧尸展开殊死搏斗。在关键的选择时刻，你将决定你的队伍的命运，这些队伍将包括英雄和反派，幸存者和丧尸。是坚守历史的轨迹，还是在AMC的《行尸走肉》的世界中开创自己的道路，都由你决定。</p> <p>　　&bull; 扭转命运：在 AMC 的《行尸走肉》系列事件中编织自己的道路，从而改变故事情节。拯救反派，杀死英雄......并承担后果。</p> <p>　　&bull; 砍杀、撞击和射击丧尸： 使用各种近战和远程武器，包括棒球棍、武士刀、左轮手枪、霰弹枪和弩，消灭成群结队的丧尸。</p> <p>　　&bull; 扮演 13 个标志性角色： 从 AMC 的《行尸走肉》中挑选角色，包括瑞克(Rick)、夏恩(Shane)、米琼恩(Michonne)、卡罗尔(Carol)、达里尔(Daryl)等。</p> <p>　　&bull; 末世生存： 管理有限的资源，搜刮武器弹药，最大限度地发挥一行人的能力，以保住性命。</p> <p>　　&bull; 体验紧张气氛： 保卫自己的营地，营救幸存者，通过隐身和全面迎敌进行战斗。在丧尸威胁压倒你之前，在 &quot;破碎状态 &quot;中获得最后的生存机会。</p> <p><h4>下载地址(由网友<font color="red">cai531921</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/152682/](https://lad.sfcrom.cn/2024/04/152682/)

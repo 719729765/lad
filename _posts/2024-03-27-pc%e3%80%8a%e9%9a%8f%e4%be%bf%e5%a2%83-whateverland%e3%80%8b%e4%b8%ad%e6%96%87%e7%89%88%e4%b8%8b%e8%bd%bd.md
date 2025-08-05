@@ -1,0 +1,13 @@
+---
+title: "PC《随便境 Whateverland》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《随便境 Whateverland》中文版下载，这是一款冒险解谜游戏，手绘风格的画面，点击式的解谜玩法，主角陷入了一个女巫创造的世界，找到线索才能逃出去，喜欢解谜游戏的玩家不要错过。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Caligari Games 　　游戏发行：Calig&hellip;"
+layout: post
+---
+
+ <p>　　PC《随便境 Whateverland》中文版下载，这是一款冒险解谜游戏，手绘风格的画面，点击式的解谜玩法，主角陷入了一个女巫创造的世界，找到线索才能逃出去，喜欢解谜游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=591093225&amp;bvid=BV1rq4y1d7sE&amp;cid=424598119&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e60f2020.jpg" alt="PC《随便境 Whateverland》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e616d4af.jpg" alt="PC《随便境 Whateverland》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e61e061c.jpg" alt="PC《随便境 Whateverland》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e6259dc3.jpg" alt="PC《随便境 Whateverland》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Caligari Games</p> <p>　　游戏发行：Caligari Games/WhisperGames</p> <p>　　《随便境》是一款手绘风格的点击冒险游戏，拥有分支对话系统、非线性的游戏玩法、多种结局以及内置的回合制桌面小游戏。</p> <p>　　在这个充满小游戏和挑战的非线性冒险游戏中，找到逃出魔法监狱的方法。邂逅随便境性格迥异的居民，你可以选择偷窃行骗，也可以选择做个好孩子，你的选择将影响文森特故事的结局。</p> <p>　　故事介绍</p> <p>　　盗贼大师文森特决定从一个名叫贝翠丝的老妇人的宅邸中窃走一条珍奇的项链。他本以为计划天衣无缝，但却被老妇人抓了个正着。更糟的是，她实际上是一名年迈的强大女巫。</p> <p>　　作为惩罚，贝翠丝将文森特流放到了她所创造的专门用来囚禁仇敌的平行世界中。这个诡谲世界的最初一批居民将它称为&ldquo;随便境&rdquo;，此后这个名字便流传了下来。</p> <p>　　文森特与一个名叫尼克的怪人成为了搭档，计划并肩逃出这个世界。</p> <p>　　他们能否脱身?这将由你来决定!</p> <p>　　游戏特色</p> <p>　　和经典点击冒险游戏有所差别</p> <p>　　你可以选择偷东西，也可以不偷&mdash;&mdash;完全由你决定</p> <p>　　你的行为会决定游戏的结局，和其他人对你的看法</p> <p>　　你会拥有全宇宙最烦人的搭档(我们还是爱你的，尼克)</p> <p>　　你可以和大家对话，但对方愿不愿意搭理你就不一定了</p> <p>　　包含带魔法的回合制策略运动模拟游戏</p> <p>　　超多小游戏，至少2个</p> <p>　　真正的六重奏乐团录制的音乐，是不是很性感?</p> <p>　　美丽的手绘美术风格</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 (64 Bit)</p> <p>　　处理器: Intel Core 2 Duo 2.4 GHz</p> <p>　　显卡: NVidia Geforce GTX 650 Ti, AMD Radeon HD 7790</p> <p>　　存储空间: 需要 7 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《随便境 Whateverland》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">edisonwby</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53677/](https://lad.sfcrom.cn/2024/03/53677/)

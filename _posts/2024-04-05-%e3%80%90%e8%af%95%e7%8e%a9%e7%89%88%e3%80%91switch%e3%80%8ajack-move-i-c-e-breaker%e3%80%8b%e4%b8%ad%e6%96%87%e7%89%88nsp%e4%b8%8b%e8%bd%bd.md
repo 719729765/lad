@@ -1,0 +1,13 @@
+---
+title: "【试玩版】switch《Jack Move I.C.E. Breaker》中文版nsp下载"
+date: 2024-04-05
+tags: []
+categories: ["Switch汉化游戏"]
+excerpt: "　　switch《Jack Move I.C.E. Breaker》中文版下载，这是一款像素画风的角色扮演游戏，回合制策略类型的玩法，赛博朋克风的世界背景，主角和邪恶的大公司对抗的故事，感兴趣的玩家可以关注一下哦。 链接: https://pan.baidu.com/s/1kmzfCup9uU_04&hellip;"
+layout: post
+---
+
+ <p>　　switch《Jack Move I.C.E. Breaker》中文版下载，这是一款像素画风的角色扮演游戏，回合制策略类型的玩法，赛博朋克风的世界背景，主角和邪恶的大公司对抗的故事，感兴趣的玩家可以关注一下哦。</p> <p>链接: https://pan.baidu.com/s/1kmzfCup9uU_042y1J6PjZg?pwd=5aki 提取码: 5aki&nbsp;<br />解压密码：bibgame.com</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=342627613&amp;bvid=BV1x94y1y7M4&amp;cid=753614461&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2a56a9cc.jpg" alt="【试玩版】switch《Jack Move I.C.E. Breaker》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2a5ce81b.jpg" alt="【试玩版】switch《Jack Move I.C.E. Breaker》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2a646724.jpg" alt="【试玩版】switch《Jack Move I.C.E. Breaker》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2a6abd2c.jpg" alt="【试玩版】switch《Jack Move I.C.E. Breaker》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2a7125b3.jpg" alt="【试玩版】switch《Jack Move I.C.E. Breaker》中文版nsp下载" /></td> </tr> </tbody> </table> <p>　　《Jack Move: I.C.E Breaker》是一款像素风格的冒险游戏，扮演 Noa 一个时髦的黑客，要拯救她的父亲和这个世界。在一堆充满各种赛博朋克恶棍的地牢中战斗。街头小混混、黑帮、企业民兵、特工因为可怕的网络实验出现故障，都将与你为敌!</p> <p>　　故事介绍</p> <p>　　扮演诺亚，一个来自光明镇的年轻黑客。由于过度扩张的大型公司Monomind绑架了与她疏远的父亲，Noa别无选择，只能在为时已晚之前把他找回来。帮助她找到她的父亲，因为她发现自己在路上。</p> <p>　　诺亚不会独自一人旅行。她最好的朋友、战术策划者莱德，以及喝马提尼酒的叔叔、前公司间谍吉尼&middot;布莱克利都会帮助她。</p> <p>　　游戏特色</p> <p>　　华丽的&ldquo;Hi-Bit&rdquo;像素艺术灵感来自复古RPG，并通过现代技术增强。</p> <p>　　在网络空间与敌人作战。使用多种甜蜜的黑客软件将他们干掉。</p> <p>　　探索Monocity-1的危险世界，摧毁控制它的邪恶大公司Monomind。</p> <p>　　扮演诺亚&middot;索拉里斯，一个为了拯救她父亲和世界的野蛮黑客。</p> <p>　　在充满各种赛博朋克恶棍的地牢中奋力前行。街头朋克、歹徒、企业民兵、特勤局特工和出错的可怕网络实验都将与你对抗!</p> <p>　　以上内容就是小编为大家带来的《Jack Move I.C.E. Breaker》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">liuyuze</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/129995/](https://lad.sfcrom.cn/2024/04/129995/)

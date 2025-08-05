@@ -1,0 +1,13 @@
+---
+title: "switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载!一款故事丰富的角色扮演/动作冒险游戏。穿上年轻的兽人莫格伦的鞋子，探索整个雷霆岛。 　　故事开始于我们的年轻英雄在雷霆岛海岸迫降。在这个险恶而又充满热带风情的避风港，&hellip;"
+layout: post
+---
+
+ <p>　　switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载!一款故事丰富的角色扮演/动作冒险游戏。穿上年轻的兽人莫格伦的鞋子，探索整个雷霆岛。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4aaf1be18.webp" width="700" alt="switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4aafad1de.webp" width="700" alt="switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4ab01b2a3.webp" width="700" alt="switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4ab08da3b.webp" width="700" alt="switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4ab0e4be5.webp" width="700" alt="switch《沙尔诺传奇2：雷霆试炼 Shalnor Legends 2: Trials of Thunder》英文版nsp下载" /></p></div> <p>　　故事开始于我们的年轻英雄在雷霆岛海岸迫降。在这个险恶而又充满热带风情的避风港，他发现了一件具有巨大力量的神器。在意识到神器的真正潜力后，他踏上了充满挑战和艰辛的旅程，以释放其全部力量。</p> <p>　　岛上有许多危险的地牢，有些地牢居住着古老而可怕的老板，而另一些则居住着更多被误解和健谈的老板。为了增加他征服岛上挑战的机会，我们的英雄将获得新技能，捕鱼，烹饪营养餐，发现珍贵的宝藏，并在岛上的神社中寻求许多神灵的祝福。</p> <p>　　岛上有许多迷人的居民。有些是将与我们的英雄进行交易的商人。其他人更愿意派他去冒险，有时甚至是愚蠢的任务，以换取丰厚的奖励。</p> <p>　　岛上居住着许多迷人的居民。其中有愿意与我们的英雄进行贸易的商人，而其他人则会派他去冒险，为他提供丰厚的奖励作为回报。</p> <p>　　讲故事：</p> <p>　　游戏在故事和角色对话中注重&ldquo;幽默和乐趣&rdquo;，以及许多流行的参考资料。在整个岛屿上，主角会遇到许多角色，包括神灵。此外，还有许多传说书籍可以增加深度并解释岛屿之外的更广阔世界。</p> <p>　　性格：</p> <p>　　莫格伦是一个坚韧无畏的兽人。他在雷霆岛的旅程将向他带来无数挑战，为了克服这些挑战，他必须升级、学习技能、解锁新能力、接受祝福并在正确的时间吃正确的食物。</p> <p>　　地下城：</p> <p>　　每个地牢都有自己的主题和一组独特的谜题。例如，在其中一个游戏中，你必须变身为一个特定的生物，并以这种形式玩整个地牢。支线地牢，也被称为&ldquo;洞穴&rdquo;，有自己的谜题和遭遇，为玩家提供了广泛的内容变化。</p> <p>　　任务：</p> <p>　　主任务线让玩家踏上探索整个雷霆岛的旅程，一路上，莫格伦会遇到许多需要他协助完成各种任务的居民。莫格伦会很乐意，有时甚至不情愿地帮助这些人，并获得丰厚的经验值和任务奖励作为回报。</p> <p>　　收集：</p> <p>　　游戏还具有收集马拉松方面，带有化妆帽，为角色增添了风格和时尚感。原声带可以在游戏中收听，但首先必须找到单独的配乐。最后但并非最不重要的一点是，还有&ldquo;水晶蛤蜊&rdquo;，我不会在这里剧透。</p> <p><h4>下载地址(由网友<font color="red">smakmomo</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109486/](https://lad.sfcrom.cn/2024/04/109486/)

@@ -1,0 +1,13 @@
+---
+title: "[PC]《工业崛起 Rise of Industry》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　【PC】《工业崛起 Rise of Industry》中文版下载。游戏中玩家要成为一代工业大亨，在各个城市之间建立起自己的工业商业政治帝国，迎娶白富美走向人生巅峰。 　　作为一位新兴的企业家，你要建造工厂、建设有效的运输线、运输原材料、生产成品，并与世界上不断发展的城市进行贸易，为他们提供蓬勃发&hellip;"
+layout: post
+---
+
+ <p>　　【PC】《工业崛起 Rise of Industry》中文版下载。游戏中玩家要成为一代工业大亨，在各个城市之间建立起自己的工业商业政治帝国，迎娶白富美走向人生巅峰。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603711a36c43.webp" width="533" alt="[PC]《工业崛起 Rise of Industry》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603711ab6065.webp" width="530" alt="[PC]《工业崛起 Rise of Industry》中文版下载" /></p> <p>　　作为一位新兴的企业家，你要建造工厂、建设有效的运输线、运输原材料、生产成品，并与世界上不断发展的城市进行贸易，为他们提供蓬勃发展所需的资源 &mdash;&mdash; 因为当它们生生不息的时候，你的企业也会繁荣昌盛。</p> <p>　　《Rise of Industry》追求可执行性和深度并重的设计，有足够的策略复杂度和可重玩性，以满足最有经验的策略游戏粉丝，而其简单易懂的机制确保新玩家也会喜欢它。</p> <p>　　游戏玩法</p> <p>　　游戏让你扮演20世纪初的实业家。在自动生成的不断发展、有生命力的世界中，建设和管理你日益增长的帝国，让它不断发展并适应你的游戏风格。</p> <p>　　一款模拟经营的游戏，让你体验白手起家的感觉，无论是在农业，重工业，还是轻工业，都有一套完整的自我的运作流程。丰富的科技树，让每一项产品都连在一起，丰富了游戏可玩性，可供玩家自我生成的地图，多样事件，为游戏增添了一些未知的挑战。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows (64 bit only) 7 / 8 / 8.1 / 10</p> <p>　　处理器: Intel Core 2 Duo, 3.0GHz or AMD Athlon 64 X2 6400+, 3.2GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　图形: nVidia GeForce GT 600 or Radeon 5000 and above. Shader Model 51. Integrated GPUs not recommended</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　说明：安装游戏记得全英文路径，关杀毒软件哦。</p> <p>　　1. 解压缩 2. 载入镜像 3. 安装游戏 4. 复制CODEX文件夹下的未加密补丁到游戏目录覆盖 5. 运行游戏</p> <p>　　这是一款很好玩的模拟经营类游戏，对工业模拟经营感兴趣的话，玩家朋友们可以来试试。</p> <p><h4>下载地址(由网友<font color="red">13889942074</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/49471/](https://lad.sfcrom.cn/2024/03/49471/)

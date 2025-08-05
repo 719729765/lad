@@ -1,0 +1,13 @@
+---
+title: "switch《离去之前 Before We Leave》中文版1.0.1补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《离去之前 Before We Leave》中文版下载，这是一款模拟经营游戏，城市设计和建造的主题，玩家要在一座星球上，从原始的社会开始进行建设，最终将这发展成为星际文明。 　　Before We Leave是一款设定在茫茫宇宙中某处舒适小角落里的，和谐的城市建设游戏。你将在这里重寻&hellip;"
+layout: post
+---
+
+ <p>　　switch《离去之前 Before We Leave》中文版下载，这是一款模拟经营游戏，城市设计和建造的主题，玩家要在一座星球上，从原始的社会开始进行建设，最终将这发展成为星际文明。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=459008815&amp;bvid=BV1D5411J75G&amp;cid=292358417&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661541a3841ee.jpg" alt="switch《离去之前 Before We Leave》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661541a40b839.jpg" alt="switch《离去之前 Before We Leave》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661541a48476a.jpg" alt="switch《离去之前 Before We Leave》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661541a52cb99.jpg" alt="switch《离去之前 Before We Leave》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661541a5b396c.jpg" alt="switch《离去之前 Before We Leave》中文版1.0.1补丁下载" /></td> </tr> </tbody> </table> <p>　　Before We Leave是一款设定在茫茫宇宙中某处舒适小角落里的，和谐的城市建设游戏。你将在这里重寻失落历史，同时让你的文明得到重生。囤积，搜集并管理资源，让你的定居点繁荣昌盛，在你周边的六边形土地乃至星球之间分享物资，互通有无。放轻松，慢慢编织你的星际扩荒故事，以自己的节奏创造幸福星球组成的小宇宙吧。冒险旅程并非一帆风顺，开动你的脑筋，研究研究办法，克服你的先祖曾经遇到过的挑战吧。</p> <p>　　故事介绍</p> <p>　　你的小屁人已经生活在地下数代之久。远去了阳光触摸皮肤的轻柔，淡忘了脚趾间泥土的参差，也早已遗失了小虫子降落在鼻翼上微微发痒的感觉。他们生生不息，满怀好奇，却几乎对种植一无所知，除了一样拿手&mdash;&mdash;种土豆。提供庇护所，一步步重建他们失落的文明，揭开古老科技的神秘面纱，并让这一重生的文明播散至其它大陆乃至其它星球。</p> <p>　　但宇宙是一片危险的黑暗森林。古老而强大的守护者不会坐视无睹，它们会挑战你的家园&mdash;&mdash;避开这些阻碍繁荣的孽畜，别让它们破坏了这份安宁祥和，如果行动将取决于你。</p> <p>　　在掌控新资源的过程中，你并不需要与邻里大动兵戈&mdash;&mdash;这里只有你，以及一片充满机遇的大千世界。</p> <p>　　游戏特色</p> <p>　　建造定居点，为新近才回到地面的小屁人准备好新家吧</p> <p>　　发现并研究潜藏在你周围的古代科技</p> <p>　　管理资源、治理污染、提升幸福感，别重蹈先辈的覆辙</p> <p>　　贸易往来，可以穿梭海洋与星系，让你的各个定居点互通有无</p> <p>　　探索大小各异，五花八门的小岛，共有六种不同生态系统</p> <p>　　保护小屁人免受潜藏在星系之间的远古生物的袭扰</p> <p>　　以上内容就是小编为大家带来的《离去之前 Before We Leave》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">kennis08</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145598/](https://lad.sfcrom.cn/2024/04/145598/)

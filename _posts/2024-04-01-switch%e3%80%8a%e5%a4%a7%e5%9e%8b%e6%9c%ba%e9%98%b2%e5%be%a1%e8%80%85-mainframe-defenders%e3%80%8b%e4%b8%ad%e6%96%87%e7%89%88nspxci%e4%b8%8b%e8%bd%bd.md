@@ -1,0 +1,13 @@
+---
+title: "switch《大型机防御者 Mainframe Defenders》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《大型机防御者 Mainframe Defenders》中文版下载，Mainframe Defenders是一款风格复古的策略游戏，玩家的目标是通过技术手段消灭电脑病毒。 　　游戏介绍 　　一种计算机病毒已渗透到&ldquo; Stargazer&rdquo;研究中心。大多数机械手都&hellip;"
+layout: post
+---
+
+ <p>　　switch《大型机防御者 Mainframe Defenders》中文版下载，Mainframe Defenders是一款风格复古的策略游戏，玩家的目标是通过技术手段消灭电脑病毒。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=290970927&amp;bvid=BV1jf4y1a76p&amp;cid=348789399&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a015f0a654.jpg" alt="switch《大型机防御者 Mainframe Defenders》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a015f77c45.jpg" alt="switch《大型机防御者 Mainframe Defenders》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a015febf9c.jpg" alt="switch《大型机防御者 Mainframe Defenders》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a01606f3dc.jpg" alt="switch《大型机防御者 Mainframe Defenders》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0160e25e8.jpg" alt="switch《大型机防御者 Mainframe Defenders》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　一种计算机病毒已渗透到&ldquo; Stargazer&rdquo;研究中心。大多数机械手都受病毒控制。带领4个原型机小队执行防御复杂大型机的任务。您将必须击退攻击，破坏单位制造商，下载有价值的数据，清除受感染的节点，并在通往综合体最深层的途中做更多的事情。处理项目的限制和缺点，以构建强大的组合。用多种战术消灭敌人：使敌人过热，腐蚀融化，吸收伤害并返回火力。但是不要过分依赖单一策略，敌人可能有办法对付它。但是最重​​要的是：捍卫大型机!</p> <p>　　游戏特色</p> <p>　　*复古风格：图形，灵感来自80年代带有混合合成波音轨的终端PC。</p> <p>　　*多样的战术：将敌人的机器人煮死，将其埋在子弹下，用一个有力的射击消灭它们，或者使你的对手陷入负面状态-该游戏在设计时考虑了许多可行的策略。</p> <p>　　*建立您的小队：类似于在纸牌游戏中您必须建立自己的小队，在MAINFRAME DEFENDERS中，您必须将具有独特能力的不同物品组合在一起，以创建一支不可阻挡的小队。处理项目缺陷或加倍处理，以创建有缺陷但功能强大的构建!</p> <p>　　*独特的敌人：敌人小队不会闲着。每个小组在小队中都有其自己的作用，旨在对抗某些策略。明智地选择目标，否则就会失败。</p> <p>　　*程序级别：手工制作的房间与程序生成相结合以创建随机级别。任务具有不同的目标，并结合独特的任务条件。您会接受挑战还是避免未知的事物并避免落后于他人的风险?</p> <p>　　*进阶系统：胜利或失败，游戏尚未结束!解锁新的单位，每个单位都有一套独特的升级和输出。解锁新物品以支持您的新策略。</p> <p><h4>下载地址(由网友<font color="red">zhanglinliao</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101889/](https://lad.sfcrom.cn/2024/04/101889/)

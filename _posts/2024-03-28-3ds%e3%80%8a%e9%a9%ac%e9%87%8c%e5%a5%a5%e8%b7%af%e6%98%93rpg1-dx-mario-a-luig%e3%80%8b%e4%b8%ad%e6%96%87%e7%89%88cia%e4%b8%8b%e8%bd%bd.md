@@ -1,0 +1,13 @@
+---
+title: "3DS《马里奥&#038;路易RPG1-DX Mario &#038;a Luig》中文版cia下载"
+date: 2024-03-28
+tags: []
+categories: ["3DS中文游戏"]
+excerpt: "　　3DS《马里奥&amp;路易RPG1-DX Mario &amp;a Luig》中文版cia下载，依旧是玩家们所熟悉的马里奥兄弟系列作品，在游戏中玩家可以任意选择两兄弟的角色来展开冒险探索哦。喜欢马里奥系列的玩家千万不要错过哦。 　　游戏类型：角色扮演 　　游戏语言：简体 　　游戏大小：562.&hellip;"
+layout: post
+---
+
+ <p>　　3DS《马里奥&amp;路易RPG1-DX Mario &amp;a Luig》中文版cia下载，依旧是玩家们所熟悉的马里奥兄弟系列作品，在游戏中玩家可以任意选择两兄弟的角色来展开冒险探索哦。喜欢马里奥系列的玩家千万不要错过哦。</p> <p>　　游戏类型：角色扮演</p> <p>　　游戏语言：简体</p> <p>　　游戏大小：562.6M</p> <p>　　游戏版本：汉化版</p> <p>　　发行日期：</p> <p>　　发行厂商：</p> <p>　　英文名称：Mario &amp; Luigi: Superstar Saga + Bowser&#39;s Minions</p> <p>　　游戏名称：马里奥&amp;路易RPG1-DX</p> <p>　　游戏版本：汉化版</p> <p>　　游戏类型：角色扮演类</p> <p>　　游戏语言：中文</p> <p>　　制作公司：Alphadream Corporation</p> <p>　　发行公司：Nintendo</p> <p>　　发行日期：2017/10/06</p> <p>　　马里奥路易RPG的开山作，曾经是GBA时代的神作之一。故事讲的是库巴原本想来掳走桃子公主，结果被化妆成豆豆王国大使的魔女咯咯莫纳抢先一步，魔女夺走了桃子公主正常的声音，让桃子公主一说话就变成冲击力极强的炸弹音。库巴嫌弃桃子公主声音太难听，于是打算跟马里奥一起先夺回桃子公主的声音后，再考虑掳走桃子公主(想得可真美)&hellip;&hellip;但事与愿违，库巴的飞船刚刚出发就遭到袭击而坠毁了，分头行动的马里奥和库巴在豆豆王国展开了一系列的神奇大冒险!顺便，3DS重制版新增了以往没有讲到的，在马里奥兄弟背后行动的库巴军团暗线故事，有兴趣知道暗线剧情的可以玩玩看。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66054a41a6f24.jpg" width="551" alt="3DS《马里奥&amp;路易RPG1-DX Mario &amp;a Luig》中文版cia下载" /></p> <p>　　以上就是《马里奥&amp;路易RPG1-DX Mario &amp;a Luig》中文版cia下载，更多内容请持续关注游戏年轮</p> <p><h4>下载地址(由网友<font color="red">miku233</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/70480/](https://lad.sfcrom.cn/2024/03/70480/)

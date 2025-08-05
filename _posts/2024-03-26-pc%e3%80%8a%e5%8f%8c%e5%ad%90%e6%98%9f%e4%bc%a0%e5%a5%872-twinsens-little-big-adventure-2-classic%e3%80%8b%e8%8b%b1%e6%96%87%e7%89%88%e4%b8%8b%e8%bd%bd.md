@@ -1,0 +1,13 @@
+---
+title: "PC《双子星传奇2 Twinsen&#039;s Little Big Adventure 2 Classic》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《双子星传奇2 Twinsen&#039;s Little Big Adventure 2 Classic》英文版下载。这是一款很经典的动作冒险游戏，发售于1997年，玩法和剧情在当时都很出色，喜欢老游戏的玩家可以收藏一下哦。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：[2.21]&hellip;"
+layout: post
+---
+
+ <p>　　PC《双子星传奇2 Twinsen&#39;s Little Big Adventure 2 Classic》英文版下载。这是一款很经典的动作冒险游戏，发售于1997年，玩法和剧情在当时都很出色，喜欢老游戏的玩家可以收藏一下哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dbddcb3f.jpg" alt="PC《双子星传奇2 Twinsen&amp;#039;s Little Big Adventure 2 Classic》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dbec7843.jpg" alt="PC《双子星传奇2 Twinsen&amp;#039;s Little Big Adventure 2 Classic》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dbf3daee.jpg" alt="PC《双子星传奇2 Twinsen&amp;#039;s Little Big Adventure 2 Classic》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dc02efe4.jpg" alt="PC《双子星传奇2 Twinsen&amp;#039;s Little Big Adventure 2 Classic》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：[2.21]</p> <p>　　游戏发行：[2.21]</p> <p>　　《双子星传奇Ⅱ》由法国Adeline软件国际公司1997年出品的光盘版的有惊险动作成份的冒险类游戏。游戏有400M的CD音乐(9首立体声CD音乐)。游戏一代(攻略见万水电脑游戏软件宝典系列之《电脑游戏葵花宝典》)推出后，受到热烈欢迎，该公司又推出更精美的二代。精美的SVGA图形，人物采用立体的幽默造型，过场动画流畅。游戏有全程语音(英语)，并有5种语言的文本显示。</p> <p>　　游戏内容</p> <p>　　故事继承一代，众望所归的大英雄Twinsen终于从邪恶的博士手底下拯救了双子星，并且和女友结婚还有了个孩子。。。夕阳下，Lupin Burg一片祥和，估计双子星上的其他地方也是如此吧。</p> <p>　　但美丽宁静的生活被一场笼盖全球的怪暴风雨打破了，爱玩的飞龙也在暴风雨中受伤。对于这位曾无数次与自己出生入死的老朋友，Twinsen自然不能不管，于是他踏上了驱散神秘暴风雨和寻找能治疗&ldquo;传说中的神兽飞龙&rdquo;的灵丹妙药的征程。。。。</p> <p>　　暴风雨的来临是偶然吗?如果不是，那这又预示着什么呢?</p> <p>　　这次Twinsen将摆脱重力的限制，冒险历程纵横于3个星球之间。而且Twinsen还可以使用汽车、宇宙战斗服、甚至手机等一系列新的辅助设备。。。哈哈，你甚至可以开着小汽车跑到赛道上和别人来一场极品飞车。。。即时演算的室外情景带来了与众不同的感受，更加精细庞大的室内场景充分展示了CG的优势。在加上优美动听，而又把场景气氛烘托到恰到好处的音乐，以及到最后让人大吃一惊的出色剧情。。。这款游戏不玩绝对是遗憾。。。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows XP, Vista, 7</p> <p>　　处理器: 1.8 GHz</p> <p>　　内存: 1 GB RAM</p> <p>　　存储空间: 需要 1010 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《双子星传奇2 Twinsen&#39;s Little Big Adventure 2 Classic》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">hermit2012</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39024/](https://lad.sfcrom.cn/2024/03/39024/)

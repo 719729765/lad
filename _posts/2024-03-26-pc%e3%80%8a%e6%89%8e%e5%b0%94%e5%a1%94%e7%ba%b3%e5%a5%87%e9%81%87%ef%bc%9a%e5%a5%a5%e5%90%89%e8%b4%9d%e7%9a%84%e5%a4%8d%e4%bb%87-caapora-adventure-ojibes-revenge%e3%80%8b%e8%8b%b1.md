@@ -1,0 +1,13 @@
+---
+title: "PC《扎尔塔纳奇遇：奥吉贝的复仇 Caapora Adventure &#8211; Ojibe&#039;s Revenge》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《扎尔塔纳奇遇：奥吉贝的复仇 Caapora Adventure - Ojibe&#039;s Revenge》英文版下载，这是一款动作冒险类型的游戏，它为我玩家提供了自由度很高的玩法，你将在一个古老的世界中冒险。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Overaction G&hellip;"
+layout: post
+---
+
+ <p>　　PC《扎尔塔纳奇遇：奥吉贝的复仇 Caapora Adventure - Ojibe&#39;s Revenge》英文版下载，这是一款动作冒险类型的游戏，它为我玩家提供了自由度很高的玩法，你将在一个古老的世界中冒险。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660335835b448.jpg" alt="PC《扎尔塔纳奇遇：奥吉贝的复仇 Caapora Adventure - Ojibe&amp;#039;s Revenge》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660335844f813.jpg" alt="PC《扎尔塔纳奇遇：奥吉贝的复仇 Caapora Adventure - Ojibe&amp;#039;s Revenge》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033584c1c08.jpg" alt="PC《扎尔塔纳奇遇：奥吉贝的复仇 Caapora Adventure - Ojibe&amp;#039;s Revenge》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Overaction Game Studio</p> <p>　　游戏发行：Overaction Game Studio</p> <p>　　扎尔塔纳奇遇结合了一个伟大的故事，独特的卡通3D视觉效果和令人兴奋的游戏体验到一个史诗般的动作冒险体验。在游戏中，你将探索扎尔塔纳大陆，一个充满危险、谜题和秘密的世界。你必须与受巴西民间传说启发的生物战斗，学会使用本土武器和发现古代宝藏，这将有助于你的探索。用你所有的智慧和技巧来揭开扎尔塔纳大陆的神秘面纱。</p> <p>　　故事介绍</p> <p>　　很久以前，世界一直被神话世界和人类世界之间的持续冲突所统治。</p> <p>　　但是有一天，一个叫塔曼德(Tamand)的非常强大的萨满祭司出现了，并通过一个叫做卡波拉(Caapora)的圣石关闭了传送门，从而在两个世界之间实现了和平。</p> <p>　　从那时起，这种石头就一直受到由卡波拉(Caapora)力量创造的元素守护者的保护。</p> <p>　　几年后，这块圣石被一个叫做Ojibe的叛徒萨满分解，分成四部分，分布在整个Zaltana大陆。</p> <p>　　从那时起，混乱和黑暗再次在人类世界上盘旋，神话生物和实体，例如：Boitat&aacute;，Yara，Mapinguari，Caipora(Curupira)e Mula sem cabeca，回到了他们的世界。</p> <p>　　帮助Yacamin再次恢复两个世界之间的和平!</p> <p>　　游戏特色</p> <p>　　以亚马逊雨林为灵感，探索一个美丽的世界</p> <p>　　来自巴西神话和传说的失败</p> <p>　　通过使用新的行为来释放新的地方(游泳，爆炸炸弹，类似都市的游戏)</p> <p>　　使用武器，如：弓，魔法炸弹，长矛，萨拉巴塔纳，手工盾牌</p> <p>　　很多谜题要在地牢里解决</p> <p>　　原始字符</p> <p>　　原声配乐</p> <p>　　史诗小说</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: 1.7 GHz Dual Core or faster</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: DirectX 10 compatible, 256 MB VRAM</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　声卡: DirectX 10 compatible</p> <p>　　附注事项: Even slower systems may run the game.</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《扎尔塔纳奇遇：奥吉贝的复仇 Caapora Adventure - Ojibe&#39;s Revenge》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">徐久一</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/42581/](https://lad.sfcrom.cn/2024/03/42581/)

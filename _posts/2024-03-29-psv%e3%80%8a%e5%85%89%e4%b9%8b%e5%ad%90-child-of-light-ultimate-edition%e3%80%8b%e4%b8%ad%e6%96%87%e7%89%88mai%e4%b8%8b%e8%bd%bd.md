@@ -1,0 +1,13 @@
+---
+title: "psv《光之子 child of light ultimate edition》中文版Mai下载"
+date: 2024-03-29
+tags: []
+categories: ["PSV中文游戏"]
+excerpt: "　　psv《光之子 child of light ultimate edition》中文版Mai下载，《光之子》是根据童话故事改编而成的一款冒险游戏，下面是关于游戏的简介内容分享。感兴趣的玩家快去下载体验吧~ 　　PSV光之子港版中文 　　游戏大小：916.5M 　　游戏版本：港版中文 　　游戏名称&hellip;"
+layout: post
+---
+
+ <p>　　psv《光之子 child of light ultimate edition》中文版Mai下载，《光之子》是根据童话故事改编而成的一款冒险游戏，下面是关于游戏的简介内容分享。感兴趣的玩家快去下载体验吧~</p> <p>　　PSV光之子港版中文</p> <p>　　游戏大小：916.5M</p> <p>　　游戏版本：港版中文</p> <p>　　游戏名称：Child of Light</p> <p>　　中文名称：光之子</p> <p>　　游戏版本：港版</p> <p>　　游戏类型：角色扮演类</p> <p>　　游戏语言：中文</p> <p>　　制作公司：Ubisoft</p> <p>　　发行公司：Ubisoft</p> <p>　　发行日期：2014/07/31</p> <p>　　风评不错的一款RPG游戏，游戏由育碧发行，虽然是欧美游戏，不过玩法很类似日式游戏，下面放出游戏的港版下载，感兴趣的玩家不要错过哦。</p> <p>　　该作讲述了一个名为Aurora的年轻冒险者，她被人带入了一个名叫Lemuria的世界，为了回到熟悉的加，她必须从神秘的夜之皇后手中取回太阳、月亮和星辰。陪她一起踏上征程的还有萤火虫Igniculus还有一些各式各样的伙伴，而这一路上Aurora要克服自己内心的恐惧，还有各式各样的奇妙生物。游戏中将会有很多解谜要素以及经典的有计时系统的回合制战斗。因此，在合适的时机打断敌人的攻击以及巧妙地运用元素攻击克制敌人的攻击是赢得战斗胜利的关键。同伴Igniculus会在战斗中帮忙，也可以有另一个玩家控制。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660671d804314.jpg" width="411" alt="psv《光之子 child of light ultimate edition》中文版Mai下载" /></p> <p>　　以上就是《光之子 child of light ultimate edition》中文版Mai下载，更多内容请持续关注游戏年轮</p> <p><h4>下载地址(由网友<font color="red">bigpigeon</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/84665/](https://lad.sfcrom.cn/2024/03/84665/)

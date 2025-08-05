@@ -1,0 +1,13 @@
+---
+title: "switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载【1.5.10补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载。游戏背景是一个古老的魔法世界国度，这里强大的魔法和各方势力之间维持着微妙的平衡，随着国王的失踪，这个平衡开始被打破，这个世界开始变得混乱起来。 　　自古以来，便有远古的法师秩序，保护&hellip;"
+layout: post
+---
+
+ <p>　　switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载。游戏背景是一个古老的魔法世界国度，这里强大的魔法和各方势力之间维持着微妙的平衡，随着国王的失踪，这个平衡开始被打破，这个世界开始变得混乱起来。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74bae0461.webp" alt="switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载【1.5.10补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74bb5f9de.webp" alt="switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载【1.5.10补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74bbb73ad.webp" alt="switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载【1.5.10补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74bc1dd03.webp" alt="switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载【1.5.10补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74bc85cd8.webp" alt="switch《米特尔伯格：法师之城 Mittelborg: City of Mages》英文版nsp/xci下载【1.5.10补丁】" /></td> </tr> </tbody> </table> <p>　　自古以来，便有远古的法师秩序，保护和守护秩序之树。秩序树显示了宇宙中所有现有力量的平衡。</p> <p>　　the如果树茂盛，它会给法师以太以防止魔法世界的混乱。当最后一位总理在一次远征中失踪时，秩序之树不断消失。这导致了神圣力量的巨大不平衡和神秘凡人狂暴的爆发。</p> <p>　　Chan新总理有重生的权力。死亡后，所有的记忆和技能都会保存下来。但是这种力量是沉重的负担。Mittelborg的空气中弥漫着混乱的气味。您的目标是调查即将出现混乱的原因。建立自己的独特策略以生存并发现结局，揭露Mittelborg的所有秘密。校长会保存魔法吗?您是决定的人。</p> <p>　　游戏内容</p> <p>　　保护城市!</p> <p>　　米特堡是这个世界的心脏，数千把剑瞄准了它。怪物，游牧民族，雇佣军，亡灵和叛逆的灵魂，邪恶混沌不会沉睡，他会一直惦记着你。收集资源，为暴风雨做准备，在墙壁上守卫，在塔楼守法。当大量血液溢出时，请记住有什么危险。最好流下一加仑的血，而不是从秩序之树上丢下一片叶子。</p> <p>　　思考和统治!</p> <p>　　Mittelborg称赞您的手表坚定不移，总理!不同的事件会迫使您始终做出艰难的决定。您会牺牲谁：战士还是法师?你执行还是赦免?将乙醚花在武器的修理或升级上吗?权力是沉重的负担。您会保护最神圣的，还是会在血液中淋湿&hellip;&hellip;</p> <p>　　战斗，死亡，再次战斗!</p> <p>　　在混乱的浪潮席卷Order海岸的地方，人类的生命一文不值。在这里死很容易，没有人担心明天。只有你!你是不朽的人。每一次重生都是新知识。您可以磨练该策略并保存以前的所有经验，这将帮助您忍受更长的时间。</p> <p>　　世界辽阔。</p> <p>　　您开始了漫长而危险的冒险。将会有数十个世界和敌对的种族，数百个独特的事件，数千个相互交织的命运和故事&hellip;&hellip;您必须承担一切风险并做出正确的选择。</p> <p><h4>下载地址(由网友<font color="red">hahahaha111</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109791/](https://lad.sfcrom.cn/2024/04/109791/)

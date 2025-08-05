@@ -1,0 +1,13 @@
+---
+title: "switch《太空罗宾逊 Space Robinson》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《太空罗宾逊 Space Robinson》中文版。一款太空题材的高难度动作射击游戏。游戏中你要扮演倒霉却又幸运的工程师罗宾逊，他在一次太空飞行事故中存活了下来，现在，在危机四伏的外太空生存下来才是重中之重。 　　你是一位普通的工程师，被派往位于遥远星系的21号殖民地执行维护工作。期&hellip;"
+layout: post
+---
+
+ <p>　　switch《太空罗宾逊 Space Robinson》中文版。一款太空题材的高难度动作射击游戏。游戏中你要扮演倒霉却又幸运的工程师罗宾逊，他在一次太空飞行事故中存活了下来，现在，在危机四伏的外太空生存下来才是重中之重。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=72041255&amp;bvid=BV1VE411r7Uv&amp;cid=124829275&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a070b671fb.webp" alt="switch《太空罗宾逊 Space Robinson》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a070bc28b2.webp" alt="switch《太空罗宾逊 Space Robinson》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a070c2b96b.webp" alt="switch《太空罗宾逊 Space Robinson》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a070c86ce4.webp" alt="switch《太空罗宾逊 Space Robinson》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a070cde1c3.webp" alt="switch《太空罗宾逊 Space Robinson》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　你是一位普通的工程师，被派往位于遥远星系的21号殖民地执行维护工作。期间飞船坠毁，而你在事故中幸存下来，并到达一处废弃的殖民基地。当你试图寻找答案时，你就会明白，这个地方并不像它表面看起来那么平静。你就如同罗宾逊一样，迷失在外太空，并努力在危机四伏的星球上生存下来。</p> <p>　　游戏内容</p> <p><strong>硬核难度</strong></p> <p>　　这可是一个Rogue-like游戏。你会死的。你真会死的。你真的会死的!!!死无数遍。教程结束后，您就有机会正面对抗真正的怪物。</p> <p><strong>永不重复</strong></p> <p>　　贯穿三大区域的每一个独立关卡都是随机生成的，因此你总能找到一个新地方死去!你真的觉得你能活下来吗?请试玩DEMO版本，并填写问卷告诉我们游戏过程，你有点过于自信哦!</p> <p>　　但是!如果你真的足够强，有幸通过几个关卡，你会发现一个前哨站，在那里你可以重新整备，还可以找到殖民者的遭遇的线索。</p> <p><strong>黑夜模式</strong></p> <p>　　你找到了在白天生存的窍门?别担心，这个星球还有夜生活等着你!好好享受这不一样的夜间模式，它会给你带来...死亡!</p> <p><strong>智能辅助</strong></p> <p>　　如果你足够幸运，你能找到一些人工制品并建造机器人来辅助自己!开始只是一只可爱的小狗，一旦遇到怪物，它就会瞬间变成狂暴的野兽。</p> <p><strong>制造与升级</strong></p> <p>　　好消息：死亡也有好处!一旦你死了，你未雨绸缪留在基地的DNA就会发挥作用，殖民基地的人工智能会用它精确制造一个你的复制人。你收集的所有水晶和人工制品都会得到保留(别问我们这怎么实现的;只有殖民者知道答案 --- 问他们去，只要你能找到他们)。</p> <p>　　使用人工制品去修复殖民基地的单元，或者用水晶升级反应器给基地供能。每一个经过修复的单元都会提升你的状态，并且增加你生存的机会。</p> <p><h4>下载地址(由网友<font color="red">ahh5228497</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100791/](https://lad.sfcrom.cn/2024/04/100791/)

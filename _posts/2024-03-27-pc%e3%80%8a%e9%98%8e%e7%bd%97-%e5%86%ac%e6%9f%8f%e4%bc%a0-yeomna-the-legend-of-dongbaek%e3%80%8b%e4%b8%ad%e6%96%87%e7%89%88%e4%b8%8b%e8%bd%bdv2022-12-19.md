@@ -1,0 +1,13 @@
+---
+title: "PC《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版下载v2022.12.19"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版下载，这是一款横版动作游戏，《银河恶魔城》类型的玩法，故事背景是传统神话的元素，喜欢这类动作游戏的玩家不要错过。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：catnipstudio 　　游戏发行&hellip;"
+layout: post
+---
+
+ <p>　　PC《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版下载，这是一款横版动作游戏，《银河恶魔城》类型的玩法，故事背景是传统神话的元素，喜欢这类动作游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=599063810&amp;bvid=BV1VB4y1r718&amp;cid=790127843&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cf884580.webp" alt="PC《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版下载v2022.12.19" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cf8db103.webp" alt="PC《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版下载v2022.12.19" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cf93bca4.webp" alt="PC《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版下载v2022.12.19" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cf9980ae.webp" alt="PC《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版下载v2022.12.19" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：catnipstudio</p> <p>　　游戏发行：catnipstudio</p> <p>　　游戏介绍</p> <p>　　魔王战败后，玉皇大帝统治的世界一度平静，不祥的火焰再次升起。</p> <p>　　当驱魔者们与恶魔王的爪牙们对抗时，一个较小的驱魔者董白，</p> <p>　　是奉约姆纳勋爵的命令送到海豹镇的。</p> <p>　　穿越恶魔出没的黑社会，打败恶魔，收集古代记录，寻找失踪的孩子和隐藏的真相。</p> <p>　　重建废墟村庄，成为强大的驱魔者。</p> <p>　　游戏特色</p> <p>　　体验受韩国传统绘画启发的梦幻村庄和黑社会，重新想象为游戏艺术。</p> <p>　　在人类和猫科动物之间变换形状以避免陷阱，并操纵物体以打开新的路径。</p> <p>　　发现隐藏的地方，获得技能和各种物品收集。</p> <p>　　收集保存董白记忆和约姆纳秘密的卷轴，寻找黑社会的真相。</p> <p>　　根据韩国民间传说的传统形象，新创造的恶魔以朋友或敌人的身份出现。</p> <p>　　由传统2D逐帧动画和骨架动画组合而成的生动角色。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Window 7</p> <p>　　处理器: Intel Core 2 Duo E5200</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: GeForce GTX 660</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 9 GB 可用空间</p> <p>　　附注事项: 1080p, 16:9 recommended</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《阎罗 : 冬柏传 Yeomna The Legend of Dongbaek》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">李大力爱大萌</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52482/](https://lad.sfcrom.cn/2024/03/52482/)

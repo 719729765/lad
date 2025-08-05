@@ -1,0 +1,13 @@
+---
+title: "switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版下载，这是一款动作射击游戏，有点复古的3D画风，玩家要控制主角雷霆小子对抗机器人带来的威胁，赶快来体验一下吧。 　　这是一款动作冒险类游戏，雷霆小子有一次为了拯救世界展开行动，解救被绑架的人质，并终结&hellip;"
+layout: post
+---
+
+ <p>　　switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版下载，这是一款动作射击游戏，有点复古的3D画风，玩家要控制主角雷霆小子对抗机器人带来的威胁，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=257405878&amp;bvid=BV1uY411u7Gu&amp;cid=746274151&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a93ea751a5.jpg" alt="switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a93eb223f7.jpg" alt="switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a93ec0f687.jpg" alt="switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a93ecea51a.jpg" alt="switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a93eda721d.jpg" alt="switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　这是一款动作冒险类游戏，雷霆小子有一次为了拯救世界展开行动，解救被绑架的人质，并终结机器人的叛乱。</p> <p>　　游戏介绍</p> <p>　　你的任务:拯救北美被绑架的人类，阻止机器人的攻击</p> <p>　　你的敌人:致命的机器人帝国和他们神秘的新领袖</p> <p>　　成功，你就能拯救人类。输了，你就会向机器人末日说你好。</p> <p>　　游戏特色</p> <p>　　- 体验最新的低聚，后退图形技术</p> <p>　　-在充满活力的环境中奔跑，例如城市，洞穴，沼泽，火山和空中舰队</p> <p>　　- 挑战BOSS，享受令人振奋的怪异声音</p> <p>　　-响应式控件，固定的3D平台和多条路线，可让您随时参与游戏，为您带来数小时的乐趣，并为速跑者带来梦想</p> <p>　　-利用力量，拯救世界</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a93edf1570.png" width="337" alt="switch《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版nsp下载" /></p> <p>　　以上内容就是小编为大家带来的《雷霆小子2：空任务 Thunder Kid II Null Mission》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">15538591932</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110515/](https://lad.sfcrom.cn/2024/04/110515/)

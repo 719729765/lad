@@ -1,0 +1,13 @@
+---
+title: "switch《百年王国 The Hundred Year Kingdom》中文版1.4.1JP补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《百年王国 The Hundred Year Kingdom》中文版下载，这是一款模拟经营类游戏，拥有丰富的策略内容，玩家将在游戏中可以按照自己的想法孕育出各种风格的文明王国，赶快来看看吧。 　　故事介绍 　　这是个尚未有文明存在的新世界。 　　在这个尚不存在文明的世界上， 　　有位&hellip;"
+layout: post
+---
+
+ <p>　　switch《百年王国 The Hundred Year Kingdom》中文版下载，这是一款模拟经营类游戏，拥有丰富的策略内容，玩家将在游戏中可以按照自己的想法孕育出各种风格的文明王国，赶快来看看吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=636220333&amp;bvid=BV1Tb4y1J7KK&amp;cid=499402825&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154a3e5bac6.webp" alt="switch《百年王国 The Hundred Year Kingdom》中文版1.4.1JP补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154a3ee9c37.webp" alt="switch《百年王国 The Hundred Year Kingdom》中文版1.4.1JP补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154a3f71115.webp" alt="switch《百年王国 The Hundred Year Kingdom》中文版1.4.1JP补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154a4003d1d.webp" alt="switch《百年王国 The Hundred Year Kingdom》中文版1.4.1JP补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154a406daf8.webp" alt="switch《百年王国 The Hundred Year Kingdom》中文版1.4.1JP补丁下载" /></td> </tr> </tbody> </table> <p>　　故事介绍</p> <p>　　这是个尚未有文明存在的新世界。</p> <p>　　在这个尚不存在文明的世界上，</p> <p>　　有位造物主──也就是「你」，</p> <p>　　和一位有着神话中女神之名，被称为「神托少女」的少女。</p> <p>　　你和少女将同心协力，共享欢笑、泪水以及喜悦，</p> <p>　　并一步步培育出文明。</p> <p>　　百年后的世界究竟会是什么模样?</p> <p>　　欢迎身为玩家的你亲自体验。</p> <p>　　游戏特色</p> <p>　　本游戏是简单易玩的回合制模拟游戏。玩家透过建筑与开拓等方式，在百年间培育出文明。</p> <p>　　你将和被称为「神托巫女」，与神话中地母神同名的少女一起培育文明。</p> <p>　　游戏中不会有外交、战争或灾害等负面又复杂的要素。</p> <p>　　你的文明不会被蛮族入侵，也不会被甘地用核弹攻击。</p> <p>　　你可以随心所欲，自由地培育属于自己的文明。</p> <p>　　以上内容就是小编为大家带来的《百年王国 The Hundred Year Kingdom》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">aerkk</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146089/](https://lad.sfcrom.cn/2024/04/146089/)

@@ -1,0 +1,13 @@
+---
+title: "PC《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版下载，这是一款像素画风的冒险解谜游戏，故事讲述了欧洲中世纪时期，发生在一个小镇上的故事，感兴趣的玩家可以来关注一下。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Electrocosmos 　　游戏发&hellip;"
+layout: post
+---
+
+ <p>　　PC《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版下载，这是一款像素画风的冒险解谜游戏，故事讲述了欧洲中世纪时期，发生在一个小镇上的故事，感兴趣的玩家可以来关注一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=935695924&amp;bvid=BV1yT4y117q3&amp;cid=486352559&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660352e7e59fc.jpg" alt="PC《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660352e8558e6.jpg" alt="PC《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660352e8b518f.jpg" alt="PC《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660352e916e94.jpg" alt="PC《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Electrocosmos</p> <p>　　游戏发行：Application Systems Heidelberg</p> <p>　　这是一款以欧洲中世纪黑死病为背景的点击式冒险游戏，玩家扮演德国医生奥斯瓦德，在鼠疫到来时面对种种困境做出选择。在手绘风格像素艺术图形呈现出的中世纪欧洲小镇，体验一段扣人心弦的故事。</p> <p>　　游戏介绍</p> <p>　　体验中世纪德国瘟疫医生奥斯瓦德&middot;凯勒的工作日。做出诊断，开处方治疗，甚至进行手术。你还必须面对大众的无知，勇敢面对迷信。这是一项危险的工作，但这是你找到黑死病原因的唯一机会。</p> <p>　　《Wippra瘟疫医生》是一部短片，充满了医学谜题、中世纪细节和美丽的手绘像素艺术。期待有趣的角色、扣人心弦的故事，以及在具有当代共鸣的历史背景下的迷人游戏体验。</p> <p>　　特征</p> <p>　　穆迪中世纪背景，人物可信</p> <p>　　丰富的氛围和细致入微的故事讲述</p> <p>　　华丽、画质、低分辨率像素艺术</p> <p>　　现实历史和医学背景的困惑</p> <p>　　选择事关重大，推动故事发展，有多种结局</p> <p>　　现代展示中复古冒险的感觉</p> <p>　　不包含坏笑话</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 SP1</p> <p>　　处理器: Intel Core 2 Duo or equivalent</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: DirectX compatible graphics card</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 300 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《维普拉的鼠疫医生 The Plague Doctor of Wippra》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">moonxue</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/4315/](https://lad.sfcrom.cn/2024/03/4315/)

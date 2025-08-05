@@ -1,0 +1,13 @@
+---
+title: "switch《死亡微笑1+2 Deathsmiles I・II》中文版1.0.4补丁+DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《死亡微笑1+2 Deathsmiles I・II》中文版下载，《Deathsmiles》是一款2D的横版飞行射击游戏，是一个很经典的弹幕射击游戏系列，这是它在switch平台上推出的合集版本。 　　《死亡微笑 I・II》收录 2007 年在大型机台推出的横向捲轴类型射击游戏《死亡微&hellip;"
+layout: post
+---
+
+ <p>　　switch《死亡微笑1+2 Deathsmiles I・II》中文版下载，《Deathsmiles》是一款2D的横版飞行射击游戏，是一个很经典的弹幕射击游戏系列，这是它在switch平台上推出的合集版本。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=805073099&amp;bvid=BV1Dy4y1375Z&amp;cid=397124356&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153bdc79eb7.jpg" alt="switch《死亡微笑1+2 Deathsmiles I・II》中文版1.0.4补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153bdd2bd33.jpg" alt="switch《死亡微笑1+2 Deathsmiles I・II》中文版1.0.4补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153bdde02e2.jpg" alt="switch《死亡微笑1+2 Deathsmiles I・II》中文版1.0.4补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153bde90b9c.jpg" alt="switch《死亡微笑1+2 Deathsmiles I・II》中文版1.0.4补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153bdf6137d.jpg" alt="switch《死亡微笑1+2 Deathsmiles I・II》中文版1.0.4补丁+DLC下载" /></td> </tr> </tbody> </table> <p>　　《死亡微笑 I・II》收录 2007 年在大型机台推出的横向捲轴类型射击游戏《死亡微笑(旧译：死亡笑靥)》、加强版《死亡微笑 Mega Black Label》与《死亡微笑 II：魔界圣诞节》的实体版作品。</p> <p>　　收录作品和版本</p> <p>　　《死亡微笑》-&ldquo;街机版本&rdquo;、&ldquo;Ver.1.1&rdquo;、&ldquo;普通版本&rdquo;</p> <p>　　《死亡微笑 Mega Black Label》-&ldquo;街机版本&rdquo;、&ldquo;Ver.1.1&rdquo;、&ldquo;普通版本&rdquo;</p> <p>　　《死亡微笑 II：魔界圣诞节》- &ldquo;街机版本&rdquo;、&ldquo;IIX&rdquo;、&ldquo;改编&rdquo;</p> <p>　　除了实体一般版外，也将同时发售与和《死亡微笑》共享世界观之射击 RPG《哥德系魔法少女》合作的《死亡微笑 I・II：哥德系魔法少女 LOVE MAX EDITION》。</p> <p>　　《死亡微笑 I・II：哥德系魔法少女 LOVE MAX EDITION》将包含让《哥德系魔法少女》中的 5 名角色可以在《死亡微笑》内使用的 DLC 序号，并收录《哥德系魔法少女》作曲家为了追加内容创作之改编音乐的原声带 CD。</p> <p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153bdfb69e4.png" style="width: 511px; height: 200px;" alt="switch《死亡微笑1+2 Deathsmiles I・II》中文版1.0.4补丁+DLC下载" /></p> <p>　　关于这款游戏就为大家介绍到这里了，喜欢这个系列的玩家一定不要错过哦。</p> <p><h4>下载地址(由网友<font color="red">haishechina</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144288/](https://lad.sfcrom.cn/2024/04/144288/)

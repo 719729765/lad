@@ -1,0 +1,13 @@
+---
+title: "PC《零度 Temp Zero》中文版下载（v1.3）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《零度 Temp Zero》中文版下载，这是一款极简风格的射击游戏，结合了音乐节奏的射击玩法，游戏采用roguelike机制的玩法，十分耐玩，对这个类型游戏感兴趣的玩家不妨来关注一下把。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Alexandre Kadri/Paul Hebb&hellip;"
+layout: post
+---
+
+ <p>　　PC《零度 Temp Zero》中文版下载，这是一款极简风格的射击游戏，结合了音乐节奏的射击玩法，游戏采用roguelike机制的玩法，十分耐玩，对这个类型游戏感兴趣的玩家不妨来关注一下把。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=468564662&amp;bvid=BV1m541117Dt&amp;cid=587813111&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c4de2895.jpg" alt="PC《零度 Temp Zero》中文版下载（v1.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c4e4f83e.jpg" alt="PC《零度 Temp Zero》中文版下载（v1.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c4ead8ca.jpg" alt="PC《零度 Temp Zero》中文版下载（v1.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c4f1e730.jpg" alt="PC《零度 Temp Zero》中文版下载（v1.3）" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Alexandre Kadri/Paul Hebbinckuys</p> <p>　　游戏发行：Alexandre Kadri/Paul Hebbinckuys</p> <p>　　《Temp Zero》是一款极简风格的Roguelike游戏，融合了激烈的动作和音乐型弹幕射击。去打败按照音乐节奏发起攻击的敌人、选择加成、打倒终极Boss并解锁新武器、新法术和新音乐吧!</p> <p>　　游戏介绍</p> <p>　　摧毁一切</p> <p>　　用剑砍，扔炸弹，传送?选择你喜欢的方式，根据音乐的节奏将敌人打到外太空!</p> <p>　　音乐弹幕</p> <p>　　有炮弹、激光、箭、各种炸弹等等!一切都在按节奏进攻!速度越快，难度越高，用你的冲刺能力躲避危险吧!</p> <p>　　清除所有房间</p> <p>　　你需要面对大量充满敌人的房间，每个房间都有自己的建筑和弹幕。</p> <p>　　变强</p> <p>　　想要更多的武器伤害?更高的生命值?更多冲刺?选择不同的特殊技能来完成你的组合!</p> <p>　　全部解锁</p> <p>　　获得新武器、新法术、新音乐，并解锁可显示在您头顶的奖杯!</p> <p>　　游戏太简单了?</p> <p>　　添加尖刺，降低视力，为电视故障添加过滤器，并面对尽可能多的挑战!</p> <p>　　在排行榜上名列前茅</p> <p>　　与其他玩家对战，在每日排行榜上争夺一席之地，并赢得独特的奖励!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 64bit or above</p> <p>　　处理器: Dual Core CPU (2.5+ GHz Dual Core)</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 460 (1gb) / AMD Radeon HD6670 (1gb)</p> <p>　　存储空间: 需要 325 MB 可用空间</p> <p>　　声卡: Yes</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《零度 Temp Zero》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">xiaoliangbin</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51250/](https://lad.sfcrom.cn/2024/03/51250/)

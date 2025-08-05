@@ -1,0 +1,13 @@
+---
+title: "【荐】switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指!本作是以《超级马力欧》系列角色碧姬公主为主角的动作冒险游戏，碧姬公主来到了有许多舞台剧上演的闪耀剧场，但剧场被突然出现的可丽饼剧团占领。为了拯救转而上演悲剧的舞台，碧姬公主将挺身反&hellip;"
+layout: post
+---
+
+ <p>switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指!本作是以《超级马力欧》系列角色碧姬公主为主角的动作冒险游戏，碧姬公主来到了有许多舞台剧上演的闪耀剧场，但剧场被突然出现的可丽饼剧团占领。为了拯救转而上演悲剧的舞台，碧姬公主将挺身反抗可丽饼剧团!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=618458737&amp;bvid=BV1Sh4y1w7dh&amp;cid=1267519830&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609eeced5c5e.webp" width="700" alt="【荐】switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609eecf5d189.webp" width="700" alt="【荐】switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609eecfab879.webp" width="700" alt="【荐】switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609eed01eb54.webp" width="700" alt="【荐】switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609eed0869a3.webp" width="700" alt="【荐】switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609eed0e274f.webp" width="700" alt="【荐】switch《碧姬公主：表演时刻 Princess Peach Showtime》中文正式版nsp/xci下载+金手指" /></p></div> <p>　　游戏将以舞台剧的形式呈现，玩家将扮演碧姬公主，凭借妖精&ldquo;思忒拉&rdquo;给予的魔法缎带施展变身的能力，从&ldquo;桂葡剧团&rdquo;手中拯救灿光剧场。</p> <p>　　Peach</p> <p>　　收到传单后，桃子公主参观了剧院&mdash;&mdash;结果葡萄抢走了演出!现在，她正在成为聚光灯下的焦点，将葡萄的统治推向了结局。</p> <p>　　星</p> <p>　　闪闪发光剧院的乐于助人守护者。斯黛拉赋予桃子丝带的力量，让她能够与舞台互动并变身。</p> <p>　　葡萄</p> <p>　　一个神秘的蒙面恶棍，她接管了剧院，并用她可怕的剧团取代了主要演员。她渴望把每一出戏都变成悲剧。</p> <p>　　利用丝带的力量用攻击对付酸帮，与舞台互动，召集泰特人来帮忙，并激活变身平台以获得附魔能力!</p> <p>　　酸溜溜的一堆</p> <p>　　葡萄的表演团。他们干扰每场戏，搞砸舞台，让故事变坏。</p> <p>　　泰茨</p> <p>　　剧院的居民和演员。Theets 渴望帮助 Peach&mdash;&mdash;他们只是需要一点鼓励!</p> <p><h4>下载地址(由网友<font color="red">abc2589</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100028/](https://lad.sfcrom.cn/2024/04/100028/)

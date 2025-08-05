@@ -1,0 +1,13 @@
+---
+title: "【顶】PC《绯红结系 SCARLET NEXUS》豪华中文版下载（v1.05）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《绯红结系 SCARLET NEXUS》豪华中文版下载。绯红结系是一款科幻主题的动作冒险游戏，游戏中有不少关于未来世界的新颖设定，感兴趣的玩家不要错过。 　　《绯红结系》是万代南梦宫娱乐推出的全新超脑力动作RPG作品。近未来世界，通过结合大脑和科学的技术革新，人类建立了新的文明。同时异形般的&hellip;"
+layout: post
+---
+
+ <p>　　PC《绯红结系 SCARLET NEXUS》豪华中文版下载。绯红结系是一款科幻主题的动作冒险游戏，游戏中有不少关于未来世界的新颖设定，感兴趣的玩家不要错过。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=838230824&amp;bvid=BV14g4y1B7oV&amp;cid=189913487&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/06-25/8c83ba9827b11c8646340139be904a58.jpg" alt="【顶】PC《绯红结系 SCARLET NEXUS》豪华中文版下载（v1.05）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/06-25/7e023678cf42e75e05be9cecf2555297.jpg" alt="【顶】PC《绯红结系 SCARLET NEXUS》豪华中文版下载（v1.05）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/06-25/29c189a0901b3438efff03874d8fe615.jpg" alt="【顶】PC《绯红结系 SCARLET NEXUS》豪华中文版下载（v1.05）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/06-25/ecdf5fd4d759a51cb61db63c34a34b05.jpg" alt="【顶】PC《绯红结系 SCARLET NEXUS》豪华中文版下载（v1.05）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/06-25/713fe28e4068b4a9944ff0088532721c.jpg" alt="【顶】PC《绯红结系 SCARLET NEXUS》豪华中文版下载（v1.05）" /></td> </tr> </tbody> </table> <p>　　《绯红结系》是万代南梦宫娱乐推出的全新超脑力动作RPG作品。近未来世界，通过结合大脑和科学的技术革新，人类建立了新的文明。同时异形般的存在&ldquo;怪异&rdquo;也追求着发达的人脑，长久以来不断威胁着人们的生活。</p> <p>　　为了对抗这群无法被普通兵器伤害的怪异，人类集结了具备特殊能力的&ldquo;超能者&rdquo;，组成&ldquo;怪异讨伐军&rdquo;来保护人们的生活。玩家将作为操作超常脑力的一员，与伙伴在世界各地战斗。</p> <p>　　游戏背景</p> <p>　　使用「脑力」让文明蓬勃发展的未来世界，垄罩在从天而降的「怪异」威胁。</p> <p>　　人类为了对付以往武器无法成伤害的怪异，建立仅由优异脑力者组成的「怪异讨伐军」，长年保卫大众的生活。</p> <p>　　结人皇在小时候被怪异讨伐军拯救一命于是自愿加入怪异讨伐军，重兰德尔则是因为优异的脑力被招募至怪异讨伐军。同样操控「念力」的两人透过作为怪异讨伐军战斗，将知晓自己的力量与世界背后隐藏的真相。</p> <p>　　此为以脑部与科技蓬勃发展的世界为舞台，可以置身体验运用自身「念力」与伙伴们的形形色色力量战斗的超脑力动作，以及采用双主角视角描写的扎实故事剧情的「超脑力动作RPG」。</p> <p><strong>游戏特色</strong></p> <p>　　念力动作</p> <p>　　利用场地上各式各样的物体当作武器战斗的念力动作。以结合武器斩击与念力的连击来击败敌人吧。</p> <p>　　讨伐怪异</p> <p>　　从天而降、吞食人类脑部的异形生命体「怪异」。对付通常武器也无法造成伤害的怪异，运用超脑力来对抗吧。</p> <p>　　「脑部」高度发展的未来世界</p> <p>　　以「脑部」高度发展的人类获得特殊力量「脑力」的未来世界「新日向」为舞台。成为操控非凡力量的超脑力者，恣意驰骋脑部庞克的世界吧。</p> <p>　　体验双主角的故事</p> <p>　　结人皇与重兰德尔。采用皆能操控「念力」的两位超脑力者视角，享受戏剧性的故事。</p> <p><h4>下载地址(由网友<font color="red">hikaru199</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52169/](https://lad.sfcrom.cn/2024/03/52169/)

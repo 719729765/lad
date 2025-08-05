@@ -1,0 +1,13 @@
+---
+title: "switch《幻想大陆战记：露纳希亚战记 Brigandine The Legend of Runersia》中文版1.1.5补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《幻想大陆战记：露纳希亚战记》下载。《这是幻想大陆战记》系列最新作品，玩家将体验到一个出色的故事，在游戏中，玩家将体验到有趣的回合制幻想战争模拟游戏，从6个国度中选择，组建自己的军队进行战斗。 　　系列时隔20年最新作《露纳希亚战记》，游戏将于6月25日发售，支持中文。本作由寺田宪史&hellip;"
+layout: post
+---
+
+ <p>　　switch《幻想大陆战记：露纳希亚战记》下载。《这是幻想大陆战记》系列最新作品，玩家将体验到一个出色的故事，在游戏中，玩家将体验到有趣的回合制幻想战争模拟游戏，从6个国度中选择，组建自己的军队进行战斗。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=92261302&amp;bvid=BV167411N7fU&amp;cid=157531991&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615318a2b762.webp" alt="switch《幻想大陆战记：露纳希亚战记 Brigandine The Legend of Runersia》中文版1.1.5补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615318a92e76.webp" alt="switch《幻想大陆战记：露纳希亚战记 Brigandine The Legend of Runersia》中文版1.1.5补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615318b050b8.webp" alt="switch《幻想大陆战记：露纳希亚战记 Brigandine The Legend of Runersia》中文版1.1.5补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615318b79e13.webp" alt="switch《幻想大陆战记：露纳希亚战记 Brigandine The Legend of Runersia》中文版1.1.5补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615318c04864.webp" alt="switch《幻想大陆战记：露纳希亚战记 Brigandine The Legend of Runersia》中文版1.1.5补丁下载" /></td> </tr> </tbody> </table> <p>　　系列时隔20年最新作《露纳希亚战记》，游戏将于6月25日发售，支持中文。本作由寺田宪史(FF系列前三部)负责剧本，风间雷太担当人设，是一个回合制幻想战争模拟游戏，玩家从6个势力中任选其一开局，组编部队取得胜利，目标是称霸整个大陆。</p> <p>　　故事背景</p> <p>　　故事：</p> <p>　　-遥远的彼方-</p> <p>　　在神话时代，与我们完全不同的宇宙中存在着另一个世界&mdash;&mdash;弗鲁塞那(フォルセナ)。在弗鲁塞那的传说中，英雄们被鲁恩(ルーン)文字的不可思议之力所引导，为名誉和爱燃烧自己的生命。</p> <p>　　世界：</p> <p>　　-为鲁恩之力引导的弗鲁塞那大陆-</p> <p>　　很久很久以前，弗鲁塞那被古老神&ldquo;混沌之蛇&rdquo;所控制，世界处在一片混乱之中。这时24个鲁恩(ルーン)神出现了，为了在世上建立秩序，鲁恩神同古老神进行了一场惨烈的战争。虽然最后神成功地封印了古老神，但他们的肉体也因超出极限而无法存在。为了防止古老神的复活，众神把自己的力量交给人类。继承了鲁恩神能力的人可以使用&ldquo;玛纳&rdquo;(マナ)之力从异世界中召唤强大的魔物。但不是所有人都能随心所欲地操纵怪物，只有具有称为&ldquo;统魔力&rdquo;的特别能力的人才能做到，人们称他们为&ldquo;鲁恩的骑士&rdquo;&hellip;&hellip;</p> <p><h4>下载地址(由网友<font color="red">qwqkama</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146397/](https://lad.sfcrom.cn/2024/04/146397/)

@@ -1,0 +1,13 @@
+---
+title: "【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES &#8211; nirvanA Initiative》中文V1.02整合PKG下载"
+date: 2024-04-07
+tags: []
+categories: ["PS4最新破解"]
+excerpt: "【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文V1.02整合PKG下载 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Spike Chunsoft Co., Ltd. 　　游戏发行：Spike Chun&hellip;"
+layout: post
+---
+
+ <p>【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文V1.02整合PKG下载</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=595451200&amp;bvid=BV1nq4y1a7tR&amp;cid=568641292&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128f776d48f.webp" alt="【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文V1.02整合PKG下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128f77b94ce.webp" alt="【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文V1.02整合PKG下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128f78225ea.webp" alt="【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文V1.02整合PKG下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128f787b18a.webp" alt="【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文V1.02整合PKG下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128f78ce4af.webp" alt="【5.50】PS4《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文V1.02整合PKG下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Spike Chunsoft Co., Ltd.</p> <p>　　游戏发行：Spike Chunsoft Co., Ltd.</p> <p>　　故事介绍</p> <p>　　在六年前，发现了一具只剩&ldquo;右半身&rdquo;的尸体。</p> <p>　　一具从中间一分为二，切成两半的尸体&hellip;&hellip;</p> <p>　　当时无论怎么搜索，都找不到那具尸体的&ldquo;左半身&rdquo;。</p> <p>　　事隔六年后，下落成谜的&ldquo;左半身&rdquo;被找到了。</p> <p>　　只不过这具跨越多年时空后终于出现的尸体左半身&hellip;&hellip;</p> <p>　　竟然毫无腐烂的迹象，仿佛直到刚才都还活着。</p> <p>　　于是，新上任的ABIS特别搜查官瑞希与龙木，</p> <p>　　将与眼球型AI机器人搭档――瞳绊与环联手合作，</p> <p>　　在过去与现在、梦境与现实之间穿梭，</p> <p>　　为了查明真相，开始调查这起&ldquo;Half Body连续命案&rdquo;&hellip;&hellip;</p> <p>　　以上内容就是小编为大家带来的《AI：梦境档案 涅槃肇始 AI: THE SOMNIUM FILES - nirvanA Initiative》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">15585771310</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/133015/](https://lad.sfcrom.cn/2024/04/133015/)

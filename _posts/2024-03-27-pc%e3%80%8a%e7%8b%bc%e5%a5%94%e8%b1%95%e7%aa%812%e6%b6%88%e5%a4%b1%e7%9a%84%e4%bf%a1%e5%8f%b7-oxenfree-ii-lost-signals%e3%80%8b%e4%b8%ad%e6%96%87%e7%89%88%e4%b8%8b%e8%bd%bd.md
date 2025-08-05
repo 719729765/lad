@@ -1,0 +1,13 @@
+---
+title: "PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载《OXENFREE II: Lost Signals》是由Night School Studio制作，MWM Interactive发行的一款惊悚冒险游戏，在游戏中玩家将扮演Riley，剧情承接上一部作品《O&hellip;"
+layout: post
+---
+
+ <p>PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载《OXENFREE II: Lost Signals》是由Night School Studio制作，MWM Interactive发行的一款惊悚冒险游戏，在游戏中玩家将扮演Riley，剧情承接上一部作品《OXENFREE》，在那次事件的五年后，你决定继续探索那个神秘的信号。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=591000155&amp;bvid=BV15q4y1d7Bp&amp;cid=424090006&amp;page=1" width="410"></iframe></p> <p>　　游戏背景</p> <p>　　过去几个月对Camena来说很奇怪。不自然的电磁波一直在干扰这个沿海小镇。电视一直在打开和关闭。飞机失去了雷达。电台也不能传输它们的信号。</p> <p>　　附近一所大学的研究小组已签约研究这些现象并追踪造成干扰的任何来源。作为一名新聘的研究助理，莱利的工作是做一些繁重的工作：在规定的区域安装无线电发射器，并报告这些发射器收集的数据，看起来很简单。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b36c150c1.webp" width="700" alt="PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b36c8ea04.webp" width="700" alt="PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b36d01915.webp" width="700" alt="PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b36d71c9d.webp" width="700" alt="PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b36de3c42.webp" width="700" alt="PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b36e74dbf.webp" width="700" alt="PC《狼奔豕突2:消失的信号 OXENFREE II: Lost Signals》中文版下载" /></p></div> <p>　　游戏内容</p> <p>　　保留塑造故事的能力和与其他角色联系的关键对话选择。</p> <p>　　使用全新的对讲机与联系人聊天，并揭开有关Camena之谜的有用见解。</p> <p>　　与高中的老熟人重新联系不仅仅是一个简短的打招呼，而是因为出现了&hellip;&hellip;鬼?</p> <p>　　调查时间之泪，挖掘时空连续体中的裂缝，将你带回过去或前往未来。</p> <p><h4>下载地址(由网友<font color="red">Candy5173</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52741/](https://lad.sfcrom.cn/2024/03/52741/)

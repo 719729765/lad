@@ -1,0 +1,13 @@
+---
+title: "PC《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版下载，这是一款俯视视角的动作游戏，故事发生在一个完全虚构的未来城市中，游戏风格很像前几代的GTA，感兴趣的玩家不要错过。 　　游戏类型：射击类(STG)游戏 　　游戏制作：Fionn Hodgson 　　&hellip;"
+layout: post
+---
+
+ <p>　　PC《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版下载，这是一款俯视视角的动作游戏，故事发生在一个完全虚构的未来城市中，游戏风格很像前几代的GTA，感兴趣的玩家不要错过。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d558286e.jpg" alt="PC《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d56a8a73.jpg" alt="PC《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d58ddaf1.jpg" alt="PC《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d5ab8a8c.jpg" alt="PC《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：射击类(STG)游戏</p> <p>　　游戏制作：Fionn Hodgson</p> <p>　　游戏发行：Behemoth Interactive</p> <p>　　欢迎来到90年代末。探索亭子城的完全开放世界，这个曾经的天堂现在被腐败和暴力所吞噬。无政府主义的流氓、狡猾的游击队和极右翼军团都在争夺城市的控制权，每个人似乎都想让你死。</p> <p>　　游戏介绍</p> <p>　　由于你的朋友们在混乱中迷失了方向，现在该由你来确保安全，快速赚钱，并为自己占领这座城市&mdash;&mdash;使用任何你认为必要的方法。</p> <p>　　劫持汽车、偷盗毒品、毁坏酒店房间、谋杀市民、炸毁船只、收听9个广播电台、放火、扔砖块和石头、发射火箭，或者像其他公开世界比赛中那样表现得像个可怕的人。</p> <p>　　这个游戏的特点是一个巨大而充满活力的城市呈现在自上而下的3D中。它包括近100辆独特的车辆、26种不同的武器和2小时的独家游戏内无线电。尽情探索这个地方，造成巨大破坏!</p> <p>　　这个游戏中的一切都是虚构的，并不是为了表现或识别任何特定的个人、公司或组织。游戏中出现的任何事件、言论或其他事情的相似之处都是巧合。Fionn和Behemoth不支持本游戏中描述的任何行为。</p> <p>　　最低配置:</p> <p>　　操作系统: Microsoft Windows 7</p> <p>　　处理器: Intel Core 2 Duo 1.8GHz / AMD Athlon X2 64 2.4GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Intel HD Graphics 5000 / DEDICATED VIDEO RAM: 512 MB</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 300 MB 可用空间</p> <p>　　推荐配置:</p> <p>　　操作系统: Microsoft Windows 10</p> <p>　　处理器: Intel Core i5 3470 / AMD Ryzen 5 1600</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GeForce GTX 670 / Radeon HD 7970 / DEDICATED VIDEO RAM: 1 GB</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 300 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《完全无政府状态：亭子城 Total Anarchy Pavilion City》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">kawo</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/42341/](https://lad.sfcrom.cn/2024/03/42341/)

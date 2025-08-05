@@ -1,0 +1,13 @@
+---
+title: "PS4《使命召唤10：幽灵 数字增强版.Call of Duty: Ghosts Digital Hardened Edition》英文版PKG下载+1.20补丁"
+date: 2024-04-08
+tags: []
+categories: ["PS4英文游戏"]
+excerpt: "PS4《使命召唤10：幽灵 数字增强版.Call of Duty: Ghosts Digital Hardened Edition》英文版PKG下载+1.20补丁，今天小编为大家带来的是使命召唤10幽灵的英文版，一起来看看这款游戏吧。 　　《使命召唤10：幽灵》启用了全新引擎虚幻4，画面大幅度提升，&hellip;"
+layout: post
+---
+
+ <p>PS4《使命召唤10：幽灵 数字增强版.Call of Duty: Ghosts Digital Hardened Edition》英文版PKG下载+1.20补丁，今天小编为大家带来的是使命召唤10幽灵的英文版，一起来看看这款游戏吧。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=29775638&amp;bvid=BV1GW41197By&amp;cid=51828176&amp;page=1" width="410"></iframe></p> <p>　　《使命召唤10：幽灵》启用了全新引擎虚幻4，画面大幅度提升，但艺术风格回归《使命召唤4：现代战争》的朴素风格。剧情描写了几位重要人物的前传，包括普莱斯之前的故事，麦克米兰这位出色的狙击手以前曾执行过的狙击任务，和Ghost面具之下的真容等等。剧情中不仅包括前传，还诚意满满地复刻了整个《现代战争》的剧情，玩家将再一次经历&ldquo;双人摩天轮狙击&rdquo;、&ldquo;逃离核爆&rdquo;等等经典关卡。枪械、连杀等系统回归《使命召唤4：现代战争》，不会沿用T组的那一套&ldquo;过于灵活&rdquo;的系统。</p> <p>　　游戏主要讲述了一个被称为&ldquo;联合会&rdquo;的南美洲政权集合体迅速强大崛起成为了新的&ldquo;超级大国&rdquo;，劫持了美国的太空武器&ldquo;奥丁&rdquo;对美国本土发动了毁灭性的打击，在奥丁的攻击之下，使美国瓦解，不再为超级大国。</p> <p>　　而联合会也对美国发动了全面进攻，玩家扮演美国士兵洛根，与兄弟Hesh(碎甲弹)一同，抵御联合会的攻击，在执行任务的过程中，两人结识了美特种部队&ldquo;幽灵&rdquo;，并且和幽灵小队一道前去营一名被俘的幽灵小队成员Ajax,</p> <p>　　这次行动后，洛根和Hesh也加入了幽灵小队，而领导幽灵小队的，则是他们的父亲，Elias，Elias对二人说出了Rorke这么做的动机。</p> <p>　　幽灵小队一边追踪Rorke，一边抵御联合会的攻击，但狡猾的Rorke却一次次地从他们手中逃脱，他之后又抓住了Elias，Hesh和洛根，Elias在Rorke的折磨下惨死，Hesh和洛根由于其他队友的营救侥幸逃脱，两人也决定一定要向Rorke报杀父之仇。</p> <p>　　另一方面，联合会制造奥丁技术，即将对美国发动太空武器&ldquo;奥丁&rdquo;毁灭性攻击，美军孤注一掷，兵分两路，同时对联合会的空间站和指挥中心发动攻击，在洛根和Hesh的奋战之下，行动成功，美军夺得联合会卫星武器的控制权，对联合会军队发动攻击，成功化解了危机，</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_6613a66315e3a.jpg" alt="PS4《使命召唤10：幽灵 数字增强版.Call of Duty: Ghosts Digital Hardened Edition》英文版PKG下载+1.20补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_6613a6639179d.jpg" alt="PS4《使命召唤10：幽灵 数字增强版.Call of Duty: Ghosts Digital Hardened Edition》英文版PKG下载+1.20补丁" /></td> </tr> </tbody> </table> <p>&nbsp;</p> <p>　　希望大家能够喜欢这款游戏。我们还为大家准备了非常多的主机游戏，喜欢的玩家就来看吧。</p> <p><h4>下载地址(由网友<font color="red">s5s5s5s5</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/136712/](https://lad.sfcrom.cn/2024/04/136712/)

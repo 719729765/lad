@@ -1,0 +1,13 @@
+---
+title: "【DC】《Biohazard – Code – Veronica – Trial Edition》日版下载"
+date: 2024-03-19
+tags: []
+categories: ["DC游戏"]
+excerpt: "　　【DC】《Biohazard &ndash; Code &ndash; Veronica &ndash; Trial Edition》日版下载，在这个充满着未来科技的时代，一切你从未见过的生物或者科技，仿佛都不足为奇。甚至有无数的变种人出现，扰乱着社会的秩序... 　　英文名称：Phantasy&hellip;"
+layout: post
+---
+
+ <p>　　【DC】《Biohazard &ndash; Code &ndash; Veronica &ndash; Trial Edition》日版下载，在这个充满着未来科技的时代，一切你从未见过的生物或者科技，仿佛都不足为奇。甚至有无数的变种人出现，扰乱着社会的秩序...</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240319_65f9b0694c41e.png" width="614" alt="【DC】《Biohazard – Code – Veronica – Trial Edition》日版下载" /></p> <p>　　英文名称：Phantasy Star Portable</p> <p>　　游戏名称：梦幻之星 携带版</p> <p>　　游戏版本：欧版</p> <p>　　游戏类型：动作角色扮演类</p> <p>　　游戏语言：欧洲语言</p> <p>　　制作公司：Alfa System</p> <p>　　发行公司：Sega</p> <p>　　发行日期：2009年04月17日</p> <p>　　本作讲述的是第一章与第二章之间的空白期间的故事，揭露出那些隐藏的事件的真相。另外，本作是系列中第一次采用多结局设定的作品。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240319_65f9b06a02707.png" width="616" alt="【DC】《Biohazard – Code – Veronica – Trial Edition》日版下载" /></p> <p><h4>下载地址(由网友<font color="red">tuanzi1018</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/10994/](https://lad.sfcrom.cn/2024/03/10994/)

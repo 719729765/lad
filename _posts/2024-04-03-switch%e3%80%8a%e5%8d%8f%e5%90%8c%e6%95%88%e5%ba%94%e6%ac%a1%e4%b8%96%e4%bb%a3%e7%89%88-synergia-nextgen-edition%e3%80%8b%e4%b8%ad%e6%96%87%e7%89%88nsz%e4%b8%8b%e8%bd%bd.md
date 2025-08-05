@@ -1,0 +1,13 @@
+---
+title: "switch《协同效应次世代版 Synergia NextGen Edition》中文版NSZ下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《协同效应次世代版 Synergia NextGen Edition》中文版NSZ下载！~。由TopHatStudiosInc发行的一款视觉小说，讲述了Cila与机器人Mara之间的故事，从两位女孩的相遇、相识，到最后的为了彼此的战斗。 　　齐拉是一名老警察，她打扮犀利，有些厌世，对这个&hellip;"
+layout: post
+---
+
+ <p>switch《协同效应次世代版 Synergia NextGen Edition》中文版NSZ下载！~。由TopHatStudiosInc发行的一款视觉小说，讲述了Cila与机器人Mara之间的故事，从两位女孩的相遇、相识，到最后的为了彼此的战斗。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=540069507&amp;bvid=BV1ai4y1b7uw&amp;cid=173425209&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d82896eb34.webp" width="600" alt="switch《协同效应次世代版 Synergia NextGen Edition》中文版NSZ下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8289c81a4.webp" width="600" alt="switch《协同效应次世代版 Synergia NextGen Edition》中文版NSZ下载" /></p> <p>　　齐拉是一名老警察，她打扮犀利，有些厌世，对这个世界没报什么期待。至少，在一位谜团重重的朋友代替了她坏掉的家务机器人前是这样的。这个更先进，更加像人类的机器人玛拉开始打破齐拉强硬的外壳，深入她的内心，甚至可能治愈她内心的旧伤&mdash;&mdash;前提是齐拉自己能够克服掉这一过程所带来的噩梦。很快，齐拉和玛拉就构建了一种奇特的、来之不易的羁绊。齐拉不知道的事，在她的生活迈向新篇章时，科技巨头维尔塔实验室知道了玛拉的存在，并且对这个机器人产生了浓厚的兴趣。一场前所未有的战争也正在悄然逼近，参与者们并不知道自己会被卷入其中，也不知道这个机器人的命运会与战与和、宗教、技术奇点息息相关。</p> <p>　　游戏特点</p> <p>　　近100张独特的背景插画和CG</p> <p>　　20名以上性格各异的角色，他们都深度融入到了故事之中</p> <p>　　大约6-9小时游玩时间</p> <p>　　符合赛博朋克反乌托邦世界观的美术风格</p> <p>　　由《Katawa Shoujo》和《Sense: A Cyberpunk Ghost Story》的作曲者演绎的生动BGM</p> <p>　　会深刻影响主角和世界命运的选择，多结局</p> <p>　　最低配置:</p> <p>　　操作系统: Windows XP</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: 1280 x 720</p> <p>　　存储空间: 需要 300 MB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制PLAZA文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">lowelllai</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124797/](https://lad.sfcrom.cn/2024/04/124797/)

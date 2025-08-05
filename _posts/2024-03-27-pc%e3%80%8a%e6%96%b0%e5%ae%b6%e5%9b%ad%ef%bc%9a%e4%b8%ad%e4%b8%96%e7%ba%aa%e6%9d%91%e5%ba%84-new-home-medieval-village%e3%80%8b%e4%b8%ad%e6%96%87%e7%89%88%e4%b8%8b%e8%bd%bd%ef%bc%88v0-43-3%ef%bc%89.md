@@ -1,0 +1,13 @@
+---
+title: "PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载（v0.43.3）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载，这是一款中世纪主题的模拟经营游戏，玩家需要规划和建设一座小村庄，通过各种方法来将它发展、壮大。 　　类型:独立,模拟,策略 　　开发商:Mustafa Caner Tonbul 　　发行商:Mustafa&hellip;"
+layout: post
+---
+
+ <p>　　PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载，这是一款中世纪主题的模拟经营游戏，玩家需要规划和建设一座小村庄，通过各种方法来将它发展、壮大。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=338226418&amp;bvid=BV1HR4y1M75x&amp;cid=485326759&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039767bcda2.jpg" alt="PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载（v0.43.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660397682be49.jpg" alt="PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载（v0.43.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039768bceb4.jpg" alt="PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载（v0.43.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603976939e38.jpg" alt="PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载（v0.43.3）" /></td> </tr> </tbody> </table> <p>　　类型:独立,模拟,策略</p> <p>　　开发商:Mustafa Caner Tonbul</p> <p>　　发行商:Mustafa Caner Tonbul</p> <p>　　这是一款模拟游戏，玩家在游戏中需要对于一个中世纪的村庄进行建造，让这里看起来发展的更好，划分各个区域，让村民得到满足，扩大土地，吸引更多的人。</p> <p>　　游戏特色</p> <p>　　使用建筑编辑器自定义建筑或创建新建筑。</p> <p>　　根据需求创建分区区域。村民在这些地区建房。</p> <p>　　保护你的村庄安全。</p> <p>　　密切关注村民。</p> <p>　　提供村庄所需的资源。</p> <p>　　建立学校和图书馆来教育村民。</p> <p>　　增加人口以解锁公用事业。</p> <p>　　吸引受过教育的人建造更具吸引力的房屋。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel i5</p> <p>　　内存: 6 GB RAM</p> <p>　　显卡: GeForce GTX 750 Ti 2GB VRAM</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603976983cd2.png" width="526" alt="PC《新家园：中世纪村庄 New Home: Medieval Village》中文版下载（v0.43.3）" /></p> <p>　　以上内容就是小编为大家带来的《新家园：中世纪村庄 New Home: Medieval Village》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">qingmian911</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52052/](https://lad.sfcrom.cn/2024/03/52052/)

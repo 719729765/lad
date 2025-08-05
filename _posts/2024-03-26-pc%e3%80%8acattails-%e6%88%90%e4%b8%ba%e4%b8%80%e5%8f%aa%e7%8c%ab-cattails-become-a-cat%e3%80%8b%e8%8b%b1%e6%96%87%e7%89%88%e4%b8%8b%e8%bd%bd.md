@@ -1,0 +1,13 @@
+---
+title: "PC《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版下载，这是一款可爱风格的角色扮演游戏，主角是猫，游戏用像素为玩家带来了一个温馨的世界，剧情也十分治愈，一起来关注一下吧。 　　游戏类型：模拟经营类(SIM)游戏 　　游戏制作：Falcon Deve&hellip;"
+layout: post
+---
+
+ <p>　　PC《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版下载，这是一款可爱风格的角色扮演游戏，主角是猫，游戏用像素为玩家带来了一个温馨的世界，剧情也十分治愈，一起来关注一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=727704029&amp;bvid=BV1kS4y1v73n&amp;cid=753345568&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035208eaa12.jpg" alt="PC《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603520966bf9.jpg" alt="PC《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035209dc242.jpg" alt="PC《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603520a5c4b3.jpg" alt="PC《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：模拟经营类(SIM)游戏</p> <p>　　游戏制作：Falcon Development</p> <p>　　游戏发行：Falcon Development</p> <p>　　成为一只猫! Cattails是一款独特的动物模拟RPG游戏。猎取食物，与入侵的猫战斗，探索收集草药，并在一个广阔的开放世界中与其他猫交往。结婚并养育一个小猫家庭，与你的邻居交好，并学会在危险的荒野中生活!</p> <p>　　游戏介绍</p> <p>　　扮演一只在广阔荒野中漫游的野猫。寻找食物，与其他殖民地的猫搏斗，成为朋友(或敌人!)和你的邻居。浪漫16只合格猫中的一只，养一家人可爱的小猫，带它们一起去冒险，训练它们!或者，深入黑暗的洞穴寻找宝藏。只要确保你手头总是有一些食物，以防饿。</p> <p>　　游戏特色</p> <p>　　成为三个独特的猫群中的一员，与它的居民成为朋友或敌人。</p> <p>　　在整个开放世界的任何地方搜寻老鼠、松鼠、兔子等等。</p> <p>　　随着季节的变化，在野外寻找新的宝藏</p> <p>　　约会并与16只符合条件的猫中的一只结婚</p> <p>　　养一窝小猫，带它们一起去探险。</p> <p>　　在危险的洞穴中挖掘财富</p> <p>　　为了保护殖民地的土地所有权而战斗</p> <p>　　数百种独特的方式来定制您的猫的外套和眼睛的颜色和配饰</p> <p>　　升级和定制您的个人书房</p> <p>　　有趣的季节性节日，您可以参加比赛赢得奖品</p> <p>　　创建你自己的猫群，并根据你的喜好进行定制。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: 2.0 GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Intel HD 4000</p> <p>　　存储空间: 需要 200 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《Cattails | 成为一只猫! Cattails | Become a Cat!》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">1062792411</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40038/](https://lad.sfcrom.cn/2024/03/40038/)

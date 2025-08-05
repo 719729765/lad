@@ -1,0 +1,13 @@
+---
+title: "switch《噩梦妖怪村 Nightmare Youkai Village》日文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《噩梦妖怪村 Nightmare Youkai Village》日文版下载，这是一款冒险解密类型的游戏，为玩家讲述了一个充满日本传统色彩的恐怖故事，喜欢这个风格的话大家赶快来试试吧。 　　《恶梦妖怪村》是一款基于剧情发展的文字游戏，游戏根据江户川乱步奖获得者鸟并架南子的同名小说改编而&hellip;"
+layout: post
+---
+
+ <p>　　switch《噩梦妖怪村 Nightmare Youkai Village》日文版下载，这是一款冒险解密类型的游戏，为玩家讲述了一个充满日本传统色彩的恐怖故事，喜欢这个风格的话大家赶快来试试吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=419946745&amp;bvid=BV1n341167wp&amp;cid=393357329&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8763c1f82.jpg" alt="switch《噩梦妖怪村 Nightmare Youkai Village》日文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a876457579.jpg" alt="switch《噩梦妖怪村 Nightmare Youkai Village》日文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a87655681b.jpg" alt="switch《噩梦妖怪村 Nightmare Youkai Village》日文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a876612646.jpg" alt="switch《噩梦妖怪村 Nightmare Youkai Village》日文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8766d2e74.jpg" alt="switch《噩梦妖怪村 Nightmare Youkai Village》日文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　《恶梦妖怪村》是一款基于剧情发展的文字游戏，游戏根据江户川乱步奖获得者鸟并架南子的同名小说改编而成，小说本身就十分有魅力。游戏的故事背景在现代世界，电视台放出了高价收购妖怪出现影响的消息，主角为了赚钱一个人踏上了前往荒村的冒险之旅，而且主角到达的这个荒废村庄就是传说中的妖怪村，在传说中没有一个人能从这个村子中活着出来。</p> <p>　　游戏特色</p> <p>　　◆ 阅读故事，解开谜团!</p> <p>　　在游戏书&ldquo;梦魇妖怪村&rdquo;中，故事通过在阅读书籍的同时选择一个动作并根据选择的动作移动到指定页面来进行。</p> <p>　　根据您的选择，您可能会失去生命...... 一边解开各种妖怪村的谜团，一边达成目的，以安全逃生为目标!</p> <p>　　◆ 被世界观所吸引的可怕而美丽的妖怪</p> <p>　　随着游戏的进行，你会遇到各种各样的妖怪。包括众所周知的妖怪，如六六和诺佩拉布，都用强大的插图绘制。还配备了&ldquo;妖怪百科全书&rdquo;，您可以在其中欣赏遇到的妖怪，享受用美丽的图形绘制的美丽而可怕的世界。</p> <p>　　◆ 游戏独有的便利功能</p> <p>　　例如显示您当前位置的&ldquo;地图&rdquo;和允许您随时随地记录和恢复的&ldquo;书签&rdquo;。</p> <p>　　您的物品会自动管理，因此您可以将其用作备忘录。</p> <p>　　它还配备了遇到麻烦时的提示和动作历史等辅助功能。</p> <p>　　您可以在完全专注于故事的同时挑战谜团</p> <p><h4>下载地址(由网友<font color="red">3527167134</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111560/](https://lad.sfcrom.cn/2024/04/111560/)

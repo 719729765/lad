@@ -1,0 +1,13 @@
+---
+title: "【荐】PC《碧蓝幻想 Relink Granblue Fantasy: Relink》中文版下载v1.0.5"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《碧蓝幻想 Relink Granblue Fantasy: Relink》中文版下载v1.0.5!实打实的ARPG! 大量动作风格独特的游戏角色将登场。玩家可操作各自的角色接连发动攻击，4人联合发动&ldquo;连锁攻击&rdquo;&ldquo;奥义连锁&rdquo;，华丽地击溃敌人吧!&hellip;"
+layout: post
+---
+
+ <p>　　PC《碧蓝幻想 Relink Granblue Fantasy: Relink》中文版下载v1.0.5!实打实的ARPG! 大量动作风格独特的游戏角色将登场。玩家可操作各自的角色接连发动攻击，4人联合发动&ldquo;连锁攻击&rdquo;&ldquo;奥义连锁&rdquo;，华丽地击溃敌人吧!</p> <p>&nbsp; &nbsp; <span style="color:#FF0000;"><strong><span style="font-size:18px;">&nbsp; 注意：解压目录不要有中文！！否则玩不了</span></strong></span></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=836966687&amp;bvid=BV1Ug4y1e7h9&amp;cid=1423162033&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c60a137b7.webp" width="700" alt="【荐】PC《碧蓝幻想 Relink Granblue Fantasy: Relink》中文版下载v1.0.5" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c60add972.webp" width="700" alt="【荐】PC《碧蓝幻想 Relink Granblue Fantasy: Relink》中文版下载v1.0.5" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c60b8f90d.webp" width="700" alt="【荐】PC《碧蓝幻想 Relink Granblue Fantasy: Relink》中文版下载v1.0.5" /></p></div> <p>　　【故事梗概】</p> <p>　　&ldquo;空之世界&rdquo;由诸多风格各异的浮空岛屿组成。游戏的主人公和名为碧的小龙正在前往位于天空的尽头&mdash;&mdash;传说之岛伊斯塔鲁西亚的旅途中。一路上，他们不仅遇到了拥有神秘力量的少女露莉亚，也结识了众多志同道合的伙伴。</p> <p>　　本作中的主人公一行将以到访广阔天空的一隅&ldquo;泽卡&middot;格兰迪空域&rdquo;为起点，开启这一段旅途。等待着他们的将是波澜壮阔的邂逅&mdash;&mdash;凭借自身强大的力量守护着各个岛屿的&ldquo;星晶兽&rdquo;以及在空域中暗中活跃的神秘组织&ldquo;阿维亚教团&rdquo;。最终，主人公一行将面对事关整片空域的冒险、战斗与阴谋，并迎来命运的挑战。</p> <p>　　【游戏内容】</p> <p>　　可4人联机!实打实的ARPG!</p> <p>　　游戏中有多个可操作的角色登场，每个角色都拥有个性十足的武器和技能，具有独特的动作风格。玩家可操作各自的角色接连发动攻击，4人联合发动&ldquo;连锁攻击&rdquo;&ldquo;奥义连锁&rdquo;，华丽地击溃敌人吧!</p> <p>　　任务模式支持多人游戏，最多可4人同时联机。玩家之间可齐心协力围剿强大的敌军或BOSS，从而获得能大幅强化角色的稀有素材和技能。强化角色和技能组合出多样的战术，挑战更加强大的对手吧!</p> <p>　　此外，本游戏还配备了自动执行部分战斗操作的&ldquo;战斗辅助模式&rdquo;以及除了移动以外全部自动执行操作的&ldquo;战斗托管模式&rdquo;，即便是新手玩家也可以轻松上手!</p> <p>　　游戏内的术语及世界观、剧情解说等各种信息随时可在&ldquo;露莉亚笔记&rdquo;中查看，还可通过&ldquo;命运篇章&rdquo;了解登场人物的背景故事等，让玩家加深故事理解的内容丰富!</p> <p><h4>下载地址(由网友<font color="red">testpeople</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52938/](https://lad.sfcrom.cn/2024/03/52938/)

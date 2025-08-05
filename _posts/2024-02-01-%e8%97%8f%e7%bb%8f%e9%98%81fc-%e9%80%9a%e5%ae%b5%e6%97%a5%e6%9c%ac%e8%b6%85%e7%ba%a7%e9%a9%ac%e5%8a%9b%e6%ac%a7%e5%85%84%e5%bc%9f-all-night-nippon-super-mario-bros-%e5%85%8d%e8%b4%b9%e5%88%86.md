@@ -1,0 +1,13 @@
+---
+title: "[藏经阁]FC 通宵日本超级马力欧兄弟 All Night Nippon Super Mario Bros.[免费分享]"
+date: 2024-02-01
+tags: []
+categories: ["GAME藏经阁"]
+excerpt: "1987年《All Night Nippon(通宵日本)》播出20周年之际，先行推出了1986年12月限定生产的纪念版。在同年担任主持人的小峰隆生、小泉今日子、AB兄弟（家庭电子计算机NewWeve）等担任的节目中，家庭电子游戏相关的环节气氛高涨，成为制作的契机，前一年发售后引发了社会现象的《超级马&hellip;"
+layout: post
+---
+
+ <div><ul>   </ul> </div><p>1987年《All Night Nippon(通宵日本)》播出20周年之际，先行推出了1986年12月限定生产的纪念版。在同年担任主持人的小峰隆生、小泉今日子、AB兄弟（家庭电子计算机NewWeve）等担任的节目中，家庭电子游戏相关的环节气氛高涨，成为制作的契机，前一年发售后引发了社会现象的《超级马力欧兄弟》和拥有不动人气的深夜放送《All Night Nippon(通宵日本)》相融合。日本放送和任天堂在当时是不同颜色的合作，制作完成了。并由日本放送限定发布3000份（非卖品）。</p><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240201_65bba499653d9.jpg" title="FC 通宵日本超级马力欧兄弟" alt="FC 通宵日本超级马力欧兄弟 All Night Nippon Super Mario Bros." style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><table><thead><tr><th>游戏</th><th>通宵日本-超级马力欧兄弟</th></tr></thead><tbody><tr><td>游戏名称</td><td>All Night Nippon Super Mario Bros.</td></tr><tr><td>日文名</td><td>オールナイトニッポン スーパーマリオブラザーズ</td></tr><tr><td>中文名</td><td>通宵日本-超级马力欧兄弟</td></tr><tr><td>别名</td><td>All Night Nippon Super Mario Brothers.</td></tr><tr><td>中文别名</td><td>通宵日本-超级马里奥兄弟、超级马里奥兄弟1-黑夜版、超级马里奥1-黑夜版、黑夜马里奥</td></tr><tr><td>开发商</td><td>Nintendo EAD</td></tr><tr><td>发行商</td><td>Fuji Television</td></tr><tr><td>游戏平台</td><td>Famicom Disk System</td></tr><tr><td>发行于日本</td><td>December 1986</td></tr></tbody></table><a name="ci_title0" ></a><h2>游戏截图</h2><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240201_65bba4997ea65.jpg" title="FC 通宵日本超级马力欧兄弟 游戏截图" alt="FC 通宵日本超级马力欧兄弟 All Night Nippon Super Mario Bros." style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240201_65bba4999cd33.jpg" title="FC 通宵日本超级马力欧兄弟 游戏截图" alt="FC 通宵日本超级马力欧兄弟 All Night Nippon Super Mario Bros." style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240201_65bba499c240f.jpg" title="FC 通宵日本超级马力欧兄弟 游戏截图" alt="FC 通宵日本超级马力欧兄弟 All Night Nippon Super Mario Bros." style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240201_65bba499e35ab.jpg" title="FC 通宵日本超级马力欧兄弟 游戏截图" alt="FC 通宵日本超级马力欧兄弟 All Night Nippon Super Mario Bros." style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><a name="ci_title1" ></a><h2>日文原版 All Night Nippon Super Mario Brothers (Japan) (Promotion Card)</h2><p>https://juse.lanzouw.com/iPqyHuvi9gj</p> </div> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/02/6113/](https://lad.sfcrom.cn/2024/02/6113/)

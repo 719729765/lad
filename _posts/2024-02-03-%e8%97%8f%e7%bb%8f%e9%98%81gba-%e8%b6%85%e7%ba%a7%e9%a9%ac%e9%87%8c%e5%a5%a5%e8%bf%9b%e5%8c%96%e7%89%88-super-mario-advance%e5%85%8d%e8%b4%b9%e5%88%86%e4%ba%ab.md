@@ -1,0 +1,13 @@
+---
+title: "[藏经阁]GBA 超级马里奥进化版 Super Mario Advance[免费分享]"
+date: 2024-02-03
+tags: []
+categories: ["GAME藏经阁"]
+excerpt: "新瓶装旧酒系列Super Mario Advance 是由任天堂 Research &amp; Development 2 开发的 Super Mario Bros. 2 的翻版，作为掌机 Game Boy Advance 的首发游戏，于 2001 年 3 月在日本发布，同年 6 月在北美和欧洲发布。它基于&hellip;"
+layout: post
+---
+
+ <div><ul>   <ul>    </ul>  </ul> </div><blockquote>新瓶装旧酒系列</blockquote><p>Super Mario Advance 是由任天堂 Research & Development 2 开发的 Super Mario Bros. 2 的翻版，作为掌机 Game Boy Advance 的首发游戏，于 2001 年 3 月在日本发布，同年 6 月在北美和欧洲发布。它基于 SNES 的超级马里奥全明星重制版，还包含原始马里奥兄弟游戏的重制版。 Advance 包括许多新功能、游戏机制更改、图形和音频增强，以及全明星版的风格和美学更改，其中最显着的变化是增加了敌人 Robirdo，一个机器人 Birdo，取代了 Mouser 作为世界3；新增“耀西挑战”，玩家可以重游关卡寻找耀西蛋；新的计分系统；多重连击；放大的精灵；和数字配音。</p><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65bdede5c4f98.jpg" title="GBA 超级马里奥进化版" alt="GBA 超级马里奥进化版 Super Mario Advance" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><p>该游戏于 2014 年 7 月 16 日在日本、同年 11 月 6 日在北美、2016 年 3 月在欧洲和澳大利亚重新发布在 Wii U 的虚拟控制台上。</p><a name="ci_title0" ></a><h2>游戏截图</h2><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65bdede5f0bcc.jpg" title="GBA 超级马力欧进化版 游戏截图" alt="GBA 超级马里奥进化版 Super Mario Advance" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65bdede6249df.jpg" title="GBA 超级马力欧进化版 游戏截图" alt="GBA 超级马里奥进化版 Super Mario Advance" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65bdede67f001.jpg" title="GBA 超级马力欧进化版 游戏截图" alt="GBA 超级马里奥进化版 Super Mario Advance" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240203_65bdede69fd25.jpg" title="GBA 超级马力欧进化版 游戏截图" alt="GBA 超级马里奥进化版 Super Mario Advance" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><a name="ci_title1" ></a><h2>游戏资源</h2><a name="ci_title2" ></a><h3>0002 - 超级马里奥A Super Mario Advance(JP)(Nintendo)(32Mb)</h3><p>https://juse.lanzouw.com/iJYyuvnfo3g</p><a name="ci_title3" ></a><h3>0025 - 超级马里奥A Super Mario Advance(UE)(Nintendo)(32Mb)</h3><p>https://juse.lanzouw.com/iGEYWvnfo4h</p><a name="ci_title4" ></a><h3>0050 - 超级马里奥A Super Mario Advance(UE)(Nintendo)(32Mb)</h3><p>https://juse.lanzouw.com/i0Hx2vnfo5i</p><a name="ci_title5" ></a><h2>引用链接</h2><p>https://www.mariowiki.com/Super_Mario_Advance</p> </div> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/02/6647/](https://lad.sfcrom.cn/2024/02/6647/)

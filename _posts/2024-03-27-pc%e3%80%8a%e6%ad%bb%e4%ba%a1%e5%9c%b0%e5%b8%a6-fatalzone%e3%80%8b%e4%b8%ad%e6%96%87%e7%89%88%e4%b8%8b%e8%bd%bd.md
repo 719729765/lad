@@ -1,0 +1,13 @@
+---
+title: "PC《死亡地带 FatalZone》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《死亡地带 FatalZone》中文版下载FatalZone是一款以后世界末日为背景，融合Roguelike和RPG元素的自动射击游戏。消灭成群僵尸，收集资源，升级营地，培养佣兵。人类必须不惜一切代价生存下去! 　　致命病毒席卷世界，你需要消灭成群僵尸，为最后的幸存者营地收集资源。FatalZo&hellip;"
+layout: post
+---
+
+ <p>PC《死亡地带 FatalZone》中文版下载FatalZone是一款以后世界末日为背景，融合Roguelike和RPG元素的自动射击游戏。消灭成群僵尸，收集资源，升级营地，培养佣兵。人类必须不惜一切代价生存下去!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=662584455&amp;bvid=BV1rh4y1i77C&amp;cid=1310271564&amp;p=1" width="410"></iframe></p> <p>　　致命病毒席卷世界，你需要消灭成群僵尸，为最后的幸存者营地收集资源。FatalZone是一款融合Roguelike和RPG元素的自动射击游戏，你需要升级营地，派遣佣兵前去执行生死任务&hellip;所有的努力都是为了拯救全人类!</p> <p>　　拼上一切，加入生死战斗，开发最高效的佣兵玩法，解锁大量全新技能和角色。你可以在战场上升级佣兵，在营地中为其搭配新的技能组合。出战次数越多，佣兵的作战经验就越丰富，但请记住，他们并非不死之身。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd545aa55.webp" width="700" alt="PC《死亡地带 FatalZone》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd54c7b03.webp" width="700" alt="PC《死亡地带 FatalZone》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd553ae5e.webp" width="700" alt="PC《死亡地带 FatalZone》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd55c1160.webp" width="700" alt="PC《死亡地带 FatalZone》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd56367c1.webp" width="700" alt="PC《死亡地带 FatalZone》中文版下载" /></p></div> <p>　　发展幸存者营地，解锁增益。在技能强化大厅升级佣兵技能，前往佣兵营招募新佣兵，在工坊强化武器和护甲。升级建筑可以提高佣兵生存几率。</p> <p>　　在战斗中，佣兵会接触对身体有害的病毒。高病毒载量将导致佣兵的身体受损，但同时也会提高其变异几率。变异方向完全随机，可能会增强或削弱佣兵的战力。试着打造最强战士吧!</p> <p>　　如果你马上被僵尸的猛攻击溃，那就赶紧逃命吧!别忘了，你永远还有撤退这个选择!尽早结束任务，养精蓄锐，下次再战。只需要活着前往直升机!</p> <p>　　特色</p> <p>　　升级营地，解锁增益、装备和佣兵</p> <p>　　招募并训练新佣兵，来填补阵亡佣兵的空缺</p> <p>　　利用撤退直升机提前结束任务</p> <p>　　开发最高效的佣兵玩法</p> <p>　　打造变异佣兵，解锁独特技能或负面效果</p> <p>　　可将武器和护甲存放在物品栏中。武器可以提供起始战斗技能，护甲可以提供属性</p> <p>　　5种难度级别可供选择</p> <p>　　挑战随机生成地图。每次战斗都是一次全新的挑战!</p> <p>　　解锁众多成就，展现你的傲人勇气</p> <p>　　版本内容：</p> <p>　　3个地点</p> <p>　　7种角色职业</p> <p>　　51种可用于升级角色的独特特权</p> <p>　　7种武器</p> <p>　　9种物抗</p> <p>　　37种攻击防御技能</p> <p>　　13种武器和攻击技能的升级路径</p> <p>　　34种敌人类型(其中14种具有独特外观设计)</p> <p>　　3个地点拥有6个不同的难度等级</p> <p>　　6座独特营地建筑，可升10级</p> <p>　　51种角色属性</p> <p>　　多种变异可随机改变角色属性</p> <p>　　5种强化(不仅限于所有资源和经验值)</p> <p>　　50项成就</p> <p><h4>下载地址(由网友<font color="red">sunshine0205</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52767/](https://lad.sfcrom.cn/2024/03/52767/)

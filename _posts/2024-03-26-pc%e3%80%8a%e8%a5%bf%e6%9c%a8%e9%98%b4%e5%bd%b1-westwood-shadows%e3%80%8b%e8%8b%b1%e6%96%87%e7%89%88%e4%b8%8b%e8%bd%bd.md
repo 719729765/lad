@@ -1,0 +1,13 @@
+---
+title: "PC《西木阴影 Westwood Shadows》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《西木阴影 Westwood Shadows》英文版下载，这是一款带有恐怖元素的冒险解谜游戏，故事的主线是一名警探在追查一件案件，游戏很好的烘托出了恐怖氛围，大家赶快来尝试一下吧。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：RedSoup Studio 　　游戏发行：RedSou&hellip;"
+layout: post
+---
+
+ <p>　　PC《西木阴影 Westwood Shadows》英文版下载，这是一款带有恐怖元素的冒险解谜游戏，故事的主线是一名警探在追查一件案件，游戏很好的烘托出了恐怖氛围，大家赶快来尝试一下吧。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=420816637&amp;bvid=BV1o3411y71g&amp;cid=418220952&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660348412eebd.jpg" alt="PC《西木阴影 Westwood Shadows》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603484194ddf.jpg" alt="PC《西木阴影 Westwood Shadows》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034842029d8.jpg" alt="PC《西木阴影 Westwood Shadows》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660348425b849.jpg" alt="PC《西木阴影 Westwood Shadows》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：RedSoup Studio</p> <p>　　游戏发行：RedSoup Studio</p> <p>　　一位警探回到了他被遗弃的家乡，在那里他必须面对自己的过去和一个被阴影笼罩的悬案。跟随彼得-班尼特完成一个带有轻微恐怖元素的第一人称解谜游戏，探索韦斯特伍德阴影中的神秘和沉重气氛。</p> <p>　　游戏介绍</p> <p>　　从乡村到工厂小镇</p> <p>　　1940 年代，韦斯特伍德还是一个山顶小村。到 90 年代初，它是一个工厂城镇。随着药物公司Alegra的到来，该地区几乎所有的居民都受雇于该公司。它的 Westwood 分公司生产从止痛药到麻醉剂的各种产品。</p> <p>　　彼得班纳特一直对这家企业巨头持怀疑态度。认为它是机械怪物，吞噬了老村子的灵魂，更重要的是，吞噬了他家人的幸福。被他的工作所消耗，只需要最小的暗示就可以将他引向真相&mdash;&mdash;隐藏在Alegra的承诺和进步的层层之下，潜伏着一些真正可怕的东西。真相往往是难以捉摸的猎物，但他是一名侦探，他知道如何追捕它。他不会在邪恶面前保持沉默。他会用踢腿和尖叫来揭露真相，即使这意味着他会失去理智。现在，他的家人已经死了，这是巧合吗?</p> <p>　　猎人与猎物</p> <p>　　多年后，一个神秘的电话将彼得带回韦斯特伍德。黑暗和被Alegra及其居民遗弃，只剩下恐惧：彼得的记忆，他脑海中的致命阴影，以及可以解释他家人死亡的谜团的答案。</p> <p>　　韦斯特伍德的最后一个居民</p> <p>　　Westwood Shadows 以战斗、谜语和谜题为特色，在神秘和沉重的氛围中营造出故事驱动的体验。在阴影中生存并引导彼得了解Alegra背后的真相，韦斯特伍德及其家人的死亡发生了什么。</p> <p>　　最低配置:</p> <p>　　操作系统: 64-bit Windows 7</p> <p>　　处理器: Intel Core i5-4430 / AMD FX-6300</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 960 2GB / AMD Radeon R7 370 2GB.</p> <p>　　存储空间: 需要 25 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《西木阴影 Westwood Shadows》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">edxf666</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39742/](https://lad.sfcrom.cn/2024/03/39742/)

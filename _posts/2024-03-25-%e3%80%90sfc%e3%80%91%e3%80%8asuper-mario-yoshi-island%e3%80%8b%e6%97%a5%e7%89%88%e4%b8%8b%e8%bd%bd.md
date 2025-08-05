@@ -1,0 +1,13 @@
+---
+title: "【SFC】《Super Mario &#8211; Yoshi Island》日版下载"
+date: 2024-03-25
+tags: []
+categories: ["SFC游戏"]
+excerpt: "　　【SFC】《Super Mario - Yoshi Island》日版下载，非常经典的超级马里奥游戏，主人公是一个穿着蓝色背带裤的卡通人物。玩家可以选择单人或者双人一起挑战。喜欢这个系列的玩家快来下载吧! 　　朝圣者Pilgrims是一款有趣的冒险游戏，由Machinarium和Samorost&hellip;"
+layout: post
+---
+
+ <p>　　【SFC】《Super Mario - Yoshi Island》日版下载，非常经典的超级马里奥游戏，主人公是一个穿着蓝色背带裤的卡通人物。玩家可以选择单人或者双人一起挑战。喜欢这个系列的玩家快来下载吧!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_6600d1e195ebe.png" width="657" alt="【SFC】《Super Mario - Yoshi Island》日版下载" /></p> <p>　　朝圣者Pilgrims是一款有趣的冒险游戏，由Machinarium和Samorost背后的制作团队所创造的新作品。朝圣者Pilgrims游历各地并广交朋友、与你的旅行伙伴们一起欢笑，并以你自己的方式帮助他们完成他们自己的小故事。</p> <p>　　游戏介绍</p> <p>　　《朝圣者(Pilgrims)》由Amanita Design制作发行，是一款有趣的2D冒险游戏，游戏团队曾制作出《机械迷城》这样的高质量游戏，相信这一次的水准也不会让大家失望。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_6600d1e2995ca.png" width="658" alt="【SFC】《Super Mario - Yoshi Island》日版下载" /></p> <p>　　游戏特色</p> <p>　　1.适合喜欢以下特色的玩家：-趣味十足：不用通关&mdash;&mdash;随你游玩!使用数十种道具和独特角色来完成各式各样的任务!不用遵循固定路线。-重复游戏：包含45种成就，《Pilgrims》是一款能够重复游玩的游戏。</p> <p>　　2.你是否能够完成所有成就呢?-迷人的手工艺术：数百种独特动画和自制音效将带来无数有趣和令人意外的结局。努力发掘吧!-原创音乐：Floex(《Machinarium》、《Samorost》)再度混搭真实乐器和自然的电子乐，这次他还在其中加入了吉他和单簧管演奏。</p> <p><h4>下载地址(由网友<font color="red">6358846</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/17564/](https://lad.sfcrom.cn/2024/03/17564/)

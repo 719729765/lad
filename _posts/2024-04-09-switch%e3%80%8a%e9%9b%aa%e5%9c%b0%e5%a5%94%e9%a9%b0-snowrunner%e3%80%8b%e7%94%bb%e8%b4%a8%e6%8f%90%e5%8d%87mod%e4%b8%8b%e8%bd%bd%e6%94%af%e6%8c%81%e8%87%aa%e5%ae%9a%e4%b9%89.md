@@ -1,0 +1,13 @@
+---
+title: "switch《雪地奔驰 SnowRunner》画质提升MOD下载(支持自定义)"
+date: 2024-04-09
+tags: []
+categories: ["游戏mod"]
+excerpt: "　　switch《雪地奔驰 SnowRunner》画质提升MOD下载(支持自定义) 　　MOD变化： 　　纹理过滤从线性变为各向异性 　　移动的纹理向前移动了一点[手持模式/扩展坞 　　各种图形设置已激活[手持模式/扩展坞] 　　查看屏幕截图 　　增加阴影与植被的距离[手持模式/扩展坞] 　　修复刺&hellip;"
+layout: post
+---
+
+ <p>　　switch《雪地奔驰 SnowRunner》画质提升MOD下载(支持自定义)</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150335991f1.webp" width="1280" alt="switch《雪地奔驰 SnowRunner》画质提升MOD下载(支持自定义)" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150336a9330.webp" width="1280" alt="switch《雪地奔驰 SnowRunner》画质提升MOD下载(支持自定义)" /></p> <p>　　MOD变化：</p> <p>　　纹理过滤从线性变为各向异性</p> <p>　　移动的纹理向前移动了一点[手持模式/扩展坞</p> <p>　　各种图形设置已激活[手持模式/扩展坞]</p> <p>　　查看屏幕截图</p> <p>　　增加阴影与植被的距离[手持模式/扩展坞]</p> <p>　　修复刺眼的阴影</p> <p>　　栅栏/格子的 LOD 距离增加[手持模式/扩展坞],</p> <p>　　禁用冰块的动态阴影[手持模式/扩展坞</p> <p>　　因为它们看起来很糟糕</p> <p>　　增加了地形、水和物体的渲染范围[手持模式/扩展坞]</p> <p>　　现在便携式和扩展坞模式具有相同的距离</p> <p>　　略微增加动态阴影距离[手持模式/扩展坞]</p> <p>　　略微增加动态分辨率帧时间[手持模式/扩展坞]5</p> <p>　　分钟 动态分辨率从 832x464 增加到 896x504 [手持模式/扩展坞]</p> <p>　　如果 FPS 低于 30 [手持模式/坞站] ，则禁用&ldquo;时间膨胀效果&rdquo;</p> <p>　　所有预设的动态阴影分辨率已更改[手持式/底座]</p> <p>　　提高所有地图的纹理质量[手持模式/扩展坞]</p> <p>　　按下按钮即可显示地图</p> <p>　　字体大小略有增加[便携模式/扩展坞]</p> <p>&nbsp;  <p>　　历史更新：</p></p> <p>　　Mod 更新为游戏版本 v1.0.14(v1.0.15也可使用)</p> <p>　　启用各向异性纹理过滤</p> <p>　　移动的纹理稍微向前移动</p> <p>　　由于在新版本游戏中无法操作，删除了设置&ldquo;阳光&rdquo;</p> <p>　　由于在新版本游戏中无法操作，从&ldquo;草密度&rdquo;设置中删除了&ldquo;Ultra&rdquo;预设.</p> <p>　　所有其他预设的草地距离略有增加</p> <p>　　稍微增加了 din 的帧时间权限</p> <p>&nbsp;</p> <p>　　<span style="font-size:16px;"><span style="color:#FF0000;"><strong>MOD使用方法：解压文件夹到储存卡atmospherecontents</strong></span></span></p> <p><span style="font-size:16px;"><span style="color:#FF0000;"><strong>　　MOD超频建议：根据自己设置情况和特斯拉监控插件显示的内容适当调整CPU和GPU频率</strong></span></span></p> <p><span style="font-size:16px;"><span style="color:#FF0000;"><strong>　　MOD制作者的一些话：超频取决于设置。即使在 Mariko 上使用极限超频时，原始分辨率的最大设置也不总是可能的。</strong></span></span></p> <p><span style="font-size:16px;"><span style="color:#FF0000;"><strong>　　要应用&ldquo;对象质量&rdquo;和&ldquo;阴影质量&rdquo;选项，需要完全重新启动游戏。</strong></span></span></p> <p><span style="font-size:16px;"><span style="color:#FF0000;"><strong>　　我真的不想发布这个模组。有很多事情我无法改进。</strong></span></span></p> <p><span style="font-size:16px;"><span style="color:#FF0000;"><strong>　　如果游戏在启动时崩溃(更新模组后，或不小心将其安装在错误的版本上)，则从存档中删除名称中包含&quot;User&quot; 和&quot;Video&quot;的所有文件。这些只是你游戏设置的文件，我认为重新配置一切都不是问题。</strong></span></span></p> <p><h4>下载地址(由网友<font color="red">FredRoth</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/141223/](https://lad.sfcrom.cn/2024/04/141223/)

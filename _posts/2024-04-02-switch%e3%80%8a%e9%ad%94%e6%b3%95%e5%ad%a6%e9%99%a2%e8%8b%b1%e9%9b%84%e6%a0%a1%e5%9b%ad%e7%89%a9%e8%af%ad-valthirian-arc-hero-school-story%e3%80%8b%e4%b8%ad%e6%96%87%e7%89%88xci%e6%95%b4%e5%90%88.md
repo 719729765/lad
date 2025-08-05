@@ -1,0 +1,13 @@
+---
+title: "switch《魔法学院英雄校园物语 Valthirian Arc Hero School Story》中文版XCI整合版下载【1.04补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　《魔法学院英雄校园物语》是一款非常好玩的角色扮演类游戏，玩家可以在游戏中尝试非常有趣的游戏画面以及精彩刺激的游戏剧情。下面我们就来看看关于这款游戏的相关介绍吧! 　　《魔法学院英雄校园物语(Valthirian Arc: Hero School Story)》是Agate制作发行的一款动作角色扮&hellip;"
+layout: post
+---
+
+ <p>　　《魔法学院英雄校园物语》是一款非常好玩的角色扮演类游戏，玩家可以在游戏中尝试非常有趣的游戏画面以及精彩刺激的游戏剧情。下面我们就来看看关于这款游戏的相关介绍吧!</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=33941111&amp;bvid=BV1at411Z7AQ&amp;cid=59439402&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be69ddfcbf.webp" style="border-width: 0px; border-style: solid; height: 338px; width: 600px;" alt="switch《魔法学院英雄校园物语 Valthirian Arc Hero School Story》中文版XCI整合版下载【1.04补丁】" /></p> <p>　　《魔法学院英雄校园物语(Valthirian Arc: Hero School Story)》是Agate制作发行的一款动作角色扮演游戏。 你被国王选为皇家英雄学院的校长，这是一个严谨的英雄培育学校，你必须完成招生，培育，监督以及分配任务等，将这些学生们变成独当一面的英雄。 你除了需要培养英雄之外，游戏还有一些建筑的元素，你需要通过升级来改善包括训练场，宿舍，自助餐厅等设施。 游戏中的战斗元素为ARPG模式，你需要和各种怪物战斗，获取各种材料，完成一些任务获得奖励，用来升级制造武器装备，升级学校等。</p> <p>　　《魔法学院英雄校园物语(Valthirian Arc: Hero School Story)》是一款带有建筑风格的角色扮演游戏。你有没有想过，所有强大的骑士和巫师都来自哪里?没有人天生就是英雄。作为皇家英雄学院的校长，你的工作是培养最有希望的学生成为传奇英雄!</p> <p align="center"><img align="" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be69eb4823.webp" style="border-width: 0px; border-style: solid; height: 338px; width: 600px;" alt="switch《魔法学院英雄校园物语 Valthirian Arc Hero School Story》中文版XCI整合版下载【1.04补丁】" /></p> <p>　　成为校长：监督英雄学校的发展，建立结构，升级设施，管理学生的日常活动。</p> <p>　　培养学生：训练你的战士，法师和射手学生磨练他们的能力，并解锁强大的进阶职业，如圣骑士，学者，等等!</p> <p>　　帮助瓦尔特里亚市民：在全世界范围内安排学生按时出差，或者和你的小组一起去完成任务，亲身体验冒险经历。</p> <p>　　大师力量与魔法：组成四人小队使用强大的技能和投掷爆炸法术进行实时战斗</p> <p>　　制造各种各样的武器和盔甲：收集敌人的资料，开发食谱，制作更强大的设备，以增强学生的能力。</p> <p>　　体验一个宏大的RPG故事：结成联盟，与五个敌对女王一起影响所有瓦尔蒂亚的命运，体验不同结局。</p> <p>　　以上就是关于这款游戏的相关介绍，喜欢这款游戏的小伙伴们可以去游戏中尝试一下哟!</p> <p><h4>下载地址(由网友<font color="red">a7374111</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/121594/](https://lad.sfcrom.cn/2024/04/121594/)

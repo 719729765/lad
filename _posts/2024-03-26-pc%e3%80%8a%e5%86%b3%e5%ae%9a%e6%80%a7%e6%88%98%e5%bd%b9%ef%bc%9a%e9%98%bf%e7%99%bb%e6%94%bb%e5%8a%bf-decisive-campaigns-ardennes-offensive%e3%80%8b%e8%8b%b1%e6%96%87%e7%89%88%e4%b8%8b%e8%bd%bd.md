@@ -1,0 +1,13 @@
+---
+title: "PC《决定性战役：阿登攻势 Decisive Campaigns Ardennes Offensive》英文版下载（集成DLC）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《决定性战役：阿登攻势 Decisive Campaigns Ardennes Offensive》英文版下载，这是一款军事主题的策略游戏，以历史上的阿登攻势为原型，十分硬核的策略的玩法，赶快来尝试一下吧。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：VR Designs 　　游戏发行&hellip;"
+layout: post
+---
+
+ <p>　　PC《决定性战役：阿登攻势 Decisive Campaigns Ardennes Offensive》英文版下载，这是一款军事主题的策略游戏，以历史上的阿登攻势为原型，十分硬核的策略的玩法，赶快来尝试一下吧。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660338b62db9f.jpg" alt="PC《决定性战役：阿登攻势 Decisive Campaigns Ardennes Offensive》英文版下载（集成DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660338b737ecb.jpg" alt="PC《决定性战役：阿登攻势 Decisive Campaigns Ardennes Offensive》英文版下载（集成DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660338b81d1df.jpg" alt="PC《决定性战役：阿登攻势 Decisive Campaigns Ardennes Offensive》英文版下载（集成DLC）" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：VR Designs</p> <p>　　游戏发行：VR Designs</p> <p>　　《决定性战役：阿登攻势(Decisive Campaigns Ardennes Offensive)》是《决定性战役》系列中的第四款战争游戏。它涵盖了1944年12月至1945年1月间的阿登战役，通过将规模降低到略高于战术水平，使作战游戏变得生动。</p> <p>　　游戏介绍</p> <p>　　DC: Ardennes Offensive 是一款真正经典的兵棋游戏，具有非凡的细节水平。</p> <p>　　游戏附带了一个持续超过 16 天的庞大而完整的战役场景和几个较小的场景，专注于前线特定部分(如圣维特和巴斯托涅)的几天战斗。</p> <p>　　您将能够在 1 公里/六角形地图上玩整个阿登战役，并指挥营级单位。每天分为4个回合，包括一个夜间回合。</p> <p>　　决定性战役：Ardennes Offensive 附带了数十项添加、更改和改进，旨在适应其规模并为该系列带来创新。</p> <p>　　结果是一个极其身临其境的作战兵棋推演，其中智能战术比以往任何时候都更能战胜困难。</p> <p>　　游戏介绍</p> <p>　　天气比以往任何时候都更加详细，超过 5 种不同的十六进制状态显示了降水、积雪和霜冻的不同组合。</p> <p>　　Ardennes Offensive 首次为 Decisive Campaign 系列增加了视线：山丘阻挡了视线，侦察现在比以往任何时候都更加重要。</p> <p>　　不再拥有六角形。你可以预料到敌军会在你不注意的情况下潜入你的防线。</p> <p>　　供应系统已经过大修。此次大修包括引入交通拥堵规则，这尤其会影响向您的单位输送燃料。</p> <p>　　Intercept Fire 使在开阔地形中前进成为一件危险的事情，但也为游戏带来了活力，当你移动你的单位时，敌方单位会行动。</p> <p>　　你现在可以在行军模式和战斗模式之间切换你的单位。行军模式允许双倍移动，但使您的单位非常容易受到可能的拦截火力。</p> <p>　　完全重修十六进制图形以及单位图形。因此，DC: Ardennes Offensive 附带了一张看起来很新鲜的地图、单位计数器以及新的和匹配的部队和风景插图。</p> <p>　　该界面采用了左右单击约定，以便更快、更流畅地移动您的单位。</p> <p>　　最低配置</p> <p>　　操作系统：Windows XP/Vista/7/8/10</p> <p>　　DX版本：DirectX 9c</p> <p>　　处理器：1 GHz</p> <p>　　内存：1 GB RAM</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制SKIDROW文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《决定性战役：阿登攻势 Decisive Campaigns Ardennes Offensive》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">kinlaa</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40117/](https://lad.sfcrom.cn/2024/03/40117/)

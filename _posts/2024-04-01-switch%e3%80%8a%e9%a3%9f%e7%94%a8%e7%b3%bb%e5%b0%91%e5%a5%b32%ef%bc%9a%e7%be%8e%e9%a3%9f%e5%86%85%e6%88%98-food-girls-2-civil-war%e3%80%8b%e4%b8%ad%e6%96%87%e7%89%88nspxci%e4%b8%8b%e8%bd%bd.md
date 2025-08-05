@@ -1,0 +1,13 @@
+---
+title: "switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版下载，这是美食拟人主题游戏食用系少女系列的第二部作品。模拟经营类型的玩法。游戏中的少女角色都是经典食物的拟人化。 　　游戏介绍 　　曾获得米○林一星殊荣，远近驰名的牛肉面店在小吃街开张! 　　玩家扮演的顾问&hellip;"
+layout: post
+---
+
+ <p>　　switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版下载，这是美食拟人主题游戏食用系少女系列的第二部作品。模拟经营类型的玩法。游戏中的少女角色都是经典食物的拟人化。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=380880746&amp;bvid=BV1Hf4y1F79N&amp;cid=493872299&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fcf61c000.jpg" alt="switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fcf6968d7.jpg" alt="switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fcf71960f.jpg" alt="switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fcf7b145c.jpg" alt="switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fcf83d8b0.jpg" alt="switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　曾获得米○林一星殊荣，远近驰名的牛肉面店在小吃街开张!</p> <p>　　玩家扮演的顾问前去打招呼，不了对方却冷嘲热讽，本地的少女一气之下发起挑战，以各自店面做为赌注，将在两个月之后人气投票决胜!此时顾问接到公司的电话，最新的委托案件居然是牛肉面姊妹?</p> <p>　　除了原先知名的珍珠奶茶、鸡排、卤肉饭等角色，新作更追加了牛肉面、蚵仔煎、臭豆腐等经典台湾小吃拟人角色;游戏中玩家可以自由选择阵营，体验全新副业系统。官方表示，相较于一代以角色为单位的直线式的好感路线，本次将以阵营为单位，从枝微末节的小插曲到最终交手的大结局，让玩家在分歧的好感事件上选择属于自己的路线。</p> <p>　　游戏特色</p> <p>　　游戏中新增加的周目标，可以开发额外功能的副业，以及在短时间强化人气与品质，又或者是散布流言中伤对手，让玩家得以在营运战略上的选择更加多元。</p> <p>　　当中副业系统又细分「夹娃娃机、品牌商品、酒吧」等三种副业，玩家需要谨慎选择发展的副业，最后的成败可能就取决于此。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fcf8aa7ab.png" width="450" alt="switch《食用系少女2：美食内战 Food Girls 2 Civil War》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《食用系少女2：美食内战 Food Girls 2 Civil War》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">chinapj</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100233/](https://lad.sfcrom.cn/2024/04/100233/)

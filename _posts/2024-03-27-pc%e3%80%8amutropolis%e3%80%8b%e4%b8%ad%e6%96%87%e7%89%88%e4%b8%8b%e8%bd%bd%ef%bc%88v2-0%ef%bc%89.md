@@ -1,0 +1,13 @@
+---
+title: "PC《Mutropolis》中文版下载（v2.0）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《Mutropolis》中文版下载，这是一款冒险解谜游戏，手绘一般的卡通画风，玩家在游戏中扮演一名侦探，你要破解一个十分有趣的案件。喜欢这个游戏风格的玩家可以来关注一下哦。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Pirita Studio 　　游戏发行：Application&hellip;"
+layout: post
+---
+
+ <p>　　PC《Mutropolis》中文版下载，这是一款冒险解谜游戏，手绘一般的卡通画风，玩家在游戏中扮演一名侦探，你要破解一个十分有趣的案件。喜欢这个游戏风格的玩家可以来关注一下哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=544347678&amp;bvid=BV1zi4y1T7jB&amp;cid=299462724&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c14eaa10.jpg" alt="PC《Mutropolis》中文版下载（v2.0）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c155cafa.jpg" alt="PC《Mutropolis》中文版下载（v2.0）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c15ba042.jpg" alt="PC《Mutropolis》中文版下载（v2.0）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c1632cb0.jpg" alt="PC《Mutropolis》中文版下载（v2.0）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Pirita Studio</p> <p>　　游戏发行：Application Systems Heidelberg</p> <p>　　《Mutropolis》是一款卡通风格的点击指向类冒险解谜游戏。在游戏中你将化身主人公书呆子侦探亨利&middot;第戎，来到一个无人星球之中，仔细探索背后的真相，挖掘更多的宝藏，观看印第安纳琼斯纪录片，解锁更多风格各异的场景。</p> <p>　　游戏介绍</p> <p>　　5000年，人类在历史上所取得的杰出成就均已别人遗忘，金字塔啊、《蒙娜丽莎》啊、《新鲜王子妙事多》啊，全都忘了。</p> <p>　　不过，这些东西亨利&middot;第戎和他的考古草台班子都还记得。他们离开火星，来到荒凉的地球，只为寻找失落的宝物。原本一切开心顺利，可是亨利的教授某天却被绑架了，事情由此开始变得&hellip;&hellip;诡异。</p> <p>　　加入亨利的考古队伍，走进地球文明的遗迹，开启匪夷所思的冒险之旅。问出&ldquo;索尼随身听是日本人吗?&rdquo;、&ldquo;他喜欢听什么音乐&rdquo;之类的搞笑问题。发掘非同小可的文物，援救托泰尔教授，率先踏入传说中的穆乔波利斯古城。</p> <p>　　对了，还有一件事情&mdash;&mdash;古埃及的诸神确实存在，他们正在想方设法毁灭人类。祝你万事顺利!</p> <p>　　游戏特色</p> <p>　　游戏特色</p> <p>　　50多个手绘场景，各种人物古怪又可爱。</p> <p>　　全程英文配音，文本语言共有中文、西班牙文、德文、法文、意大利文、葡萄牙文、俄文、韩文和日文九种可以选择。</p> <p>　　各种考古谜题带有科幻元素。</p> <p>　　而且特别有爱!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 64-bit</p> <p>　　处理器: 2 GHz Dual Core CPU</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: 1024MB VRAM</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 4 GB 可用空间</p> <p>　　声卡: compatible sound card with latest drivers</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《Mutropolis》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">wxj511700</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51012/](https://lad.sfcrom.cn/2024/03/51012/)

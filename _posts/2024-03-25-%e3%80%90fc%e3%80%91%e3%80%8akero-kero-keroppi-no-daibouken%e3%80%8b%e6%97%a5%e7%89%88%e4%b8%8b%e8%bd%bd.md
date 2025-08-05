@@ -1,0 +1,13 @@
+---
+title: "【FC】《Kero Kero Keroppi no Daibouken》日版下载"
+date: 2024-03-25
+tags: []
+categories: ["FC游戏"]
+excerpt: "　　【FC】《Kero Kero Keroppi no Daibouken》日版下载，《没有大布根可洛比》系列作品之一，是一款非常有趣的冒险小游戏，画面全部采用卡通风格。感兴趣的玩家快来下载吧! 　　游戏介绍 　　Inside一款黑暗画风的冒险游戏，在游戏中所有出现的人物和场景都非常的怪异，未知的事&hellip;"
+layout: post
+---
+
+ <p>　　【FC】《Kero Kero Keroppi no Daibouken》日版下载，《没有大布根可洛比》系列作品之一，是一款非常有趣的冒险小游戏，画面全部采用卡通风格。感兴趣的玩家快来下载吧!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_660194208562c.png" width="584" alt="【FC】《Kero Kero Keroppi no Daibouken》日版下载" /></p> <p>　　游戏介绍</p> <p>　　Inside一款黑暗画风的冒险游戏，在游戏中所有出现的人物和场景都非常的怪异，未知的事物和风吹草动都影响着玩家的判断，它的风格就是如此让人毛骨悚然，必须小心翼翼的探索每个地区，游戏的气氛烘托也是十分到位，让人在探索过程中胆战心惊，能否战争心魔是逃生的关键。</p> <p>　　游戏特色</p> <p>　　黑暗抑郁的风格</p> <p>　　气氛营造十分到位</p> <p>　　求生解密类玩法</p> <p>　　搭配精彩的背景音乐</p> <p>　　背景猜想</p> <p>　　很大可能性这是limbo的前传，因为从科技先进水平来讲。limbo里反重力是对所有物体起作用的，而inside只对水有作用。limbo字面意思就是天堂与地狱边缘，所以小男孩从inside死后就跑到了limbo里了。在inside里，那个大肉球估计是掌控所有僵尸个体首脑，而玩家，则是掌控小男孩的首脑。游戏里面从小男孩控制僵尸控制另一只僵尸就可以暗喻了这一点。玩家有两个选择：一是在玉米地的隐藏地下设施那拔掉插头以解放小男孩，二是一直打到最后以肉球为身体从悬崖掉下摔死。两者都能解放小男孩，只看你选择了。在游戏里角色都没有面孔角度来讲，可以是艺术设计选择，也可以暗喻着所有人包括小男孩都是被掌控的肉体。那些僵尸只是未成型测试操控体而已。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_660194216264b.png" width="595" alt="【FC】《Kero Kero Keroppi no Daibouken》日版下载" /></p> <p><h4>下载地址(由网友<font color="red">max30577</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/24491/](https://lad.sfcrom.cn/2024/03/24491/)

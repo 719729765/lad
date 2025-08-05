@@ -1,0 +1,13 @@
+---
+title: "PC《PowerSlave Exhumed》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《PowerSlave Exhumed》英文版下载，这是一款老游戏的复刻版本，原作是一款经典的第一人称射击游戏，当年十分火爆，复刻版还原了这游戏的经常吃内容，赶快来看看吧。 　　游戏类型：第一人称射击类(FPS)游戏 　　游戏制作：Nightdive Studios/Lobotomy Sof&hellip;"
+layout: post
+---
+
+ <p>　　PC《PowerSlave Exhumed》英文版下载，这是一款老游戏的复刻版本，原作是一款经典的第一人称射击游戏，当年十分火爆，复刻版还原了这游戏的经常吃内容，赶快来看看吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=419799581&amp;bvid=BV113411z7Mz&amp;cid=389540266&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660323ca24c47.webp" alt="PC《PowerSlave Exhumed》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660323ca9b000.webp" alt="PC《PowerSlave Exhumed》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660323cb0d610.webp" alt="PC《PowerSlave Exhumed》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：第一人称射击类(FPS)游戏</p> <p>　　游戏制作：Nightdive Studios/Lobotomy Software</p> <p>　　游戏发行：Nightdive Studios/Throwback Entertainment</p> <p>　　PowerSlave Exhumed是经典FPS游戏的复刻版本，采用KEX引擎开发，完美融合了PlayStation和Saturn版本。复刻版将支持各向异性材质过滤、SMAA、宽屏和高清显示支持，外加手柄支持，在高刷新率下还拥有更流畅的体验。</p> <p>　　游戏介绍</p> <p>　　第一人称视角动作射击</p> <p>　　穿越古埃及城市和法老拉美西斯陵墓的 20 多个不间断游戏关卡</p> <p>　　实时全 3D 渲染游戏允许您在单个关卡内的楼层之间移动</p> <p>　　过桥并在水下石窟游泳</p> <p>　　只需一把砍刀，即可搜索其他 6 种武器，包括手榴弹、火焰喷射器、M-60 机枪和魔法眼镜蛇法杖。</p> <p>　　动态照明营造出令人惊叹的视觉效果。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 (64-bit required)</p> <p>　　处理器: Intel or AMD Dual-Core at 2.0 GHz</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: GPU with DirectX 11 or Vulkan 1.1 support</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　声卡: 100% DirectX compatible sound card or onboard sound</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《PowerSlave Exhumed》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">八宝</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40981/](https://lad.sfcrom.cn/2024/03/40981/)

@@ -1,0 +1,13 @@
+---
+title: "switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载。本作是Level 91 Entertainment制作的一款赛车游戏，赛道主要设定在霓虹顶下的城市中或是日落的山道上，风景宜人并且带有复古的味道，多款可选赛车以及双摇杆的控制，让玩家在赛道上行动自如。 　　《&hellip;"
+layout: post
+---
+
+ <p>switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载。本作是Level 91 Entertainment制作的一款赛车游戏，赛道主要设定在霓虹顶下的城市中或是日落的山道上，风景宜人并且带有复古的味道，多款可选赛车以及双摇杆的控制，让玩家在赛道上行动自如。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=838728916&amp;bvid=BV1ig4y1v7H7&amp;cid=207439903&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/09-23/da20aed8e7882d9e62b4f4c9df8f6169.jpg" alt="switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/09-23/656d5f7ab2399016ccd042b13de5aa7d.jpg" alt="switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/09-23/ff72565edd87c877b524a05e29a28f93.jpg" alt="switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/09-23/c4edd1e9dac56ceda5d0c7ba448b87ba.jpg" alt="switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/09-23/5112ddcfdfdbaf9725e2466b4b33e259.jpg" alt="switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/09-23/2091cfc248d9d12109ff53704195b0b6.jpg" alt="switch《惯性漂移 Inertial Drift 》中文版1.2.1补丁+1DLC下载" /></td> </tr> </tbody> </table> <p>　　《惯性漂移》的游戏场景设定在 90 年代的复古未来，这款街机赛车竞速游戏有着破坏性的独特操控模式，完美实现双摇杆漂移力学。《惯性漂移》提供全新的无障碍环境和街机竞速挑战类型 &mdash; 为玩家带来前所未有的驾驶体验。</p> <p>　　游戏特色</p> <p>　　&bull;&quot;独一无二的双摇杆控制，助您完成精确漂移 &mdash; 右手摇杆让玩家实现对漂移动作的完全控制。为新玩家带来奇妙的直觉体验，满足游戏高手的独特挑战需求。</p> <p>　　&bull;16 辆带有强烈个人风格的赛车 &mdash; 每辆赛车都像一头拥有个性十足的野兽，等待着你的驯服。赶快坐进驾驶座，尝试驯服掀背运动车，轿跑车，超级跑车等各种车型!</p> <p>　　&bull;20 条要求超高的赛道 &mdash; 撕开霓虹灯下的城市街道，在乡村寺庙建筑群周围狂奔，迎头冲下蜿蜒的山路。</p> <p>　　&bull;90 年代的复古未来风游戏场景 &mdash; 设定在霓虹粉色日落和暮色天空下夸张而奇特的环境之中。</p> <p>　　&bull;单人故事模式 &mdash; 通过组合竞速，一对一单挑，计时赛和风格对决来完善你的驾驶技巧!</p> <p>　　&bull;本地和在线多人游戏 &mdash; 认为自己已经掌握了完美的漂移技术吗?这就是你证明自己的最佳方式。</p> <p><h4>下载地址(由网友<font color="red">my523590058</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146077/](https://lad.sfcrom.cn/2024/04/146077/)

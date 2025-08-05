@@ -1,0 +1,13 @@
+---
+title: "PC《黑色间歇泉：黑暗的使者 Black Geyser: Couriers of Darkness》正式版免安装中文版下载v1.2.55"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《黑色间歇泉：黑暗的使者 Black Geyser: Couriers of Darkness》中文版下载，这是一款经典风格的动作角色扮演游戏，西幻主题的世界设定，游戏的玩法和剧情都很不错，赶快来试试吧。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：GrapeOcean Techn&hellip;"
+layout: post
+---
+
+ <p>　　PC《黑色间歇泉：黑暗的使者 Black Geyser: Couriers of Darkness》中文版下载，这是一款经典风格的动作角色扮演游戏，西幻主题的世界设定，游戏的玩法和剧情都很不错，赶快来试试吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=291801332&amp;bvid=BV1Gf4y157di&amp;cid=374333762&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a30040011.webp" alt="PC《黑色间歇泉：黑暗的使者 Black Geyser: Couriers of Darkness》正式版免安装中文版下载v1.2.55" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a30095fb8.webp" alt="PC《黑色间歇泉：黑暗的使者 Black Geyser: Couriers of Darkness》正式版免安装中文版下载v1.2.55" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a30100812.webp" alt="PC《黑色间歇泉：黑暗的使者 Black Geyser: Couriers of Darkness》正式版免安装中文版下载v1.2.55" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：GrapeOcean Technologies</p> <p>　　游戏发行：V Publishing/GrapeOcean Technologies</p> <p>　　几个世纪以来，魔神罗斯格散布恐惧和恐怖，向凡人种族发动战争。最终被放逐，伊瑟尔梅拉尔德国家享受了一段和平与繁荣的时光。然而，不满情绪再次开始发酵，一场血腥的内战正在首都伊瑟尔布赖特和富裕的采矿镇德隆-古尔德之间酝酿。</p> <p>　　从5个可玩的种族(人类、矮人、精灵、费尔德古格和里洛)和4个等级组(牧师、逃犯、战士和巫师)的13个独特等级中选择。</p> <p>　　观察战斗的实时进行，可以选择暂停行动并在需要时发布新的命令。使用几十种法术和技能控制战场，同时用各种武器、盔甲和物品定制你的队伍。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows&reg; 7 64-bit</p> <p>　　处理器: Intel i3-3220 or AMD FX-4300</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 750 Ti (2GB)</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 40 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows&reg; 10 Home 64-bit</p> <p>　　处理器: Intel i7-4770K or AMD Ryzen 5 1500X</p> <p>　　内存: 16 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 1050 Ti (4GB)</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 40 GB 可用空间</p> <p>　　附注事项: SSD strongly recommended</p> <p>　　以上内容就是小编为大家带来的《黑色间歇泉：黑暗的使者 Black Geyser: Couriers of Darkness》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">likang789</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51984/](https://lad.sfcrom.cn/2024/03/51984/)

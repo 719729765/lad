@@ -1,0 +1,13 @@
+---
+title: "switch《十二分钟 Twelve Minutes》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《十二分钟 Twelve Minutes》中文版下载，这是一款惊悚风格的冒险游戏，采用俯视视角，讲述了一个在十二分钟内不断循环的故事。玩家要在时间的循环中挽回一场悲剧。 　　《十二分钟》是一款俯瞰视角的实时互动式惊悚/点击游戏，带有简单易用的点击拖放界面。 　　你在游戏中扮演丈夫的角&hellip;"
+layout: post
+---
+
+ <p>　　switch《十二分钟 Twelve Minutes》中文版下载，这是一款惊悚风格的冒险游戏，采用俯视视角，讲述了一个在十二分钟内不断循环的故事。玩家要在时间的循环中挽回一场悲剧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=796906872&amp;bvid=BV1fC4y1t7gi&amp;cid=229665591&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a00347e317.jpg" alt="switch《十二分钟 Twelve Minutes》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0034e4ad7.jpg" alt="switch《十二分钟 Twelve Minutes》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a00354d7a9.jpg" alt="switch《十二分钟 Twelve Minutes》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0035ab1bf.jpg" alt="switch《十二分钟 Twelve Minutes》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0036138a9.jpg" alt="switch《十二分钟 Twelve Minutes》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　《十二分钟》是一款俯瞰视角的实时互动式惊悚/点击游戏，带有简单易用的点击拖放界面。</p> <p>　　你在游戏中扮演丈夫的角色，一个本该与妻子共同度过的浪漫夜晚却变成了一场噩梦。一位警探闯入你的家中，指控你的妻子犯了谋杀罪，并将你打死&hellip;&hellip;</p> <p>　　然后你却发现自己立即回到了你打开房门的那一刻，你陷入了一个十二分钟的时间循环，注定要反反复复地体验同样的恐惧&hellip;&hellip;</p> <p>　　你必须想方设法利用你掌握的情况来改变结果，才能打破这个恐怖的时间循环。</p> <p>　　《十二分钟》是一款互动式叙事游戏，它融合了《闪灵》那种梦境般的紧张悬疑感和《后窗》那种幽闭恐惧感，以及《记忆碎片》的碎片化结构。</p> <p>　　这款游戏的内容十分精彩，想要体验的话就赶快加入进来吧。</p> <p><h4>下载地址(由网友<font color="red">814329020</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101037/](https://lad.sfcrom.cn/2024/04/101037/)

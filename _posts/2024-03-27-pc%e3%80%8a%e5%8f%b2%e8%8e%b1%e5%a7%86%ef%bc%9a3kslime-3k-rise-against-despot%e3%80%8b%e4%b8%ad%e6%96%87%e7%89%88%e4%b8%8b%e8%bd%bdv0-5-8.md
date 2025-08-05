@@ -1,0 +1,13 @@
+---
+title: "PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8!欢迎来到《史莱姆：3K》，一个设定在《暴君的游戏》系列宇宙中，脱线而疯狂的Roguelite弹幕射击游戏!用丧心病狂的武器组成卡组，让嗜杀果冻不断变强，将可怜的小粉人们吃干抹净，走上一条充满死&hellip;"
+layout: post
+---
+
+ <p>　　PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8!欢迎来到《史莱姆：3K》，一个设定在《暴君的游戏》系列宇宙中，脱线而疯狂的Roguelite弹幕射击游戏!用丧心病狂的武器组成卡组，让嗜杀果冻不断变强，将可怜的小粉人们吃干抹净，走上一条充满死亡、暴力和椒盐脆饼的道路。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=961847393&amp;bvid=BV1rH4y1d7HZ&amp;cid=1290003537&amp;p=1" width="410"></iframe></p> <p>　　用于制造人造人的粘液体竟然萌生了意识，并且反抗了它的造物主，那位在公元3000年统治着世界的邪恶人工智能&mdash;&mdash;暴君!在这款由《暴君的游戏》和《Despotism 3K》的创作者推出的无比精彩的Roguelite游戏中，成为一个大杀四方的果冻怪，用死亡、暴力和椒盐脆饼铺平你的道路。我们试图明目张胆地克隆诸如《Vampire Survivors - 吸血鬼幸存者》、《Halls of Torment》、《土豆兄弟》、《灵魂石幸存者》以及《黎明前20分钟》这样的游戏，但我们的疯狂克隆实验进行得太过头了。我们把自走棋的商店和集换式卡牌游戏的卡组构建机制直接加入了一道熟悉的配方里头，就这样缝合出了我们的完美杂交种&mdash;&mdash;《史莱姆：3K》。</p> <div> <p align="center">&nbsp;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd0b35c1a.webp" width="700" alt="PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd0ba1c7b.webp" width="700" alt="PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd0c1914c.webp" width="700" alt="PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd0c71cec.webp" width="700" alt="PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bd0cd849d.webp" width="700" alt="PC《史莱姆：3K/Slime 3K: Rise Against Despot》中文版下载v0.5.8" /></p></div> <p>　　卡组构建，大杀四方</p> <p>　　通过引入深度的卡组构建系统，《史莱姆：3K》在类幸存者游戏的基础上增添了战略深度以及更多具有创意的实验尝试。通过解锁、升级和组合搭配你的卡牌，来打造由古怪武器与怪诞特性组成的非凡军火库。为每一场游戏打造一身完美无瑕的浴血神装!</p> <p>　　身陷囹圄，险中求胜</p> <p>　　敌人每分每秒都在变强，而你也应当如此!探索所有有趣的杀戮手段吧：驱雷策电、泼酸剥蚀，用AK-47扫倒孱弱不堪的人类，召唤丧尸大军，或者抛投会爆炸的西瓜!</p> <p>　　各式敌人，统统下肚</p> <p>　　做好与暴君所创造的各种造物战斗的准备：骑士、突变体、半机械憎恶、芭蕾舞女、高跷杂技演员、食肉番茄，以及只有暴君才晓得的宝贝儿们。碾压他们的时候看着这些小小的粉人儿爆开可真有意思!</p> <p><h4>下载地址(由网友<font color="red">13167331008</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52436/](https://lad.sfcrom.cn/2024/03/52436/)

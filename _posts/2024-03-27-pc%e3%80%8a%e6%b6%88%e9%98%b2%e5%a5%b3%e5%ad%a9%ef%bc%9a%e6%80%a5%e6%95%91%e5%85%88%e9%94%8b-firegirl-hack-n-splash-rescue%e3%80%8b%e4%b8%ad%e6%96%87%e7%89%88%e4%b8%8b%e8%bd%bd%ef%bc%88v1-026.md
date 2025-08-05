@@ -1,0 +1,13 @@
+---
+title: "PC《消防女孩：急救先锋 Firegirl: Hack &#039;n Splash Rescue》中文版下载（v1.026）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《消防女孩：急救先锋 Firegirl: Hack &#039;n Splash Rescue》中文版下载，这是一款动作冒险类型的游戏，主角是一名女消防员，你要操作它在各种危险的火场环境下完成任务。 　　类型:动作 　　开发商:Dejima 　　发行商:Thunderful Publishin&hellip;"
+layout: post
+---
+
+ <p>　　PC《消防女孩：急救先锋 Firegirl: Hack &#39;n Splash Rescue》中文版下载，这是一款动作冒险类型的游戏，主角是一名女消防员，你要操作它在各种危险的火场环境下完成任务。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=891019251&amp;bvid=BV1XP4y187hM&amp;cid=423429299&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dce4bd44.jpg" alt="PC《消防女孩：急救先锋 Firegirl: Hack &amp;#039;n Splash Rescue》中文版下载（v1.026）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dcec0a78.jpg" alt="PC《消防女孩：急救先锋 Firegirl: Hack &amp;#039;n Splash Rescue》中文版下载（v1.026）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dcf2987f.jpg" alt="PC《消防女孩：急救先锋 Firegirl: Hack &amp;#039;n Splash Rescue》中文版下载（v1.026）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dcf9ab78.jpg" alt="PC《消防女孩：急救先锋 Firegirl: Hack &amp;#039;n Splash Rescue》中文版下载（v1.026）" /></td> </tr> </tbody> </table> <p>　　类型:动作</p> <p>　　开发商:Dejima</p> <p>　　发行商:Thunderful Publishing</p> <p>　　游戏主人公是一个刚开始职业生涯的年轻女消防员，她将带上可靠的斧子，还有能同时作为反冲助推器使用的高压消防水管，去应对城市各处的紧急呼叫。消防女孩能救出所有被困在大火中的市民吗?她能揭开吞噬城市各处的大火背后的秘密吗?她的调查将最终指向权力的最高层&hellip;&hellip;</p> <p>　　游戏特色</p> <p>　　消防女孩抵达现场后只有几分钟时间去救出困在大火中的市民!劈开障碍物，扑灭熊熊烈焰，借助消防水管跳跃，抵达高处并获得额外物品。</p> <p>　　在随机生成的关卡中应对前所未见的火势，场景包括茂密森林、奢华饭店、高速列车、高层公寓楼等。</p> <p>　　在任务间歇前往消防局升级装备，雇佣新员工，付清账单，听着人数不断增加的支持者赞颂你的英雄事迹。在顶尖消防局工作并不容易，你必须去扑灭各种各样的&ldquo;火情&rdquo;!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7, 8 or 10</p> <p>　　处理器: Intel Core i5-2500 / AMD FX-6300</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 560 Ti / AMD Radeon HD 7850</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制SKIDROW文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　关于这款游戏就为大家介绍到这里了，感兴趣的话大家不妨来体验一下吧。</p> <p><h4>下载地址(由网友<font color="red">Newcastle</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53213/](https://lad.sfcrom.cn/2024/03/53213/)

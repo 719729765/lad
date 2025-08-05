@@ -1,0 +1,13 @@
+---
+title: "switch《暴力庆典 In Celebration of Violence》英文版1.0补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《暴力庆典 In Celebration of Violence》英文版!In Celebration of Violence是由Julian Edison制作的一款魔幻动作类角色扮演游戏，同时这也是一款具有roguelike元素的游戏，在游戏中，战斗是线性的，你必须想好你要怎么攻击&hellip;"
+layout: post
+---
+
+ <p>　　switch《暴力庆典 In Celebration of Violence》英文版!In Celebration of Violence是由Julian Edison制作的一款魔幻动作类角色扮演游戏，同时这也是一款具有roguelike元素的游戏，在游戏中，战斗是线性的，你必须想好你要怎么攻击，躲闪，招架，以及考虑你的对手和环境因素。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=20665318&amp;bvid=BV1JW411s7dB&amp;cid=33816599&amp;page=1" width="410"></iframe></p> <p>　　游戏玩法</p> <p>　　这就像以撒和黑魂的结合体。战斗将会充满策略性，基本上没有设么故事性，想要完美通关大概会花费接近3个小时左右的时间。</p> <p>　　在暴力庆典中，你接触得最多的将会是最基本的操作模式。对于寻找秘密的宝藏来说会显得有些困难。而且绝大部分的挑战来自于找到游戏中设置的隐藏系统内。</p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2020/11-29/1c893ce5f7c87d01c31cca8cf4545f75.jpg" width="576" alt="switch《暴力庆典 In Celebration of Violence》英文版1.0补丁下载" /></p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2020/11-29/56c553a3d4cefcf6d8f6c6ee2f8359f0.jpg" width="576" alt="switch《暴力庆典 In Celebration of Violence》英文版1.0补丁下载" /></p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2020/11-29/f4835d267b4259603e5d1dd91496c545.jpg" width="576" alt="switch《暴力庆典 In Celebration of Violence》英文版1.0补丁下载" /></p> <p>　　游戏玩法</p> <p>　　世界是由各种庞大而且随机生成地图组成，范围到平原、沼泽、城市、地下城等等。这些地图提供多种途径来达到最终BOSS的多样性。地下城是危险但有益的风险，在地牢里，你必须慢慢移动，在寻找出口时要注意陷阱和隐藏。</p> <p>　　元素相互作用和环境。火对温度、天气和任何易燃物体，尤其是人都有反应。电力会朝着实体，特别是在水周围危险。下雨或下雪的机会与该地区的气候有机地结合起来，既可能成为障碍，也会成为优势。</p> <p>　　玩家可以选择向他们遇到的神殿祈祷，以获得各种各样的恩惠、奖金和物品。人必须谨慎选择，每一个神都有不同的价格，当他们的对手是敬拜的对象时，有些人会变得不高兴。一些神也可能成为行动的玩家需要而冒险激怒，如破坏枝叶或杀害平民。</p> <p>　　玩家评价</p> <p>　　升级系统弥补了rougue类游戏在重复游玩导致的厌烦感，而且因为每次升级的程度和需要的升级材料不是很多，感觉相当不错。而且由于rougue类游戏相对来说太容易死，作者还怜悯的让玩家有了挺多的回血机会(比如爆能啊，小血块啊什么的)</p> <p>　　虽然还达不到开宗立派的程度，但是这游戏至少是值得一玩的，毕竟一个有视野遮挡，有濒死系统、耐力系统、饱食系统，敌人能够互相伤害，可以通过打到墙上来形成二次伤害(可怜的野猪)，有相当多的实用的武器和buff和技能能跳劈，能欺负别人手太长，能格挡(还有眩晕和弹刀)，能躲避，能点火，能挖地，能破坏场景，能通过调整步履来减少噪音等等的。</p> <p>　　这样一个朝着老滚方向发展的像素游戏相信各位还是乐于见到吧。</p> <p><h4>下载地址(由网友<font color="red">jarod8600</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144618/](https://lad.sfcrom.cn/2024/04/144618/)

@@ -1,0 +1,13 @@
+---
+title: "PC《圣战群英传：解放 Disciples: Liberation》免安装中文版下载（v1.2）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《圣战群英传：解放 Disciples: Liberation》免安装中文版下载，Disciples: Liberation是一款暗黑风格的策略战棋游戏，精彩的剧情搭配自由度极高的玩法，喜欢策略游戏的玩家不要错过。 　　《圣战群英传：解放》是经典黑暗奇幻策略RPG的最新作品。解放纳文达大陆，&hellip;"
+layout: post
+---
+
+ <p>　　PC《圣战群英传：解放 Disciples: Liberation》免安装中文版下载，Disciples: Liberation是一款暗黑风格的策略战棋游戏，精彩的剧情搭配自由度极高的玩法，喜欢策略游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=378634088&amp;bvid=BV1Jf4y1g7BB&amp;cid=428914507&amp;page=2" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660397ed75bf0.webp" alt="PC《圣战群英传：解放 Disciples: Liberation》免安装中文版下载（v1.2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660397edceb3c.webp" alt="PC《圣战群英传：解放 Disciples: Liberation》免安装中文版下载（v1.2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660397ee4917f.webp" alt="PC《圣战群英传：解放 Disciples: Liberation》免安装中文版下载（v1.2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660397eeb2ab3.webp" alt="PC《圣战群英传：解放 Disciples: Liberation》免安装中文版下载（v1.2）" /></td> </tr> </tbody> </table> <p>　　《圣战群英传：解放》是经典黑暗奇幻策略RPG的最新作品。解放纳文达大陆，揭示隐藏在这个包罗万象的世界中无尽的传奇。玩家的每个决策都会带来后果，而错误的决策可能是致命的。</p> <p>　　游戏介绍</p> <p>　　探索一个丰富多彩的大型世界，并与各种派系结为盟友：从被宗教极端主义熏染的人类帝国，到由疯狂女王领导的黑暗亡灵势力。组建一支队伍来收集宝贵的资源，动摇政权体制，并在复杂的回合制战斗中对付凶残的怪兽。</p> <p>　　游戏特色</p> <p>　　80小时以上的单人战役：以三个章节呈现出这部庞大的黑暗幻想史诗，超过270个任务并解锁五个独特的结局。</p> <p>　　探索一个被战争撕裂的大世界：跨越这个被毁灭的世界，挖掘它无尽的秘密、隐藏的宝藏和血腥的过去。</p> <p>　　书写你自己的故事：从四个独特的技能类中做出选择，并在这个世界上立足，然后从各种派别招募人手来为你的大业服务。</p> <p>　　建立基地：寻找宝贵的资源，利用你的政治智慧来建立一个用来筹划和避难的基地。</p> <p>　　为生存而战：招募50多种单位，组织一支最适合你风格的军队;在复杂的回合战斗中磨练你的武装和魔法。</p> <p>　　挑战致命的boss：挑战你的勇气，让你的团队对抗可怕的怪物和野兽，每个挑战都需要独特的策略。</p> <p>　　选择决定一切：你的决策将引导你的命运，并最终决定你成为怎样的领导者。</p> <p>　　与你的朋友对战：在2人在线遭遇战中争夺霸权。</p> <p><h4>下载地址(由网友<font color="red">carinaflyfly</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52692/](https://lad.sfcrom.cn/2024/03/52692/)

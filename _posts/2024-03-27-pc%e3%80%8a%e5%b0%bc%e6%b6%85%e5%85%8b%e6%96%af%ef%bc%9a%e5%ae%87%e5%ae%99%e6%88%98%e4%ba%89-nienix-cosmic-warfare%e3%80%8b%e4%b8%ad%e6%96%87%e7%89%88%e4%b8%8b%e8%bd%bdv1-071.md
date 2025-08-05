@@ -1,0 +1,13 @@
+---
+title: "PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071!穿梭激烈冲突的星系间追寻神话中的失落圣物Nienix!一款基于物理效果的开放世界动作角色扮演游戏，可以单人畅游，也能联机互动! 　　关于这款游戏 　　踏上史诗的旅程，穿梭在激烈冲突的星系间寻觅神话中的圣物&hellip;"
+layout: post
+---
+
+ <p>PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071!穿梭激烈冲突的星系间追寻神话中的失落圣物Nienix!一款基于物理效果的开放世界动作角色扮演游戏，可以单人畅游，也能联机互动!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=484011796&amp;bvid=BV1AT411z74a&amp;cid=1070095258&amp;page=1" width="410"></iframe></p> <p>　　关于这款游戏</p> <p>　　踏上史诗的旅程，穿梭在激烈冲突的星系间寻觅神话中的圣物Nienix。准备好迎接激情四射的游戏体验!由于Nienix被认为具有不可思议的力量，因此它被整个宇宙的各个派系和势力疯狂追寻。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c46bd5216.webp" width="700" alt="PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c46c421d0.webp" width="700" alt="PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c46c86ec9.webp" width="700" alt="PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c46ce5a8c.webp" width="700" alt="PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c46d62e5c.webp" width="700" alt="PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c46db6e36.webp" width="700" alt="PC《尼涅克斯：宇宙战争 Nienix: Cosmic Warfare》中文版下载v1.071" /></p></div> <p>　　基于物理效果的弹幕战斗和动作角色扮演游戏进程。准备好面对各种致命的挑战，这些都需要精良的装备和熟练的操控!</p> <p>　　根据您的游戏风格自由塑造游戏角色!发掘数百种独特的道具和技能。并能根据需要随心所欲地自由改装和混搭!</p> <p>　　您想操控一架小型战机或者巨型战舰?或者指挥自己的舰队?Nienix具有精心设计的角色进程系统，例如技能树和传奇战利品，以适应灵活多变的游戏风格。</p> <p>　　壮阔的战役可以容纳最多6名玩家联机游戏。此外，死亡竞赛模式和团队PVP模式甚至能容纳多达40名玩家参战。</p> <p>　　Nienix中的宇宙通过精良的程序化设计自动创建，确保每次游戏都充满乐趣，且保证没有任何游戏场景重复!</p> <p>　　完成15小时以上的游戏战役以解锁超越时间线难度。除了引入新的敌人、道具和改装词缀之外，还能解锁特有的神秘时间线事件&middot;&middot;&middot;</p> <p>　　加入Discord服务器随时了解开发进展!</p> <p><h4>下载地址(由网友<font color="red">18246080492</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51410/](https://lad.sfcrom.cn/2024/03/51410/)

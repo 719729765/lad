@@ -1,0 +1,13 @@
+---
+title: "[藏经阁]FC/SFC 耀西的饼干 Yoshi&#8217;s Cookie[免费分享]"
+date: 2024-02-02
+tags: []
+categories: ["GAME藏经阁"]
+excerpt: "《耀西的饼干》（日版名：ヨッシーのクッキー，英文版名：Yoshi&#039;s Cookie）是任天堂开发第一部和东星软件共同开发、任天堂发行的益智游戏。该作于1992年11月21日首发，对应红白机和Game Boy双平台。1993年，Bullet-Proof Software自行开发并发行了超级任天堂版游戏&hellip;"
+layout: post
+---
+
+ <div><ul>  <ul>   </ul>  <ul>   </ul> </ul> </div><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240202_65bd002ab5e85.webp" title="耀西的饼干 Yoshi's Cookie" alt="FC/SFC 耀西的饼干 Yoshi's Cookie" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><p>《耀西的饼干》（日版名：ヨッシーのクッキー，英文版名：Yoshi's Cookie）是任天堂开发第一部和东星软件共同开发、任天堂发行的益智游戏。</p><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240202_65bd002ae14ac.jpg" title="FC/SFC 耀西的饼干" alt="FC/SFC 耀西的饼干 Yoshi's Cookie" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><p>该作于1992年11月21日首发，对应红白机和Game Boy双平台。1993年，Bullet-Proof Software自行开发并发行了超级任天堂版游戏。《俄罗斯方块》之父阿列克谢·帕基特诺夫参与了谜题设计工作。</p><a name="ci_title0" ></a><h2>游戏截图</h2><a name="ci_title1" ></a><h3>SFC游戏截图</h3><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240202_65bd002b247b1.jpg" title="耀西的饼干 Yoshi's Cookie" alt="FC/SFC 耀西的饼干 Yoshi's Cookie" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240202_65bd002b4cf61.jpg" title="耀西的饼干 Yoshi's Cookie" alt="FC/SFC 耀西的饼干 Yoshi's Cookie" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240202_65bd002b8be97.jpg" title="耀西的饼干 Yoshi's Cookie" alt="FC/SFC 耀西的饼干 Yoshi's Cookie" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><a name="ci_title2" ></a><h3>FC游戏截图</h3><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240202_65bd002baf90a.jpg" title="耀西的饼干 Yoshi's Cookie" alt="FC/SFC 耀西的饼干 Yoshi's Cookie" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240202_65bd002c110f3.jpg" title="耀西的饼干 Yoshi's Cookie" alt="FC/SFC 耀西的饼干 Yoshi's Cookie" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><a name="ci_title3" ></a><h2>游戏资源</h2><a name="ci_title4" ></a><h3><code>FC</code> Yoshi's Cookie (USA)</h3><p>https://juse.lanzouw.com/iJE1iv909hg</p><a name="ci_title5" ></a><h3><code>SFC</code>Yoshi's Cookie (Europe)</h3><p>https://juse.lanzouw.com/iSQDdv90bwd</p> </div> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/02/6340/](https://lad.sfcrom.cn/2024/02/6340/)

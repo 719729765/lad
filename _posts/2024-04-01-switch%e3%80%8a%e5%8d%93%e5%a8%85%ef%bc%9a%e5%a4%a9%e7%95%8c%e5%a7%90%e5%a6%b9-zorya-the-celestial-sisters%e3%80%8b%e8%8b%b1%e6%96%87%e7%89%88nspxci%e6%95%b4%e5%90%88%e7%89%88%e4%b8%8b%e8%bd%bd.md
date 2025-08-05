@@ -1,0 +1,13 @@
+---
+title: "switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版nsp/xci整合版下载【含1.0.1补丁+DLC】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版下载，这是一款3D的冒险解谜类游戏，主角是两位女神，玩家需要和自己的同伴合作才能解开各种关卡，喜欢合作游戏的玩家可以来试试。 　　这是一款合作解谜游戏，玩家分别扮演夜之女神与太阳女神，帮助不眠的世界重回夜&hellip;"
+layout: post
+---
+
+ <p>　　switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版下载，这是一款3D的冒险解谜类游戏，主角是两位女神，玩家需要和自己的同伴合作才能解开各种关卡，喜欢合作游戏的玩家可以来试试。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=681403593&amp;bvid=BV1HS4y1G77P&amp;cid=504427458&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ca710781.jpg" alt="switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版nsp/xci整合版下载【含1.0.1补丁+DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ca7875f3.jpg" alt="switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版nsp/xci整合版下载【含1.0.1补丁+DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ca80543f.jpg" alt="switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版nsp/xci整合版下载【含1.0.1补丁+DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ca877886.jpg" alt="switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版nsp/xci整合版下载【含1.0.1补丁+DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ca8e40ae.jpg" alt="switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版nsp/xci整合版下载【含1.0.1补丁+DLC】" /></td> </tr> </tbody> </table> <p>　　这是一款合作解谜游戏，玩家分别扮演夜之女神与太阳女神，帮助不眠的世界重回夜晚。两位女神拥有不同的能力，太阳女神利用阳光消灭敌人，触发机关，夜之女神则可以将敌人等吹飞至阳光下，在两女神的配合之下完成各个谜题。</p> <p>　　游戏特色</p> <p>　　阴影：在环境下的阴影中前行，完成每个关卡。Solveig控制白天的时间，为Aysu创造新的路径，并为玩家提供新的可探索区域。</p> <p>　　太阳之力：作为Solveig，使用太阳能消灭敌人并激活游戏中的益智元素，你只能对处于阳光下的敌人和元素使用太阳之力。</p> <p>　　风之力：作为Aysu，用风之力将敌人和谜题推到阳光下，这样Solveig就可以对付他们了。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ca945277.png" width="491" alt="switch《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版nsp/xci整合版下载【含1.0.1补丁+DLC】" /></p> <p>　　以上内容就是小编为大家带来的《卓娅：天界姐妹 Zorya The Celestial Sisters》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">xnn313</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111553/](https://lad.sfcrom.cn/2024/04/111553/)

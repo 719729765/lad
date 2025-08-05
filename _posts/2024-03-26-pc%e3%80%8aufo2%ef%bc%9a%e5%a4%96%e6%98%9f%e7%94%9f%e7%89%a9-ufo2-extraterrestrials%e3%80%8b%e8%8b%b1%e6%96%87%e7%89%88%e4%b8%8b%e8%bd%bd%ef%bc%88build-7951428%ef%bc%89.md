@@ -1,0 +1,13 @@
+---
+title: "PC《UFO2：外星生物 UFO2: Extraterrestrials》英文版下载（Build 7951428）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《UFO2：外星生物 UFO2: Extraterrestrials》英文版下载，这是一款回合制策略游戏，为玩家带来了很经典的策略战棋玩法，游戏以对外星人的调查为主线，喜欢策略游戏的玩家不要错过。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：Chaos Concept 　　游戏发行：C&hellip;"
+layout: post
+---
+
+ <p>　　PC《UFO2：外星生物 UFO2: Extraterrestrials》英文版下载，这是一款回合制策略游戏，为玩家带来了很经典的策略战棋玩法，游戏以对外星人的调查为主线，喜欢策略游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=206233547&amp;bvid=BV1Zh411a7YZ&amp;cid=355442236&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032c6c879ef.webp" alt="PC《UFO2：外星生物 UFO2: Extraterrestrials》英文版下载（Build 7951428）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032c6d1519e.webp" alt="PC《UFO2：外星生物 UFO2: Extraterrestrials》英文版下载（Build 7951428）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032c6d884eb.webp" alt="PC《UFO2：外星生物 UFO2: Extraterrestrials》英文版下载（Build 7951428）" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Chaos Concept</p> <p>　　游戏发行：Chaos Concept</p> <p>　　带有强烈RPG元素的策略游戏是你的茶吗?你是否喜欢像《Xcom》、《UFO防御》、《辐射》系列、《文明》系列、《英雄无敌》等游戏?而现在你正在寻找新的东西来满足你对回合制乐趣的渴望?</p> <p>　　游戏介绍</p> <p>　　使您能够调查地球表面和大气中的外星活动。通过 Geoscape 界面，您将能够派遣战斗机拦截外星船只，您将能够在实时战斗中直接控制您的飞船。使用导弹防御系统、飞机和航空母舰，您将抵御成群的外星船只。Geoscape 界面允许您设计和建造新基地。在这些基地，飞机可能会建造并配备先进的导弹、大炮、装甲和盾牌增援部队，以对抗威胁地球的不明飞行物。您的航空母舰可能配备了多种防御系统，但您的战斗机将始终被视为其主要和最强大的武器。作为指挥官，您将聘请科学家和工程师来设计和构建新工具来帮助您</p> <p>　　在你的斗争中。您还将雇用、训练和装备一支精锐的士兵小队，并派他们去调查 UFO 坠机地点和地球上的外星人活动。</p> <p>　　您将能够为您的士兵配备各种物品以帮助他们完成任务，包括枪支、火箭、手榴弹、激光和其他先进武器、</p> <p>　　盔甲、飞行装置、医疗包和许多其他物品。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: 1.5 Ghz Processor</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: 512 MB Video Card with DirectX 9.0c comatible drivers</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 6 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制SKIDROW文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《UFO2：外星生物 UFO2: Extraterrestrials》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">阿爱啊，yuuki</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41687/](https://lad.sfcrom.cn/2024/03/41687/)

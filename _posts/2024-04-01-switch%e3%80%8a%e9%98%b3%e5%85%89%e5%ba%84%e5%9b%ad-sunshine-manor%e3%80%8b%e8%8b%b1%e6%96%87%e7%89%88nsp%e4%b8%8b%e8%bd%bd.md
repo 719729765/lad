@@ -1,0 +1,13 @@
+---
+title: "switch《阳光庄园 Sunshine Manor》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《阳光庄园 Sunshine Manor》英文版nsp下载，这一款像素风格的角色扮演游戏，为玩家讲述了一个恐怖类型的故事，游戏在画面和音乐上都很用心，是一款非常不错的小游戏。 &nbsp; 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Fossil Games 　　游戏发行：&hellip;"
+layout: post
+---
+
+ <p>　　switch《阳光庄园 Sunshine Manor》英文版nsp下载，这一款像素风格的角色扮演游戏，为玩家讲述了一个恐怖类型的故事，游戏在画面和音乐上都很用心，是一款非常不错的小游戏。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=276958149&amp;bvid=BV17w411A7tP&amp;cid=1293335055&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f95c8ace.webp" width="700" alt="switch《阳光庄园 Sunshine Manor》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f96326c8.webp" width="700" alt="switch《阳光庄园 Sunshine Manor》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f96988c6.webp" width="700" alt="switch《阳光庄园 Sunshine Manor》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f97262e4.webp" width="700" alt="switch《阳光庄园 Sunshine Manor》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f97aa623.webp" width="700" alt="switch《阳光庄园 Sunshine Manor》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f98112f6.webp" width="700" alt="switch《阳光庄园 Sunshine Manor》英文版nsp下载" /></p></div> <p align="center">&nbsp;</p> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Fossil Games</p> <p>　　游戏发行：Hound Picked Games</p> <p>　　《阳光庄园(Sunshine Manor)》是一款8位血腥的恐怖RPG游戏，你将扮演艾达。她敢于在闹鬼的阳光庄园过夜，在这个2016年《阳光营》的前传中，她遇到了鬼魂、恶魔、血淋淋的恐怖和更多。</p> <p>　　游戏介绍</p> <p>　　专为阳光庄园设计的全新发动机。</p> <p>　　探索变幻莫测的阳光庄园。</p> <p>　　把你自己带到恶魔王国去驱逐恶魔!</p> <p>　　为阳光庄园创作的80年代配乐。</p> <p>　　利用艾达的灵力。</p> <p>　　一个奇妙的故事驱动的叙述。</p> <p>　　解救困鬼，进入魔界</p> <p>　　很多惊吓，诡异的场面和对著名的特许经营的点头。</p> <p>　　诡异的谜题来增加你的大脑容量。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: 2.0 GHz Intel or AMD Processor</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: 512 MB NVidia or ATI graphics card</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《阳光庄园 Sunshine Manor》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">jerrylin</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110550/](https://lad.sfcrom.cn/2024/04/110550/)

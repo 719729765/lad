@@ -1,0 +1,13 @@
+---
+title: "switch《多元宇宙中有什么 What Lies in the Multiverse》中文版1.0.3补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《多元宇宙中有什么 What Lies in the Multiverse》中文版下载，这是一款2D的动作冒险游戏，以经典的像素画风将玩家带入了一个神奇的世界，游戏的剧情搞笑且含有深意，感兴趣的玩家可以来试试。 　　《What Lies In The Multiverse》是一款带有&hellip;"
+layout: post
+---
+
+ <p>　　switch《多元宇宙中有什么 What Lies in the Multiverse》中文版下载，这是一款2D的动作冒险游戏，以经典的像素画风将玩家带入了一个神奇的世界，游戏的剧情搞笑且含有深意，感兴趣的玩家可以来试试。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=934267499&amp;bvid=BV1HT4y1R7CY&amp;cid=446083233&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615426fef530.jpg" alt="switch《多元宇宙中有什么 What Lies in the Multiverse》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615427088807.jpg" alt="switch《多元宇宙中有什么 What Lies in the Multiverse》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661542711cbfa.jpg" alt="switch《多元宇宙中有什么 What Lies in the Multiverse》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154271a4336.jpg" alt="switch《多元宇宙中有什么 What Lies in the Multiverse》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154272502e5.jpg" alt="switch《多元宇宙中有什么 What Lies in the Multiverse》中文版1.0.3补丁下载" /></td> </tr> </tbody> </table> <p>　　《What Lies In The Multiverse》是一款带有浮夸喜剧氛围的故事驱动2D冒险游戏。游戏中随处可见令人捧腹的搞怪狂欢，除此以外，玩家还将体验到类似死亡，嫉妒与偏执等更为成熟深刻的故事主题。</p> <p>　　当你掌握了穿越平行世界的能力之后，多元宇宙迅速就变得光怪陆离了起来。每一个关卡都将拥有不同风格，主题以及物理特性的平行世界版本。通过切换自己所在的世界，你将能够揭开考验逻辑与空间掌握能力的挑战，并推动故事发展。</p> <p>　　游戏特色</p> <p>　　无缝转换</p> <p>　　想要随心所欲切换游戏世界?没问题!面前有一块无法爬上的高坡?砰!只需在半空中切换世界即可搞定。怕在冰天雪地的环境里面滑倒?切换至另一个宇宙即可踏上坚实地面!但是千万要小心重力变化&hellip;&hellip;</p> <p>　　五光十色的世界</p> <p>　　在大相径庭的像素艺术世界中踏上一段冒险之旅，每一个世界都将带来独一无二的体验。解开多元宇宙之谜，探索神庙、城镇、海港、荒野以及各式各样意想不到的地点。</p> <p>　　千奇百怪的角色</p> <p>　　遇见类似你的天才同伴埃弗雷特等众多稀奇古怪而且富有魅力的角色。你大可以把那位当成是喜欢冷嘲热讽而且举止怪异的阿尔伯特&middot;爱因斯坦。除此之外还有EZ，惹人怜爱却又难以言喻的神秘人。或者是天顶，这个讳莫如深的神秘组织永远对你紧追不舍。</p> <p>　　深刻的故事</p> <p>　　尽管游戏整体上保持着轻松的主题，但是随之推进剧情，故事的走向也将愈发沉重。一段欢笑与忧愁交织的旅程在等待着你。</p> <p>　　以上内容就是小编为大家带来的《多元宇宙中有什么 What Lies in the Multiverse》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">三臧</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143128/](https://lad.sfcrom.cn/2024/04/143128/)

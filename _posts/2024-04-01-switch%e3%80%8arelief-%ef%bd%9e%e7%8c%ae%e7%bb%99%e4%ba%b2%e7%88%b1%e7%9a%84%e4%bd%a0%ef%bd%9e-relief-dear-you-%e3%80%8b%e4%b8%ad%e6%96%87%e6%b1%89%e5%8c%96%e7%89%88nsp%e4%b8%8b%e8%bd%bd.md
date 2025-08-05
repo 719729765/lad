@@ -1,0 +1,13 @@
+---
+title: "switch《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》中文汉化版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "switch《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》中文汉化版nsp下载。这是一个视觉小说类型的游戏，讲述了成年人重新回到学校进行学习的故事，游戏的画风和剧情都很不错。 　　《Re: LieF~献给亲爱的你~》是日本新锐美少女游戏品牌Rask推出的作品。发售后在市场&hellip;"
+layout: post
+---
+
+ <p>switch《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》中文汉化版nsp下载。这是一个视觉小说类型的游戏，讲述了成年人重新回到学校进行学习的故事，游戏的画风和剧情都很不错。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=671014831&amp;bvid=BV1Ca4y1n7im&amp;cid=280698283&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/06-09/693df5eeec51d184eb720b55b7e80bee.jpg" alt="switch《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》中文汉化版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/06-09/2fa7279e1ab3503c7a3503d9d8e2fe87.jpg" alt="switch《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》中文汉化版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/06-09/e81583d8d093c63d519b6346fc76bac8.jpg" alt="switch《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》中文汉化版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/06-09/bf2e64f5f315d23687b00946cd18c3a2.jpg" alt="switch《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》中文汉化版nsp下载" /></td> </tr> </tbody> </table> <p>　　《Re: LieF~献给亲爱的你~》是日本新锐美少女游戏品牌Rask推出的作品。发售后在市场赢得了年度黑马的高口碑，也荣获了萌系游戏大赏的剧情金奖，在美少女游戏大赏综合第5、剧本第1、画面第2、音乐第6、角色第10(爱)等多个奖项。此外，本作也同时拥有令人一见倾心的顶级场景绘画，以及拥有余音绕梁般魔力的优秀配乐。STEAM版本将同时收录简体中文版、繁体中文和日语版内容，并支持云存档等额外功能。也将支持更多额外内容。</p> <p>　　本作与2020年2月20日推出的视觉小说《TrymenT -献给渴望改变的你- AlphA篇》是同一开发团队制作的共享世界观与游戏角色的作品。本作内容融合了科幻、悬疑、友情、爱情等多样化主题，拥有出色的故事性。</p> <p>　　本作讲述了一群年轻人因为无法融入成年人社会而参加了&ldquo;为融入社会而重塑自我&rdquo;的名为『TrymenT』计划的故事。所有参与者都要在一个独立的岛屿上进行学习和生活。但随着故事的发展，这个计划背后的真正目的慢慢浮出水面。</p> <p>　　故事背景</p> <p>　　新的季节，新的环境，新的校园生活。太平洋上，御云岛中，期待与不安交织的新生活即将拉开帷幕。这里与世隔绝，被山一分为二，没有便利店，没有平价餐厅，也几乎没有娱乐设施，甚至没有网络和手机。主人公等人将在这座岛上，和不相识的人同住一室。在这种环境下，主人公将和向着各自目标迈进的女主角们发展出怎样的恋情?最终等待着他们的『毕业』，又会以何种形式到来?</p> <p>　　有些年轻人在社会生活中遭遇了挫折，也有些年轻人无法顺利适应社会&hellip;&hellip;他们就是TrymenT计划的目标人群。本计划旨在通过让这些年轻人重返校园，培养他们的社交能力，提高对社会生活的适应性。计划的实施地是太平洋上一座名为御云岛的海岛。岛上没有网络，没有手机，也几乎没有娱乐设施。参加者们将在这种环境下，体验为期一年的校园生活。</p> <p>　　以上内容就是小编为大家带来的《ReLieF ～献给亲爱的你～ ReLieF ~ Dear You ~》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">望月夏芽</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112294/](https://lad.sfcrom.cn/2024/04/112294/)

@@ -1,0 +1,13 @@
+---
+title: "PC《屋顶上的百合灵 Kindred Spirits on the Roof》英文版下载（集成Full Chorus）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《屋顶上的百合灵 Kindred Spirits on the Roof》英文版下载，这是一款恋爱冒险类型的游戏，为玩家带来的是一个百合向的温馨故事，游戏的画风十分治愈，感兴趣的玩家不要错过。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Liar-soft 　　游戏发行：Manga&hellip;"
+layout: post
+---
+
+ <p>　　PC《屋顶上的百合灵 Kindred Spirits on the Roof》英文版下载，这是一款恋爱冒险类型的游戏，为玩家带来的是一个百合向的温馨故事，游戏的画风十分治愈，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=17792991&amp;bvid=BV1WW411b7VK&amp;cid=29048716&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032351ac04c.webp" alt="PC《屋顶上的百合灵 Kindred Spirits on the Roof》英文版下载（集成Full Chorus）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660323521ccbb.webp" alt="PC《屋顶上的百合灵 Kindred Spirits on the Roof》英文版下载（集成Full Chorus）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603235283e2f.webp" alt="PC《屋顶上的百合灵 Kindred Spirits on the Roof》英文版下载（集成Full Chorus）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Liar-soft</p> <p>　　游戏发行：MangaGamer</p> <p>　　《Kindred Spirits on the Roof》讲述的是一个百合向的故事，游戏中不会出现任何男性角色。故事的展开也会焕然一新，主人公并不是恋爱的一方，而是负责帮忙撮合校园内其他百合恋人的旁观角色。</p> <p>　　在建立于城址上，被称为&ldquo;城女&rdquo;的商科九星女子学校，以某件事情为契机，本来过着平静校园生活的少女远见结奈，在一次午休时的屋顶意外遇见了2个幽灵。她们是在战前意外而死的榎木纱知，以及在30年前因病身亡的永谷惠。&ldquo;我们可不是幽灵，你要叫我们百合灵哦，我和纱织姐姐可是恋人呢~&rdquo;穿着白色水手校服的惠与纱织相拥而视对结奈说到。抱着思恋而死，相遇、成为恋人的一对百合灵。</p> <p>　　因为生前的愿望没有实现死后仍留存着极为强烈的惦念与渴望，于是她们成为了&ldquo;地缚灵&rdquo;而被困在学校这片地方无法离开，只有实现他们生前强烈的最后一桩愿望后才可以去另一个世界，于是结奈答应了她们的请求。&ldquo;进行没有任何遗憾的初体验&rdquo;便是纱织与惠的愿望，但二人都不懂应该如何实行，所以为了获得这方面的知识，让结奈在校园里帮助那些为恋爱而苦恼的少女们，凑成更多的百合情侣。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 and up</p> <p>　　处理器: Pentium III 800 MHz</p> <p>　　内存: 512 MB RAM</p> <p>　　显卡: DirectX or OpenGL Compatible Card</p> <p>　　DirectX 版本: 9.0</p> <p>　　存储空间: 需要 1400 MB 可用空间</p> <p>　　推荐配置:</p> <p>　　处理器: Pentium IV 1 GHz +</p> <p>　　内存: 1 GB RAM</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《屋顶上的百合灵 Kindred Spirits on the Roof》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Milk_zc</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40624/](https://lad.sfcrom.cn/2024/03/40624/)

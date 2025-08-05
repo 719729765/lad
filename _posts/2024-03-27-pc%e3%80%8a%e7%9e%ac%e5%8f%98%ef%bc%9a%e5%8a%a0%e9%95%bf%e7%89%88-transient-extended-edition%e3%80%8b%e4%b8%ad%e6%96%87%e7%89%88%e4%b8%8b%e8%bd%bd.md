@@ -1,0 +1,13 @@
+---
+title: "PC《瞬变：加长版 Transient: Extended Edition》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《瞬变：加长版 Transient: Extended Edition》中文版下载，这是一款恐怖风格的冒险游戏，在设定上讲克苏鲁和赛博朋克的元素融合在了一起，给玩家带去了非常不一般的体验。 　　类型:冒险,独立 　　开发商:Stormling Studios 　　发行商:Iceberg In&hellip;"
+layout: post
+---
+
+ <p>　　PC《瞬变：加长版 Transient: Extended Edition》中文版下载，这是一款恐怖风格的冒险游戏，在设定上讲克苏鲁和赛博朋克的元素融合在了一起，给玩家带去了非常不一般的体验。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=286920912&amp;bvid=BV1cf4y1X7fH&amp;cid=230150533&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603931237337.jpg" alt="PC《瞬变：加长版 Transient: Extended Edition》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393129e504.jpg" alt="PC《瞬变：加长版 Transient: Extended Edition》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603931309ba1.jpg" alt="PC《瞬变：加长版 Transient: Extended Edition》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393137a003.jpg" alt="PC《瞬变：加长版 Transient: Extended Edition》中文版下载" /></td> </tr> </tbody> </table> <p>　　类型:冒险,独立</p> <p>　　开发商:Stormling Studios</p> <p>　　发行商:Iceberg Interactive</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 64-bit</p> <p>　　处理器: 3.60GHz Intel Core i3-4160</p> <p>　　内存: 6 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 480/570/670, ATI Radeon HD 5870/5850</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 15 GB 可用空间</p> <p>　　洛夫克拉夫特遇见了赛博朋克。深入到一个反乌托邦的世界，调查什么发生在你和你的朋友在圆顶城市。解决难题，破解系统和插入探索其他维度。发现一个可能会撕裂你的理智和质疑你存在的真相。</p> <p>　　在遥远的，后末世的未来，人类留存下来的仅有一座封闭的城堡，人们称之为&ldquo;圆顶城&rdquo;。圆顶城为了抵御外界险恶环境而建造，在这座人类最后的避难所中，鲁道夫&middot;卡特(Randolph Carter)，一个叫做ODIN的臭名昭著的黑客集团的一员，意外之中发现了恐怖的真相&hellip;&hellip;</p> <p>　　游戏特色</p> <p>　　体验克苏鲁的宇宙存在主义与严峻的反乌托邦赛博朋克环境之间前所未有的融合。Transient适应并扩展了这两种流派的精髓，以确保你的体验既熟悉又新鲜。</p> <p>　　从柯尔舍尔的被遗忘的废街到普罗维登斯平坦的街道，Transient充满了难以忘怀的旅行地点。探索现实，你自己的梦想和虚拟世界，以结识介于两者之间的朋友，敌人和生物。</p> <p>　　将优美的环境与令人难以忘怀的原始配乐相结合，营造出身临其境的体验。</p> <p>　　你担任一位名叫伦道夫&middot;卡特的角色，他是一名装备精良的人。使用你的高级感知增强植入物PHI来调查周围环境，扫描线索并突破所有阻止你发现真相的障碍物。</p> <p>　　关于这款游戏就为大家介绍到这里了，喜欢的话就赶快来体验一下吧。</p> <p><h4>下载地址(由网友<font color="red">NioTesla</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51570/](https://lad.sfcrom.cn/2024/03/51570/)

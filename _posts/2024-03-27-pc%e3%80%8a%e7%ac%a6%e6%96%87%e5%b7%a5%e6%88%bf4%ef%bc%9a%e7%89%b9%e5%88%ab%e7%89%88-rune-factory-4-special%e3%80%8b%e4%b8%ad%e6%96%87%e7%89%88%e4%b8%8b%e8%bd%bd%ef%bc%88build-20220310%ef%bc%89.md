@@ -1,0 +1,13 @@
+---
+title: "PC《符文工房4：特别版 Rune Factory 4 Special》中文版下载（Build 20220310）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《符文工房4：特别版 Rune Factory 4 Special》中文版下载，这是经典角色扮演游戏符文工房系列的第四代作品，依然是大家喜爱的动作冒险+模拟经营类型的玩法，赶快来体验一下吧。 　　类型:角色扮演 　　开发商:Marvelous Inc. 　　发行商:XSEED Games,M&hellip;"
+layout: post
+---
+
+ <p>　　PC《符文工房4：特别版 Rune Factory 4 Special》中文版下载，这是经典角色扮演游戏符文工房系列的第四代作品，依然是大家喜爱的动作冒险+模拟经营类型的玩法，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=976455372&amp;bvid=BV1k44y1i7Hx&amp;cid=436740026&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603977c7fee4.jpg" alt="PC《符文工房4：特别版 Rune Factory 4 Special》中文版下载（Build 20220310）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603977d1331a.jpg" alt="PC《符文工房4：特别版 Rune Factory 4 Special》中文版下载（Build 20220310）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603977d8689f.jpg" alt="PC《符文工房4：特别版 Rune Factory 4 Special》中文版下载（Build 20220310）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603977e0207d.jpg" alt="PC《符文工房4：特别版 Rune Factory 4 Special》中文版下载（Build 20220310）" /></td> </tr> </tbody> </table> <p>　　类型:角色扮演</p> <p>　　开发商:Marvelous Inc.</p> <p>　　发行商:XSEED Games,Marvelous USA, Inc.,Marvelous</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel Core i5-6400</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Intel HD Graphics HD530</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　《符文工房4》早在2012年就登陆到3DS平台，阔别整整7年，终于将再次在任天堂平台上大放异彩。《符文工房4：特别版》预告片展示了在原版基础上大大强化的画面水准，并且人物立绘也高清化，带来《符文工房4》的终极体验。</p> <p>　　游戏介绍</p> <p><strong>无限可能的世界</strong></p> <p>　　种植庄稼、饲养怪物、捕鱼、烹制美味佳肴并制作强大的设备。过你自己选择的生活!</p> <p><strong>冒险等待着</strong></p> <p>　　在城门外冒险探索危险的地牢。使用剑、长矛、法杖和其他武器和魔法来个性化您的战斗策略，因为在充满陷阱的地牢中等待着强大的怪物。邀请市民，与怪物建立友谊，共同成长。</p> <p><strong>扩大您的社交圈</strong></p> <p>　　与迷人的互动角色成为朋友(或不仅仅是朋友)，并通过季节性节日和比赛为城镇注入活力。</p> <p><strong>从此幸福地生活</strong></p> <p>　　在新婚模式中与您的配偶一起玩一个特别的故事，并重新爱上您的最爱!还包括由婚姻候选人(和文图斯威尔)讲述的 13 个全配音的&ldquo;另一集&rdquo;奖励故事。</p> <p>　　这款经典的模拟经营类游戏就为大家介绍到这了，喜欢这个系列的话不要错过哦。</p> <p><h4>下载地址(由网友<font color="red">newclub</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52187/](https://lad.sfcrom.cn/2024/03/52187/)

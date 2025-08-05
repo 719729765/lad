@@ -1,0 +1,13 @@
+---
+title: "switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 &#8211; City Roads》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载!Bus Driving Simulator 24 - City Roads 让您坐在驾驶座上，让您成为真正的巴士司机!拥有世界各地的详细地图、各种现代城市巴士&hellip;"
+layout: post
+---
+
+ <p>　　switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载!Bus Driving Simulator 24 - City Roads 让您坐在驾驶座上，让您成为真正的巴士司机!拥有世界各地的详细地图、各种现代城市巴士和校车，具有逼真的内饰和开创性的 1：1 物理引擎。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4479ea5ba.webp" width="700" alt="switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a447a976e4.webp" width="700" alt="switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a447b4b0b1.webp" width="700" alt="switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a447c2dfe6.webp" width="700" alt="switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a447d1381f.webp" width="700" alt="switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a447dccafe.webp" width="700" alt="switch《巴士驾驶模拟器24：城市道路 Bus Driving Simulator 24 - City Roads》英文版nsp下载" /></p></div> <p>　　在这个巴士模拟器游戏中驾驶许多城市公共汽车和校车。您一直在等待的巴士驾驶游戏就在这里。</p> <p>　　Bus Driving Simulator 24 - City Roads 让您坐在驾驶座上，让您成为真正的巴士司机!拥有世界各地的详细地图、各种现代城市巴士和校车，具有逼真的内饰和开创性的 1：1 物理引擎。</p> <p>　　坐在方向盘后面，驾驶你的巴士完成所有路线!驾驶柴油、混合动力、电动、铰接式、双层或校车，并根据需要定制您的巴士。</p> <p>　　特点：</p> <p>　　&bull; 逼真的城市地图：美国(旧金山)、南美洲(布宜诺斯艾利斯)、欧洲(德国 - 柏林、英国 - 伦敦、捷克共和国 - 布拉格)、阿联酋(迪拜)、中国(上海)</p> <p>　　&bull; 多种柴油、混合动力、电动、铰接式、双层和校车可供选择</p> <p>　　&bull; 职业和自由乘车模式</p> <p>　　&bull; 许多巴士定制选项，包括油漆、配件、车身部件、空调、旗帜、贴花等等&bull; 详细且可定制的内饰&bull; 打开/关闭门按钮，动画人物进入/离开巴士</p> <p>　　&bull; 一天中的多个时间和天气条件可供选择&bull; 使用校车模型</p> <p>　　开车送孩子上学</p> <p>　　&bull; 公交公司管理系统，为您的公交车聘请司机和自定义路线调度</p> <p>　　&bull; 智能交通系统</p> <p><h4>下载地址(由网友<font color="red">zuan76</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/108145/](https://lad.sfcrom.cn/2024/04/108145/)

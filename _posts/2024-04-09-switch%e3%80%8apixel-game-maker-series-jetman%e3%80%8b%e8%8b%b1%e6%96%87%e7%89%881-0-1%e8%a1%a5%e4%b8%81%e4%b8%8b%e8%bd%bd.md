@@ -1,0 +1,13 @@
+---
+title: "switch《Pixel Game Maker Series JETMAN》英文版1.0.1补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《Pixel Game Maker Series JETMAN》英文版下载，这是用Pixel Game Maker制作的一款游戏，很有趣的平台动作类型玩法，游戏卡通风格的画风质量也很高，对这款游戏感兴趣的玩家不要错过。 　　Pixel Game Maker Series JETMAN&hellip;"
+layout: post
+---
+
+ <p>　　switch《Pixel Game Maker Series JETMAN》英文版下载，这是用Pixel Game Maker制作的一款游戏，很有趣的平台动作类型玩法，游戏卡通风格的画风质量也很高，对这款游戏感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=215505502&amp;bvid=BV18a411H7tt&amp;cid=761587750&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154222340f6.jpg" alt="switch《Pixel Game Maker Series JETMAN》英文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154222df31b.jpg" alt="switch《Pixel Game Maker Series JETMAN》英文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154223ab0c8.jpg" alt="switch《Pixel Game Maker Series JETMAN》英文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661542247759e.jpg" alt="switch《Pixel Game Maker Series JETMAN》英文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661542252bc57.jpg" alt="switch《Pixel Game Maker Series JETMAN》英文版1.0.1补丁下载" /></td> </tr> </tbody> </table> <p>　　Pixel Game Maker Series JETMAN是一款简单的跳跃动作游戏，只需一个按钮。</p> <p>　　跳跃的高度取决于按住按钮的长度。</p> <p>　　根据敌人的位置做出最佳的跳跃攻击。</p> <p>　　●超过50种敌人!</p> <p>　　有许多敌人有着独特的外表和动作。</p> <p>　　识别它们的特征并有效地攻击它们。</p> <p>　　●收集JP(=垃圾点)来强化你的性格!</p> <p>　　你可以通过花费在战斗中获得的点数来强化你的性格。</p> <p>　　加强你的攻击还是防御?</p> <p>　　这取决于你决定你想优先考虑哪一个。</p> <p>　　●给世界增添色彩的人物和故事</p> <p>　　Jet是Arc博士为阻止邪恶组织Violet的野心而创建的半机器人。</p> <p>　　围绕Jet的故事将活跃游戏。</p> <p>　　●游戏结束后的乐趣</p> <p>　　清除主游戏后可用的专用模式。</p> <p>　　尽情享受&ldquo;JETMAN&rdquo;!</p> <p>　　&ldquo;Pixel Game Maker Series&rdquo;是使用动作游戏创建软件&ldquo;Pixel Game Maker MV&rdquo;创建的一系列游戏，可以在任天堂Switch上玩&trade;.</p> <p>　　以上内容就是小编为大家带来的《Pixel Game Maker Series JETMAN》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">wwc1102</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146055/](https://lad.sfcrom.cn/2024/04/146055/)

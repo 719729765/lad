@@ -1,0 +1,13 @@
+---
+title: "模拟农场19 Farming Simulator 19 PC中文版下载（集成设备包）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　模拟农场19 Farming Simulator 19 PC中文版下载。百万销量的品牌以全新的图形引擎、让人着迷的游戏玩法以及身临其境的视效又向前迈出重要一步，诚邀您体验有史以来最大型的农耕模拟游戏。 　　模拟农场 19与业内最著名的品牌强强联手，迈出了重大的一步!您将掌控的农用车辆和工具，均是&hellip;"
+layout: post
+---
+
+ <p>　　模拟农场19 Farming Simulator 19 PC中文版下载。百万销量的品牌以全新的图形引擎、让人着迷的游戏玩法以及身临其境的视效又向前迈出重要一步，诚邀您体验有史以来最大型的农耕模拟游戏。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660383e7581c2.jpg" width="600" alt="模拟农场19 Farming Simulator 19 PC中文版下载（集成设备包）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660383e811900.jpg" width="600" alt="模拟农场19 Farming Simulator 19 PC中文版下载（集成设备包）" /></p> <p>　　模拟农场 19与业内最著名的品牌强强联手，迈出了重大的一步!您将掌控的农用车辆和工具，均是根据业内最著名的品牌忠实再造，包括首次上线的John Deere，世界上最大的农业机械公司Case IH、New Holland、Challenger、Fendt、Massey Ferguson、Valtra、Krone、Deutz-Fahr以及更多。</p> <p>　　新的背景环境将设于美国及欧洲，在游戏中玩家将开发并扩大农耕事业，并引入众多新鲜的农业机制，包括新的农作机器和作物，如棉花和燕麦等!饲养牛、羊、猪、鸡等牲畜&mdash;&mdash;或者来点新鲜的，骑上马儿巡视农场周围广袤的土地。</p> <p>　　游戏将提供有史以来最丰富，也是最完整的农耕经验，游戏将于年底分别在游戏主机和PC发布!</p> <p>　　主要特点</p> <p>　　Farming Simulator (模拟农场)品牌做出了质的飞跃，将以让人着迷的游戏玩法以及身临其境视效吸引眼球</p> <p>　　玩家将掌管上百台农用车辆和工具，它们都是根据业内最著名的品牌进行忠实再造的，包括首次上线的世界上最大的农业机械公司：John Deere</p> <p>　　饲养牛、羊、猪、鸡等牲畜，并首次添加了马作为饲养动物</p> <p>　　骑上马儿巡视农场周围广袤的土地，探索充满了各种农业机制的开放性世界</p> <p>　　在线与多达16名玩家开发你的农耕事业，并通过社区创建的模组进一步加深无与伦比的农耕体验!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: 64-bit Windows 7, Windows 8, Windows 10</p> <p>　　处理器: Intel Core i3-2100T @ 2.5GHz or AMD FX-4100 @3.6 GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　图形: Nvidia Geforce GTX 650, AMD Radeon HD 7770 graphics card or better (min. 2 GB VRAM, DX11 support)</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 20 GB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制CODEX文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">llhhappy</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/48530/](https://lad.sfcrom.cn/2024/03/48530/)

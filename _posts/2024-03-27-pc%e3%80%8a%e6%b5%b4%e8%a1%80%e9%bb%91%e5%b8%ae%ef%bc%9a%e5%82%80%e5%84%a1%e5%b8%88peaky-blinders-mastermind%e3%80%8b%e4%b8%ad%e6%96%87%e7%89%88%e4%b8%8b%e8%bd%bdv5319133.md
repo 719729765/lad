@@ -1,0 +1,13 @@
+---
+title: "PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133!《浴血黑帮：傀儡师》是一款解谜冒险游戏，基于屡获大奖的英剧改编。身为帮派的大脑，你会控制几个剧中的关键角色并用他们来实现各种完美协同的计划。游戏支持简体中文。 　　关于这款游戏 　　第一款虚&hellip;"
+layout: post
+---
+
+ <p>　　PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133!《浴血黑帮：傀儡师》是一款解谜冒险游戏，基于屡获大奖的英剧改编。身为帮派的大脑，你会控制几个剧中的关键角色并用他们来实现各种完美协同的计划。游戏支持简体中文。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=796798910&amp;bvid=BV1eC4y1t7eL&amp;cid=225731272&amp;page=1" width="410"></iframe></p> <p>　　关于这款游戏</p> <p>　　第一款虚拟现实游戏的灵感来源于史诗般的黑帮剧情。</p> <p>　　现在是1928年，你已经逃离行刑队十多年了。向臭名昭著的犯罪头目汤米&middot;谢尔比(西里安&middot;墨菲饰)寻求帮助，你卷入了对温斯顿&middot;丘吉尔红盒子的追捕：一个装有全球每一位英国特工身份的公文包。</p> <div> <p align="center">&nbsp;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3b77df87.webp" width="700" alt="PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3b7cb53b.webp" width="700" alt="PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3b82b94e.webp" width="700" alt="PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3b8760a7.webp" width="700" alt="PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3b8c5ee6.webp" width="700" alt="PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3b91f33f.webp" width="700" alt="PC《浴血黑帮：傀儡师/Peaky Blinders: Mastermind》中文版下载v5319133" /></p></div> <p>　　当你被卷入英格兰的黑社会时，你会发现自己再次陷入战争。敌对派系正在逼近，他们都想要盒子：为了权力，为了金钱，还有让国家屈服的机会。当酝酿中的紧张局势爆发为激烈的行动时，保持理智，战胜困难，夺回盒子&hellip;&hellip;按照和平盲人的命令!</p> <p>　　与剧中的标志性人物面对面，包括汤米&middot;谢尔比(西里安&middot;墨菲饰)和他头脑发热的哥哥亚瑟(保罗&middot;安德森饰)。</p> <p>　　推翻一项将整个国家置于危险境地的巴解组织。你要走多远才能得到救赎?</p> <p>　　在惊心动魄、快节奏的枪战中与敌人较量，你需要即兴发挥才能保持活力。</p> <p>　　探索20世纪20年代伯明翰和伦敦的砂砾街道。</p> <p>　　沉浸在演出的各个地点，包括加里森酒馆、查理庭院和谢尔比博彩店。</p> <p>　　发现隐藏在美丽的环境中的秘密，收集有趣的物品，拼凑隐藏的故事。</p> <p><h4>下载地址(由网友<font color="red">香辣鸡翅</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/5860/](https://lad.sfcrom.cn/2024/03/5860/)

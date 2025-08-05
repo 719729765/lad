@@ -1,0 +1,13 @@
+---
+title: "PC《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版下载（v1.1.2f2）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版下载，这是要款画风十分可爱的动作游戏，讲述的是大头菜小子为了避税而展开战斗的故事，设定和剧情都很有趣。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Snoozy Kazoo 　　游戏发行：Gra&hellip;"
+layout: post
+---
+
+ <p>　　PC《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版下载，这是要款画风十分可爱的动作游戏，讲述的是大头菜小子为了避税而展开战斗的故事，设定和剧情都很有趣。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=895779293&amp;bvid=BV16A4y1Q7tG&amp;cid=580117854&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603989bc10a0.jpg" alt="PC《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版下载（v1.1.2f2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603989c2320a.jpg" alt="PC《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版下载（v1.1.2f2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603989c85d63.jpg" alt="PC《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版下载（v1.1.2f2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603989d02d63.jpg" alt="PC《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版下载（v1.1.2f2）" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Snoozy Kazoo</p> <p>　　游戏发行：Graffiti Games</p> <p>　　《大头菜小子偷税记(Turnip Boy Commits Tax Evasion)》是一款十分可爱的像素动作冒险游戏，在游戏中你是一个可爱的大头菜男孩儿，有着自己的农场，但是巨额的税收却让你不堪重负，于是你决定通过一些手段来减少自己的税收，同时还要处理自己农场中的各种事情。</p> <p>　　游戏介绍</p> <p>　　精彩刺激的单人冒险旅程，加入逃税、轻微罪行等丰富元素。</p> <p>　　地牢中充满各种谜题、敌人和用来还债的稀有财宝。</p> <p>　　与威胁花园社区的巨大野兽作战。</p> <p>　　种植和收获植物，为旅程增加助力。</p> <p>　　遇见一大群基于食物的古怪角色，了解他们各自的故事和难题。</p> <p>　　大量的税务文件等你撕裂，抹去你的书面记录，并有机会推翻政府。</p> <p>　　赢取可收集的帽子并轮流戴上。</p> <p>　　根据你的逃税效率，提供多种结局。</p> <p>　　深度映射世界历史及其演化过程。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Microsoft&reg; Windows&reg;10</p> <p>　　处理器: 1.2GHz processor (Intel Core i5 and up)</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: DirectX 10, 11, or 12 compatible card</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 600 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《大头菜小子偷税记 Turnip Boy Commits Tax Evasion》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">13646173880</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53397/](https://lad.sfcrom.cn/2024/03/53397/)

@@ -1,0 +1,13 @@
+---
+title: "switch《前线任务1：重制版/雷霆任务1st 重制版 FRONT MISSION 1st: Remake》中文版NSZ下载【含2.0.5补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《前线任务1：重制版/雷霆任务1st 重制版 FRONT MISSION 1st: Remake》中文版NSZ下载【含2.0.5补丁】!这次的重制版，是将过去一代内容完全收录，并将登场地图、机甲全部 3D 化，除了可以体验原作操作体验的经典模式外，还收录加入可以回转地图等新要素的现代模式&hellip;"
+layout: post
+---
+
+ <p>switch《前线任务1：重制版/雷霆任务1st 重制版 FRONT MISSION 1st: Remake》中文版NSZ下载【含2.0.5补丁】!这次的重制版，是将过去一代内容完全收录，并将登场地图、机甲全部 3D 化，除了可以体验原作操作体验的经典模式外，还收录加入可以回转地图等新要素的现代模式等两种玩法，就连 BGM 乐曲也都全部改编的系列最新移植重制版本。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=902834681&amp;bvid=BV1FP4y1R755&amp;cid=896027569&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f65340447.webp" width="745" alt="switch《前线任务1：重制版/雷霆任务1st 重制版 FRONT MISSION 1st: Remake》中文版NSZ下载【含2.0.5补丁】" /></p> <p>　　《雷霆任务 Front Mission》为过去土田俊郎、天野喜孝、坂口博信等知名创作者们开发、以机甲为主题的战棋式 SRPG 游戏。自 1995 年推出首作以来，不但曾陆续推出多款续作，更曾陆续推出包括小说、漫画等各式各样泛娱乐平台版本。至于这次的重制版，是将过去一代内容完全收录，并将登场地图、机甲全部 3D 化，除了可以体验原作操作体验的经典模式外，还收录加入可以回转地图等新要素的现代模式等两种玩法，就连 BGM 乐曲也都全部改编的系列最新移植重制版本。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f653bf33f.webp" width="746" alt="switch《前线任务1：重制版/雷霆任务1st 重制版 FRONT MISSION 1st: Remake》中文版NSZ下载【含2.0.5补丁】" /></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f65440fd5.webp" alt="switch《前线任务1：重制版/雷霆任务1st 重制版 FRONT MISSION 1st: Remake》中文版NSZ下载【含2.0.5补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f654d229a.webp" alt="switch《前线任务1：重制版/雷霆任务1st 重制版 FRONT MISSION 1st: Remake》中文版NSZ下载【含2.0.5补丁】" /></td> </tr> </tbody> </table> <p align="center">&nbsp;</p> <p>　　附带一提，在本作中，将会以 2090 年的近未来世界作为舞台。在当时的战争中，会使用被称为「Wanzers」(ヴァンツァー)的巨大步行兵器机甲机器人做为主力。而在这个世界里，共有两大势力存在，分别是「O.C.U. 亚太共同联合」(Oceania Cooperative Union/オシアナ共同连合)与「U.S.N. 新美洲合众国」(United States of New Continent/ニューコンチネント合众国)。而两大势力国境唯一交接的「哈夫曼岛」(Huffman Island/ハフマン岛)，则因此而成为两大势力交锋的纷争之地。</p> <p>　　在游戏中，玩家将操纵身为 O.C.U. 军特务侦察队队长的「罗伊德.克拉布」(Roid Clive/ロイド・クライブ)上尉，在前往进行 U.S.N 军方设施的任务，遭到 U.S.N 军队的伏击，因此而引发一连串将整个哈夫曼岛全部卷入其中的巨大事件，就连罗伊德的未婚妻「卡莲.缪雅」(Karen Meure/カレン・ミューア)中尉也因此而下落不明。罗伊德必须通过一连串的挑战，找出引发这次纷争事件背后的黑手与阴谋真相&mdash;&mdash;</p> <p><h4>下载地址(由网友<font color="red">王胆</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100686/](https://lad.sfcrom.cn/2024/04/100686/)

@@ -1,0 +1,13 @@
+---
+title: "switch《伊甸之路》（暂未上线）-人物mod下载"
+date: 2024-04-09
+tags: []
+categories: ["游戏mod"]
+excerpt: "　　switch《伊甸之路》神器-人物mod下载。接下来为玩家朋友们带来的是游戏伊甸之路的一个mod，有需要的话大家可以来关注一下哦。 　　三个神器 　　神器1：ColdWinter 　　神器2：ForbiddenArea 　　神器3：IceCrystal 　　神器1效果： 　　每1秒对所有敌人施加&hellip;"
+layout: post
+---
+
+ <p>　　switch《伊甸之路》神器-人物mod下载。接下来为玩家朋友们带来的是游戏伊甸之路的一个mod，有需要的话大家可以来关注一下哦。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661501b9a4ddd.webp" width="600" alt="switch《伊甸之路》（暂未上线）-人物mod下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661501ba0f24c.webp" width="600" alt="switch《伊甸之路》（暂未上线）-人物mod下载" /></p> <p>　　三个神器</p> <p>　　神器1：ColdWinter</p> <p>　　神器2：ForbiddenArea</p> <p>　　神器3：IceCrystal</p> <p>　　神器1效果：</p> <p>　　每1秒对所有敌人施加1层冰冻</p> <p>　　且保持所有敌人被连接</p> <p>　　每6秒回复血量200</p> <p>　　神器2效果：</p> <p>　　每1秒在前方4格掉下咖喱棒</p> <p>　　每3秒随机掉下光之护封剑</p> <p>　　每9秒时间变缓一次</p> <p>　　神器3效果：</p> <p>　　每次被击中召唤一个冰风暴</p> <p>　　每次移动射出一个任意属性伤害的直线弹道</p> <p>　　每6秒生成一个持续3秒的反射盾牌</p> <p>　　死亡会复活并回复1000血</p> <p>　　使用方法：</p> <p>　　将MOD文件夹放入010048800f41c000romfsDataMods目录</p> <p>　　人物MODS：Y0 + f&amp; @: w7 H3 }) A8 o</p> <p>　　博丽灵梦</p> <p>　　人物属性：# r0 C4 O: b# L2 ti6 H$ v: |</p> <p>　　血量上限: 1000</p> <p>　　魔力上限: 2% f3 M, w5 h! VE4 @8 t</p> <p>　　魔力恢复: 0.8 / sec</p> <p>　　洗牌时间: 4 sec: K7 g/ z3 n; ^! T8 a+ ~&#39; d8 q9 c9 {</p> <p>　　增加了两张符卡!5 `3 s# F* b6 w&amp; U0 U, |</p> <p>　　Spirit Sign &quot;Fantasy Seal&quot;(灵符&ldquo;梦想封印&rdquo;) 对随机敌人造成伤害。</p> <p>　　Dream Sign &quot;Evil-Sealing Circle&quot; (梦符&ldquo;封魔阵&rdquo;)对击中的敌人造成禁锢。</p> <p>　　它们的消费均为当前的最大魔力值，但是当前的最大魔力越多，它们越厉害。</p> <p>　　暗影刺客 莎芙F</p> <p>　　莎芙作为一名军事科学家，当然也略懂暗杀之术。</p> <p>　　这是一款莎芙的近身战新套组MOD，包含一个新的角色套组，一张新武器卡，一张新初始神器卡，一张新初始技能卡。</p> <p>　　1 暗影步 / Shadow Step</p> <p>　　武器卡 / Weapon card</p> <p>　　1 Mana</p> <p>　　&quot;只是往前跳上一小步，这很简单。&quot;</p> <p>　　向前冲刺4格，在1.2秒后回到原地。</p> <p>　　期间可以移动和使用大部分技能，冲刺攻击会变为在原地进行，远程射击只能使用3次。</p> <p>　　如果发动了其他技能，则刷新回退倒计时。</p> <p>　　2 背刺 / Back Stab</p> <p>　　技能卡 / spell card</p> <p>　　1 Mana 30 dmg</p> <p>　　&quot;站在我的背后是很危险的，我可不推荐你这么做。</p> <p>　　向身后1排3格发起攻击。每在暗影步状态下维持1秒，伤害增加200%。</p> <p>　　若在暗影步状态下击中目标，则立即补充射击限制数至3，若不是最后一张卡则立即回到手中。</p> <p>　　------</p> <p>　　3 暗影斗篷</p> <p>　　神器&quot;有什么比一件斗篷更帅的?一件黑色的斗篷!&quot;</p> <p>　　当发动武器技能时，获得1.2秒的时间减缓。</p> <p>　　在该效果持续时间内，如果发动技能，则再获得1.2秒的时间减缓;</p> <p>　　如果击中任意单位，获得5点护盾和0.5能量，以及0.3秒的下一次洗牌时间减免。</p> <p><h4>下载地址(由网友<font color="red">生产日期</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/141159/](https://lad.sfcrom.cn/2024/04/141159/)

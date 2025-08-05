@@ -1,0 +1,13 @@
+---
+title: "恐怖阿卡姆:母拥 Arkham Horror: Mother&#039;s Embrace PC英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　恐怖阿卡姆:母拥 Arkham Horror: Mother&#039;s Embrace PC英文版下载。这是一款角色扮演游戏，在游戏中玩家将来到洛夫克拉夫特式的恐怖世界，其中发生了不少神秘的事件，而这一切都需要玩家去探索解决。 　　那年是1926年：天文学教授被发现死在她的豪宅中，一切都表明她&hellip;"
+layout: post
+---
+
+ <p>　　恐怖阿卡姆:母拥 Arkham Horror: Mother&#39;s Embrace PC英文版下载。这是一款角色扮演游戏，在游戏中玩家将来到洛夫克拉夫特式的恐怖世界，其中发生了不少神秘的事件，而这一切都需要玩家去探索解决。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=374359365&amp;bvid=BV14Z4y1A78G&amp;cid=301672297&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660318960355a.jpg" alt="恐怖阿卡姆:母拥 Arkham Horror: Mother&amp;#039;s Embrace PC英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603189682846.jpg" alt="恐怖阿卡姆:母拥 Arkham Horror: Mother&amp;#039;s Embrace PC英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603189713e89.jpg" alt="恐怖阿卡姆:母拥 Arkham Horror: Mother&amp;#039;s Embrace PC英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660318977e594.jpg" alt="恐怖阿卡姆:母拥 Arkham Horror: Mother&amp;#039;s Embrace PC英文版下载" /></td> </tr> </tbody> </table> <p>　　那年是1926年：天文学教授被发现死在她的豪宅中，一切都表明她一直是一起令人发指的谋杀案的受害者。从Arkham Horror游戏中的12位勇敢的调查员中进行选择，每个调查员都有一套独特的技能，并组建您的团队为这场神秘的死亡揭开序幕。</p> <p>　　随着故事的展开，寻找线索，进行审讯并在九个章节中取得进展。您的调查将带您参观阴影遮蔽的机构和神秘的地方，包括密斯卡吞尼亚大学，阿卡姆庇护所和路易斯安那州的四面楚歌。</p> <p>　　随着调查人员越来越接近他们的目标，您的团队将不得不面对好奇的科学，噩梦和邪恶的邪教组织，他们的疯狂计划是终结一切。在回合制战斗中使用各种各样的近战和远程武器以及强大的物品和毁灭性的魔法来击败对手;在尝试保持理智的同时。</p> <p>　　当您面对Lovecraftian的恐怖时，您的调查员将深入到疯狂的深渊，影响他们的理智程度，并造成创伤，从而影响您的调查过程。关心您的理智并做出正确的选择&hellip;&hellip;远古人正在准备他们的归来。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows&reg; 7, 64-bit</p> <p>　　处理器: Intel Core 2 Duo E4700 2.6 GHz or AMD Phenom 9950 Quad Core 2.6 GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: 1GB ATI Radeon HD 5770, 1GB NVIDIA GeForce GTX 460 or better</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　声卡: DirectX compatible sound card</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制CODEX文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">gxneoo</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/42804/](https://lad.sfcrom.cn/2024/03/42804/)

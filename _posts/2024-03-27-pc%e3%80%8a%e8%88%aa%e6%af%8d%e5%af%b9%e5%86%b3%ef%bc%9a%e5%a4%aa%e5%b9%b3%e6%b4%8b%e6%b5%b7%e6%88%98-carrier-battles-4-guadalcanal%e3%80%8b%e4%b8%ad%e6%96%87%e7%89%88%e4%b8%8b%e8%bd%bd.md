@@ -1,0 +1,13 @@
+---
+title: "PC《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版下载，这是一款以海战为主题的策略战棋游戏，是从移动平台移植过来的，是以二战的太平洋战场为背景的，一起来体验一下吧。 &nbsp; 　　游戏类型：策略类(SLG)游戏 　　游戏制作：Avalon Digi&hellip;"
+layout: post
+---
+
+ <p>　　PC《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版下载，这是一款以海战为主题的策略战棋游戏，是从移动平台移植过来的，是以二战的太平洋战场为背景的，一起来体验一下吧。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=591511499&amp;bvid=BV1Xq4y1r7pM&amp;cid=437310420&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c1212e0db.webp" width="700" alt="PC《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c1218cecb.webp" width="700" alt="PC《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c1220c08d.webp" width="700" alt="PC《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c122682d4.webp" width="700" alt="PC《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版下载" /></p></div> <p align="center">&nbsp;</p> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Avalon Digital/Cyril Jarnot</p> <p>　　游戏发行：Avalon Digital</p> <p>　　这是一款以二战时期美日之间发生的太平洋战争为背景的策略类游戏。玩家将选择不同的势力，带领自己的飞机和战舰在这个辽阔的太平洋上展开较量。游戏中还原了许多经典的战役，而玩家的决策则是对这些历史的再演绎。</p> <p>　　游戏特色</p> <p>　　- 强大的AI保证单人战役也能让您感到酣畅淋漓</p> <p>　　- 跨平台多人对战</p> <p>　　- 11个历史战役：41年12月威克岛保卫战、42年初美军的初次反击、42年3月珊瑚海海战、42年6月中途岛海战、42年8月瞭望塔行动和东所罗门海战、42年10月圣克鲁斯海战、42年12月瓜达尔卡纳尔海战，43年2月瓜达卡纳尔海战、43年3月俾斯麦海海战及43年攻击拉包尔。</p> <p>　　- 巨大的南太平洋地图(每个网格代表30英里)</p> <p>　　- 超过80种各型战机和舰船</p> <p>　　- 颇为真实的情报获取机制，航空侦察、雷达等应有尽有</p> <p>　　- 对敌方目标发动空袭，或让舰炮发出钢铁的制裁</p> <p>　　- 颇为真实的损伤判定</p> <p>　　- 炮击岸上目标以及派遣部队登陆</p> <p>　　- 回合制</p> <p>　　- 附带循序渐进的规则指导帮助玩家上手</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7(SP1+)/8/10</p> <p>　　处理器: 2.5 GHz Intel Dual Core</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: 512 MB NVIDIA GeForce 9600 or equivalent</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 750 MB 可用空间</p> <p>　　声卡: DirectX 10+ Compatible</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《航母对决：太平洋海战 Carrier Battles 4 Guadalcanal》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">z1b2y3</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52713/](https://lad.sfcrom.cn/2024/03/52713/)

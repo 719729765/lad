@@ -1,0 +1,13 @@
+---
+title: "switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版nsp下载+1.0.3补丁"
+date: 2024-04-05
+tags: []
+categories: ["Switch汉化游戏"]
+excerpt: "　　switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版，这是一款出色的AVG游戏，讲述了一个感人的故事，主角们将在梦境的世界中探索，喜欢这个风格的玩家不要错过。 　　这是一个将视觉小说的系统和故事构造巧妙结合的&hellip;"
+layout: post
+---
+
+ <p>　　switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版，这是一款出色的AVG游戏，讲述了一个感人的故事，主角们将在梦境的世界中探索，喜欢这个风格的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=936460546&amp;bvid=BV13T4y1X7Bi&amp;cid=504922573&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2fc0d5bc.webp" alt="switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版nsp下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2fc68350.webp" alt="switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版nsp下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2fcc4846.webp" alt="switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版nsp下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2fd34975.webp" alt="switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版nsp下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed2fda4a80.webp" alt="switch《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版nsp下载+1.0.3补丁" /></td> </tr> </tbody> </table> <p>　　这是一个将视觉小说的系统和故事构造巧妙结合的纯爱故事。</p> <p>　　故事的主角是一位青年与一位少女。</p> <p>　　游戏的最初，玩家将以随机顺序体验三个故事。</p> <p>　　迎来和三位少女的&ldquo;离别&rdquo;后，故事线将收束，并最终揭开那一位少女的真相。</p> <p>　　诚邀您体验这款牵动了无数日本玩家心灵的纯爱故事。</p> <p>　　故事介绍</p> <p>　　男主・海斗醒了过来。他发觉，自己身处于陌生的房间。这是哪里?自己是谁?现在是什么时候?完全没有印象。这间房间只有两张床。以及像极了人偶的三无少女・世凪。海斗得知，自己的职责是做梦，做三个宛如故事般演绎的梦。于是，他与世凪一同潜入梦的世界。当三个梦皆迎来悲伤的结局之际，海斗也得以知晓，自己究竟是谁。</p> <p>　　以上内容就是小编为大家带来的《白日梦的构想图 Cyanotype Daydream -The Girl Who Dreamed the World-》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">hjjleon</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/130019/](https://lad.sfcrom.cn/2024/04/130019/)

@@ -1,0 +1,13 @@
+---
+title: "【DC】《Kidou Senshi Gundam – Gihren no Yabou – Zeon no Keifu》日版Disc 1下载"
+date: 2024-03-19
+tags: []
+categories: ["DC游戏"]
+excerpt: "　　【DC】《Kidou Senshi Gundam &ndash; Gihren no Yabou &ndash; Zeon no Keifu》日版Disc 1下载，《Kidou Senshi Gundam》系列作品之一，是一款经典的动作冒险类游戏。感兴趣的玩家快来下载体验吧 　　游戏名称：A.R&hellip;"
+layout: post
+---
+
+ <p>　　【DC】《Kidou Senshi Gundam &ndash; Gihren no Yabou &ndash; Zeon no Keifu》日版Disc 1下载，《Kidou Senshi Gundam》系列作品之一，是一款经典的动作冒险类游戏。感兴趣的玩家快来下载体验吧</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240319_65f9b32690e0a.png" width="587" alt="【DC】《Kidou Senshi Gundam – Gihren no Yabou – Zeon no Keifu》日版Disc 1下载" /></p> <p>　　游戏名称：A.R.E.S灭绝备忘录加强版</p> <p>　　游戏原名：A.R.E.S. Extinction Agenda EX</p> <p>　　游戏版本：全区</p> <p>　　游戏类型：竞速</p> <p>　　游戏语言：英文</p> <p>　　制作公司：ORiGO GAMES</p> <p>　　发行公司：Aksys Games</p> <p>　　发行日期：2013/10/02</p> <p>　　《A.R.E.S：灭绝备忘录加强版》是一款ACT动作游戏，横板过关的游戏模式，爽快的射击感，以及强大的操作感，与经典游戏《洛克人》十分相似，不过比起洛克人，本作难度略显简单，洛克人FANS们不妨试一试这款作品。《A.R.E.S.》这款游戏是微软2010游戏大赛的获奖作品，现在相关厂商打算将其制成零售版，并且于9月1日上市，登陆PC、Xbox360和手机平台。但是玩家如果看到视频的话&hellip;&hellip;没错，这射击的感觉，人物设定和BOSS设定，以及冲刺时的残影，这简直就是山寨版的洛克人ZERO。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240319_65f9b3273a713.png" width="596" alt="【DC】《Kidou Senshi Gundam – Gihren no Yabou – Zeon no Keifu》日版Disc 1下载" /></p> <p><h4>下载地址(由网友<font color="red">17320039312</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/10934/](https://lad.sfcrom.cn/2024/03/10934/)

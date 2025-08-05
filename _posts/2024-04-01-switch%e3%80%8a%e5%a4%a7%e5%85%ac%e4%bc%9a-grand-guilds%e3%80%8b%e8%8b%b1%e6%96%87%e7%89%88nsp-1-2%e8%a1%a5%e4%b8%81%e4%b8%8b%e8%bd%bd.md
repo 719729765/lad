@@ -1,0 +1,13 @@
+---
+title: "switch《大公会 Grand Guilds》英文版nsp-1.2补丁下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "switch《大公会 Grand Guilds》英文版下载。《Grand Guilds》这是一款讲究战略与战术的经典JRPG类游戏，游戏中玩家要收集卡片英雄来组成你的战斗小组，还要制定自己的战斗战术，你将和你搭配的阵容走上一个很隆重的冒险。 游戏背景 经过一年的任务，伊丽莎回到了看似正常的城市奥兹林&hellip;"
+layout: post
+---
+
+ <p>switch《大公会 Grand Guilds》英文版下载。《Grand Guilds》这是一款讲究战略与战术的经典JRPG类游戏，游戏中玩家要收集卡片英雄来组成你的战斗小组，还要制定自己的战斗战术，你将和你搭配的阵容走上一个很隆重的冒险。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=837529140&amp;bvid=BV1Eg4y1a7sa&amp;cid=170221540&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7458231ae.webp" alt="switch《大公会 Grand Guilds》英文版nsp-1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a745888e3b.webp" alt="switch《大公会 Grand Guilds》英文版nsp-1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7459054c3.webp" alt="switch《大公会 Grand Guilds》英文版nsp-1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74596ac7c.webp" alt="switch《大公会 Grand Guilds》英文版nsp-1.2补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7459d4c44.webp" alt="switch《大公会 Grand Guilds》英文版nsp-1.2补丁下载" /></td> </tr> </tbody> </table> <h3>游戏背景</h3> <p>经过一年的任务，伊丽莎回到了看似正常的城市奥兹林，突然之间成群的神秘生物在街上纵火。</p> <p>击退敌人后，伊丽莎和她的行会努力发现攻击者的来历，但才意识到这种现象在整个非洲大陆都发生了&hellip;&hellip;同时凭借行会的声誉，她将自己找到并抓住袭击的始作俑者。</p> <p>在Irin的其他行会遭受同样的命运或更糟的命运之前，应由Eliza和她值得信赖的公会成员来辨别异常袭击背后的真正动机。</p> <h3>游戏介绍</h3> <p><strong>回合制策略</strong></p> <p>学习并掌握战术战斗的基础知识。在大公会中，定位，地形和行动要点意味着胜利与失败之间的区别。</p> <p><strong>纸牌战斗系统</strong></p> <p>各种技能卡将构成您单位的能力，使每个回合更加动态，每个决定都更加重要和有意义。</p> <p><strong>甲板建筑</strong></p> <p>通过自定义他们的技能甲板来根据您的游戏风格定制每个角色。通过完成任务或升级角色来获得强大的新能力。</p> <p><strong>公会任务</strong></p> <p>进行具有挑战性的程序性任务，获得令人兴奋的奖励。增加公会的声望，以获得有助于战斗的奖金。</p> <p><strong>多样化的角色扮演</strong></p> <p>每个可玩角色都具有独特的机制和能力，使他们能够在班上担当各种角色，例如坦克，支援和破坏者。</p> <p><strong>史诗般的叙述</strong></p> <p>解开笼罩在战争边缘的大陆伊林的奥秘。跟随Eliza和她的同伴们穿越这个广阔而神奇的世界。</p> <p><strong>部分配音</strong></p> <p>英雄会在战斗中大喊大叫，并在与简短配音的对话中表达自己的感受。</p> <h3>&nbsp;</h3> <p>&nbsp;</p> <p><h4>下载地址(由网友<font color="red">jssnne</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109560/](https://lad.sfcrom.cn/2024/04/109560/)

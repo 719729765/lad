@@ -1,0 +1,13 @@
+---
+title: "switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版nsp下载【含1.0.4补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版下载，这是一款卡通画风的动作射击游戏，支持多人合作的模式，玩家将开着可爱的太空战舰进行战斗，一起来体验一下吧。 　　《危险时空的恋人》游戏中，玩家和一名游戏伙伴要协作保护一架粉色霓虹飞船，通过在各&hellip;"
+layout: post
+---
+
+ <p>　　switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版下载，这是一款卡通画风的动作射击游戏，支持多人合作的模式，玩家将开着可爱的太空战舰进行战斗，一起来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=14884417&amp;bvid=BV1Gx411V7NS&amp;cid=24252190&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f91f0c179.jpg" alt="switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版nsp下载【含1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f91f837b0.jpg" alt="switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版nsp下载【含1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f92001b38.jpg" alt="switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版nsp下载【含1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f92070174.jpg" alt="switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版nsp下载【含1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f920e21c5.jpg" alt="switch《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版nsp下载【含1.0.4补丁】" /></td> </tr> </tbody> </table> <p>　　《危险时空的恋人》游戏中，玩家和一名游戏伙伴要协作保护一架粉色霓虹飞船，通过在各个风格各异的空间站之间穿梭来获得武器、操纵飞艇和充能护盾。攻击玩家的敌人是FFF团分支&ldquo;反爱势力(The forces of Anti-Love)&rdquo;，体积庞大长相怪异的机器人。游戏中玩家还要拯救被绑架的小兔子。 双人在玩这个游戏时要拯救鸟类和兔子的星球免遭机器人入侵，还要抵御宇宙飞船周围的攻击。玩家利用手柄的两个按钮和摇杆操作飞船进行攻击、防御和闪躲。一人跳进驾驶座进行负责闪躲，另一人则负责攻击和防御事宜。</p> <p>　　游戏特色</p> <p>　　协同作战：2名玩家(或1名玩家加上一个忠心耿耿的人工智慧太空宠物)必须齐心协力，在武器、防护罩和发动机之间不停来回奔跑，操纵不同的作战控制台。两名玩家，都肩负重任，不甘人后。</p> <p>　　可升级的飞船：找到威力巨大的太空宝石，将其组合，即可定制你所在飞船的输出。各种宝石带来不同的技能，让你学会在各种情况下，都应该选择什么正确的工具。</p> <p>　　每次体验，都有新意：关卡布局随机，两个玩家，每次游戏，都会探索新的区域。</p> <p>　　操纵简单，挑战艰巨：操纵宇航员，十分简单，无论是谁，都可以迅速上手。可要是让两个玩家默契协作，如同一架高效的机器，进而与整星系、整星座的邪恶机器人作战&mdash;&mdash;那可就要真功夫了。</p> <p>　　以上内容就是小编为大家带来的《危险时空的恋人 Lovers in a Dangerous Spacetime》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">寂静的喧嚣</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100989/](https://lad.sfcrom.cn/2024/04/100989/)

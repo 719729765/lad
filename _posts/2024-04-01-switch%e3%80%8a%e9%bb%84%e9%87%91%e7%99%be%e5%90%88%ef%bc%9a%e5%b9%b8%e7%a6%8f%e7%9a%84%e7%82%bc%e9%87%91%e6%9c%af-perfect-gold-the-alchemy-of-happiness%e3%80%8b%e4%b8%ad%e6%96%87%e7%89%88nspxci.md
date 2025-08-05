@@ -1,0 +1,13 @@
+---
+title: "switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版下载，这是一部精致的视角小说，讲述了一个百合题材的温馨爱情故事，感兴趣的玩家赶快来尝试一下吧。 　　黄金百合：幸福的炼金术是一款短小的的百合系视觉小说，讲述了一对昔日友人为了参&hellip;"
+layout: post
+---
+
+ <p>　　switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版下载，这是一部精致的视角小说，讲述了一个百合题材的温馨爱情故事，感兴趣的玩家赶快来尝试一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=929419680&amp;bvid=BV1RK4y1S7Xf&amp;cid=304864269&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbf1a4ff6.jpg" alt="switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbf236bc2.jpg" alt="switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbf2b9d72.jpg" alt="switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbf35287c.jpg" alt="switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　黄金百合：幸福的炼金术是一款短小的的百合系视觉小说，讲述了一对昔日友人为了参加太阳花节庆典而逃离留堂的故事。故事发生在魔法城市卡斯尔海岸，读者们将从中了解到一位炼金术学生兼家族继承人&mdash;&mdash;奥黛丽&middot;克莱瑞&mdash;&mdash;暗自梦想着过不同生活的心路历程，以及一位叛逆的元素魔法学生&mdash;&mdash;玛丽恩&middot;拉鲁&mdash;&mdash;寻找昔日爱人的故事。</p> <p>　　游戏特色</p> <p>　　百合向爱情故事：讲述了两个女孩之间温暖人心的生活片段，以及两人在友情和爱情上的重归于好。</p> <p>　　一个简短而甜蜜的故事：约3万字文本，预计2-4个小时的游戏时间。黄金百合是一款适合喜欢以角色推动故事的视觉小说来放松自己的玩家的游戏。</p> <p>　　2个可玩角色：通过奥黛丽和玛丽恩的视角体验故事。</p> <p>　　全对话配音：专业、优秀的英语配音演员为角色赋予生命。</p> <p>　　鲜活动态的视觉效果：通过动态人物、背景、插图为故事赋予生命，让玩家沉浸式体验魔法城市卡斯尔海岸的生活。</p> <p>　　互动式对话选择：你的选择将影响角色的行动，也会影响故事的结局。</p> <p>　　原声音乐：优美的音乐引导出故事中最动人的情节。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbf39fff0.png" width="325" alt="switch《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《黄金百合：幸福的炼金术 Perfect Gold The Alchemy of Happiness》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">ndswii1989</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101213/](https://lad.sfcrom.cn/2024/04/101213/)

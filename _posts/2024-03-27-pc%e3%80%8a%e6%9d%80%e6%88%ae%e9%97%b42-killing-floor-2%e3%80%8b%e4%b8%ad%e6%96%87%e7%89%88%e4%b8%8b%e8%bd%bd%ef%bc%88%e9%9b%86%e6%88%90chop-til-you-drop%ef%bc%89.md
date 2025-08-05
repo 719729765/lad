@@ -1,0 +1,13 @@
+---
+title: "PC《杀戮间2 Killing Floor 2》中文版下载（集成Chop Til You Drop）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《杀戮间2 Killing Floor 2》中文版下载，这是一款第一人称射击玩法的游戏，丧尸题材，玩家需要对抗源源不断涌出的僵尸。这款游戏的画质非常强悍，感兴趣的玩家可以来体验一下。 　　类型:动作 　　开发商:Tripwire Interactive 　　发行商:Tripwire Inte&hellip;"
+layout: post
+---
+
+ <p>　　PC《杀戮间2 Killing Floor 2》中文版下载，这是一款第一人称射击玩法的游戏，丧尸题材，玩家需要对抗源源不断涌出的僵尸。这款游戏的画质非常强悍，感兴趣的玩家可以来体验一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=19095551&amp;bvid=BV1BW411H7um&amp;cid=31148636&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393245c15d.jpg" alt="PC《杀戮间2 Killing Floor 2》中文版下载（集成Chop Til You Drop）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039324d7008.jpg" alt="PC《杀戮间2 Killing Floor 2》中文版下载（集成Chop Til You Drop）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660393254f612.jpg" alt="PC《杀戮间2 Killing Floor 2》中文版下载（集成Chop Til You Drop）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039325bc020.jpg" alt="PC《杀戮间2 Killing Floor 2》中文版下载（集成Chop Til You Drop）" /></td> </tr> </tbody> </table> <p>　　类型:动作</p> <p>　　开发商:Tripwire Interactive</p> <p>　　发行商:Tripwire Interactive</p> <p>　　在《KILLING FLOOR 2》中，玩家将降入欧洲大陆，这里因为霍因生物科技的失败实验而造成的疫情在迅速蔓延并形成了不可阻挡的势头，让欧盟完全陷入瘫痪&mdash;&mdash;仅在原版《KILLING FLOOR》中的事件结束一个月之后，遍地充满了标本克隆，城市陷入了混乱，通信中断，政府倒闭，而军队也已被系统性地消灭。欧洲的人民非常懂得生存和自我保护，而且幸运的幸存者已经藏了起来。</p> <p>　　不过，并不是所有人都已经放弃了希望&hellip;&hellip;一群平民百姓跟雇佣兵联合起来对抗丧尸的爆发，并在欧洲各地成立了私人资助的活动基地。在追踪标本克隆爆发的同时，玩家将降入丧尸爆满的热区并消灭他们。</p> <p>　　游戏介绍</p> <p>　　令人闻风丧胆的Zed(《杀戮间》系列怪物的统称)：前作中最受玩家欢迎的怪物将会在本作中回归，当然也会有全新类型的怪物，同时他们都会拥有更加智能的AI，这一切都将会是玩家噩梦的开始。</p> <p>　　独特的武器库：从现代的军事突击步枪到历史名枪;从残酷的临时权宜武器到疯狂的&ldquo;科学家&rdquo;武器，《杀戮间2》所提供的独特武器库绝对能够满足玩家们的&ldquo;杀戮&rdquo;欲望。</p> <p>　　扩展的技能系统：前作中的技能系统得到了大幅的改进，玩家在选择技能的时候将会拥有更加灵活的选项，不同的选择也会体现在玩家们的游戏风格上。</p> <p>　　残忍的近战系统：《杀戮间2》完全重制了近战格斗系统。玩家们在本作中可以控制自己使出不同的招式来击杀Zed。</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制CODEX文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　关于这款游戏就为大家介绍到这里了，更新精彩内容等你来发现哦。</p> <p><h4>下载地址(由网友<font color="red">kelvin1000</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51676/](https://lad.sfcrom.cn/2024/03/51676/)

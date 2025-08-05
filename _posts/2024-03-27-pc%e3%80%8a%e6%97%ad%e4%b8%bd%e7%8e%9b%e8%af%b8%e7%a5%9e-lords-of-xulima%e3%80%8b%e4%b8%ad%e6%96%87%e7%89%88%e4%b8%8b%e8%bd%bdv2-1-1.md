@@ -1,0 +1,13 @@
+---
+title: "PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1!旭丽玛诸神是一款极富挑战性的奇幻RPG游戏，故事发生在神秘的旭丽玛大陆，诸神与人类曾在这片土地上并肩偕行。即刻开启史诗般的救世之旅，尽享超过100小时的纯粹RPG历程! 　　关于这款游戏 　　旭丽玛诸神 　　是一款原创奇幻&hellip;"
+layout: post
+---
+
+ <p>　　PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1!旭丽玛诸神是一款极富挑战性的奇幻RPG游戏，故事发生在神秘的旭丽玛大陆，诸神与人类曾在这片土地上并肩偕行。即刻开启史诗般的救世之旅，尽享超过100小时的纯粹RPG历程!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=14853187&amp;bvid=BV1Px411V7cd&amp;cid=24200617&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b7569d463.webp" width="700" alt="PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b7571daea.webp" width="700" alt="PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b757a0134.webp" width="700" alt="PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b7581feff.webp" width="700" alt="PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b7588bb08.webp" width="700" alt="PC《旭丽玛诸神 Lords of Xulima》中文版下载v2.1.1" /></p></div> <p>　　关于这款游戏</p> <p>　　旭丽玛诸神</p> <p>　　是一款原创奇幻RPG，故事发生在神秘的旭丽玛大陆，诸神与人类曾在这里并肩偕行。你成为了诸神之使，为了让你所知的世界恢复平衡，你踏上旅程，前往未知大陆。</p> <p>　　高劳特的护身符版</p> <p>　　旭丽玛诸神</p> <p>　　该版本包括游戏本体以及高劳特的护身符DLC.</p> <p>　　豪华版</p> <p>　　旭丽玛诸神</p> <p>　　该版本包括游戏本体，高劳特的护身符DLC以及典藏数字内容DLC.</p> <p>　　超过100小时的真实角色扮演体验</p> <p>　　想来一场充满挑战的大冒险吗?</p> <p>　　在《旭丽玛诸神》中，没有既定的冒险路线。我们构筑了一个丰富多彩的世界，不同的区域会为大家带来不同的挑战。你可以前往迷幻般的金色森林，也能穿越坡尼蒂亚大沙漠，或者去感受卡拉格那里令人生畏的冰峰。在游戏中你可以自由探索不受拘束，但要量力而行。《旭丽玛诸神》中，战斗的成败取决于你的战术策略和配置团队的能力。这款游戏有着旧式经典游戏的可玩性和深度，也兼具现代游戏的画面表现力和较好的UI界面。</p> <p>　　诸神与凡人的故事</p> <p>　　体验史诗般的剧情，揭开意想不到的结局。</p> <p>　　相传很久以前，人类在罗迪尼亚大陆上过着平静的生活。但好景不长，没多久便爆发了大战。随着战事的扩大，没有哪个王国和城邦村落可以幸免，整个大陆硝烟四起，到处都是残垣断壁，民不聊生。人们向九神祈祷，希望可以得到庇佑。九神的家园就在旭丽玛大陆上，这片禁土远在大洋彼岸，凡人难以到达。</p> <p>　　最后，大战让整个大陆奄奄一息。因此，工匠与梦境之神，高劳特向盖伦托梦并授予他神圣的使命。盖伦是一名经验丰富的探险者，他生活在远离罗迪尼亚大陆的一个的小岛上。工匠之神选中盖伦作为他在凡间的使者，出海驶向旭丽玛，目的是让世界恢复往日的安宁。就这样，我们的年轻主角开始了他的冒险。</p> <p><h4>下载地址(由网友<font color="red">叶飞雪</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52351/](https://lad.sfcrom.cn/2024/03/52351/)

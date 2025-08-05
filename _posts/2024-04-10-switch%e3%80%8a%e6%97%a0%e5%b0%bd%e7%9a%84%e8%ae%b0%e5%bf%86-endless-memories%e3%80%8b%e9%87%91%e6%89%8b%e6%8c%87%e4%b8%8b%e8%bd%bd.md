@@ -1,0 +1,13 @@
+---
+title: "switch《无尽的记忆 Endless Memories》金手指下载"
+date: 2024-04-10
+tags: []
+categories: ["switch金手指"]
+excerpt: "switch《无尽的记忆 Endless Memories》金手指下载，这是一款2D横版的动作游戏，类似恶魔城风格的玩法，故事的主角要在神秘的梦境世界中展开一段令人着迷的冒险，一起来体验一下吧。 　　这是一款横版类恶魔城风格的砍杀动作冒险游戏。在游戏中你将探索一个神奇的梦幻世界，加入Rem的旅程，通&hellip;"
+layout: post
+---
+
+ <p>switch《无尽的记忆 Endless Memories》金手指下载，这是一款2D横版的动作游戏，类似恶魔城风格的玩法，故事的主角要在神秘的梦境世界中展开一段令人着迷的冒险，一起来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=74725601&amp;bvid=BV1JE411i7VP&amp;cid=127824555&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e4c227dce.jpg" alt="switch《无尽的记忆 Endless Memories》金手指下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e4c2813a3.jpg" alt="switch《无尽的记忆 Endless Memories》金手指下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e4c2ee3c6.jpg" alt="switch《无尽的记忆 Endless Memories》金手指下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e4c36cc60.jpg" alt="switch《无尽的记忆 Endless Memories》金手指下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615e4c3d72dc.jpg" alt="switch《无尽的记忆 Endless Memories》金手指下载" /></td> </tr> </tbody> </table> <p>　　这是一款横版类恶魔城风格的砍杀动作冒险游戏。在游戏中你将探索一个神奇的梦幻世界，加入Rem的旅程，通过他的梦想世界，你唯一的出路就是成为思想的决定者!</p> <p>　　游戏介绍</p> <p>　　在这史诗 2D 动作探险游戏中探索梦里的魔法世界。游戏混合了手工创建的非线性世界与 ARPG 元素。与雷姆一起踏上梦境世界之旅。世界唯一的出口就在做梦者的心中。</p> <p>　　在梦之实验室中，与雷姆一起踏上梦境世界之旅。在所有思想都互联的世界中一路战斗。精通多种武器和魔法咒语，解开做梦者的谜团，并尽全力逃离梦之实验室。</p> <p>　　游戏特色</p> <p>　　探索梦境中开放性的世界</p> <p>　　掌握一个快节奏的战斗方式，每一个决定都会对你完成目标造成影响</p> <p>　　学习新的技能进行战斗，并利用这些技能进一步探索世界</p> <p>　　拥有丰富的武器、法术和魔法等，游戏玩法多样化</p> <p>　　超过150种魔兽和梦想大师在世界中探索</p> <p>　　以上内容就是小编为大家带来的《无尽的记忆 Endless Memories》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">gog603</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/151681/](https://lad.sfcrom.cn/2024/04/151681/)

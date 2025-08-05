@@ -1,0 +1,13 @@
+---
+title: "PC《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版下载（v1.39717）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版下载，这是一款十分出色的冒险解谜游戏，是著名的赛伯利亚之谜系列的一部新作，在这里体验一段全新的冒险之旅吧。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Microids Studio Paris 　&hellip;"
+layout: post
+---
+
+ <p>　　PC《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版下载，这是一款十分出色的冒险解谜游戏，是著名的赛伯利亚之谜系列的一部新作，在这里体验一段全新的冒险之旅吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=681908033&amp;bvid=BV1fU4y1Z7oj&amp;cid=700045002&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a606e2c9.webp" alt="PC《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版下载（v1.39717）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a60d284b.webp" alt="PC《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版下载（v1.39717）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a6149f84.webp" alt="PC《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版下载（v1.39717）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Microids Studio Paris</p> <p>　　游戏发行：Microids</p> <p>　　《塞伯利亚之谜：世界之前》将继续围绕女主角凯特&middot;沃克展开冒险故事，她正在处理一项全新的调查，这段旅程将带领玩家跨越大陆、跨越时代，经历一段二十世纪动荡和悲剧的旅程。</p> <p>　　游戏特色</p> <p>　　踏上一段穿越不同大陆和时代的冒险之旅，同时扮演凯特&middot;沃克和达娜&middot;罗兹两个角色，参透深藏已久的谜团。</p> <p>　　探索由贝努瓦&middot;索卡尔( Beno&icirc;t Sokal)打造，且包含美妙的场景和标志性人物的神奇诗意世界。</p> <p>　　根据Syberia系列的传统，解决复杂的谜题和疑团。</p> <p>　　通过一段段扣人心弦的对话，探索一个丰富、精彩且充满巨大挑战的故事。</p> <p>　　让伊南&middot;佐尔( Inon Zur：Syberia 3, Fallout、Dragon Age、Prince of Persia)谱写的交响乐原声带您神游。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 or higher</p> <p>　　处理器: i5 6600</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Nvidia GTX 750 Ti or AMD Radeon HD 7850 / R7 260X</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 22 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制FLT文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a618f7bb.webp" width="625" alt="PC《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版下载（v1.39717）" /></p> <p>　　以上内容就是小编为大家带来的《塞伯利亚之谜：世界之前 Syberia: The World Before》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">123醋颇2</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51942/](https://lad.sfcrom.cn/2024/03/51942/)

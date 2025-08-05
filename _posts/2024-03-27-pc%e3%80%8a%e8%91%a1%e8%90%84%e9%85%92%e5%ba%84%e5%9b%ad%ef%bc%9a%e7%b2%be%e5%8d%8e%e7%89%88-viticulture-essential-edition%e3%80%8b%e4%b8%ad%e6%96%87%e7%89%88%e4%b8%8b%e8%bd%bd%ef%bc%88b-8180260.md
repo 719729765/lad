@@ -1,0 +1,13 @@
+---
+title: "PC《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版下载（B.8180260）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版下载，葡萄酒庄园是一款以经营葡萄酒庄园为主题的桌游，这是桌游改编的数字版本， 喜欢桌游的玩家可以来体验一下哦。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：DIGIDICED 　　游戏发行：DIGI&hellip;"
+layout: post
+---
+
+ <p>　　PC《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版下载，葡萄酒庄园是一款以经营葡萄酒庄园为主题的桌游，这是桌游改编的数字版本， 喜欢桌游的玩家可以来体验一下哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b276baff.jpg" alt="PC《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版下载（B.8180260）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b27f15c2.jpg" alt="PC《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版下载（B.8180260）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b28885a4.jpg" alt="PC《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版下载（B.8180260）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b2901439.jpg" alt="PC《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版下载（B.8180260）" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：DIGIDICED</p> <p>　　游戏发行：DIGIDICED</p> <p>　　本游戏是由Jamey Stegmaier和Alan Stone制作的桌游《Viticulture》改编而成的官方数字游戏。</p> <p>　　你将置身于前近代时期的托斯卡纳乡村，在这里继承了一片贫瘠的葡萄园。你拥有几块土地、一个榨汁垫、一个小酒窖、三名工人&hellip;&hellip;以及一个打造全意大利最优秀酒庄的梦想。</p> <p>　　你的工作是分配你的工人和访客完成一年四季中面临的各种任务。葡萄园的每个季节都各不相同，因此工人们在夏季和冬季要承担不同的任务。这些任务之间存在竞争，通常第一个到达任务的工人比其他人更有优势。</p> <p>　　利用这些工人和访客，你可以建造建筑、种植葡萄藤并完成葡萄酒订单，从而壮大你的葡萄庄园，朝着成为托斯卡纳最成功的酒庄这一目标迈进。</p> <p>　　游戏特点：</p> <p>　　&bull;供1至6名玩家游玩</p> <p>　　&bull;适合家庭游玩的非暴力主题</p> <p>　　&bull;跨平台游戏</p> <p>　　&bull;简单易学，轻松上手。</p> <p>　　&bull;单人游戏模式设有3个颇具挑战的计算机对手。</p> <p>　　&bull;在好友对战中与好友进行多人游戏。</p> <p>　　&bull;在多人游戏排名赛中对抗来自世界各地的玩家!</p> <p>　　&bull;全球排行榜</p> <p>　　&bull;时间充裕的异步游戏模式，接受推送通知，不错过任何一个回合。</p> <p>　　&bull;利用游戏回放功能，分析你的最佳游戏或向高手学习游戏技巧</p> <p>　　&bull;使用桌游的最新规则。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 (SP1+), Windows 10 and Windows 11</p> <p>　　处理器: x86, x64 architecture with SSE2 instruction set support</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: DX10, DX11, DX12 capable</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《葡萄酒庄园：精华版 Viticulture Essential Edition》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">喜欢工口家伙</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52833/](https://lad.sfcrom.cn/2024/03/52833/)

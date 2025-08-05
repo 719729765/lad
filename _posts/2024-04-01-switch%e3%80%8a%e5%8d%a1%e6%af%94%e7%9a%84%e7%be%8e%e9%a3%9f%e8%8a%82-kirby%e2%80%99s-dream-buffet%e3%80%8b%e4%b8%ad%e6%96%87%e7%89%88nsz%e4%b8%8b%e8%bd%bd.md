@@ -1,0 +1,13 @@
+---
+title: "switch《卡比的美食节 Kirby’s Dream Buffet》中文版nsz下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《卡比的美食节 Kirby&rsquo;s Dream Buffet》中文版下载，这是星之卡比系列的全新一部作品，4个卡比在一起争夺美食的有趣玩法，对卡比系列感兴趣的玩家可以来关注一下。 　　《卡比的美食节》是4个卡比以竞争吃下的草莓数量来对战的动作游戏。一边滚动一边前进的卡比，只要&hellip;"
+layout: post
+---
+
+ <p>　　switch《卡比的美食节 Kirby&rsquo;s Dream Buffet》中文版下载，这是星之卡比系列的全新一部作品，4个卡比在一起争夺美食的有趣玩法，对卡比系列感兴趣的玩家可以来关注一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=555764400&amp;bvid=BV1Fe4y1R7CU&amp;cid=771474064&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa11b4b62.webp" alt="switch《卡比的美食节 Kirby’s Dream Buffet》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa1228f63.webp" alt="switch《卡比的美食节 Kirby’s Dream Buffet》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa128f887.webp" alt="switch《卡比的美食节 Kirby’s Dream Buffet》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa130a790.webp" alt="switch《卡比的美食节 Kirby’s Dream Buffet》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa13769d0.webp" alt="switch《卡比的美食节 Kirby’s Dream Buffet》中文版nsz下载" /></td> </tr> </tbody> </table> <p>　　《卡比的美食节》是4个卡比以竞争吃下的草莓数量来对战的动作游戏。一边滚动一边前进的卡比，只要吃了舞台上的草莓就会逐渐变大。然后，最终体积最大的卡比为优胜者。</p> <p>　　故事背景</p> <p>　　到达了美食节会场的卡比，还未等到节目开始，就想吃蛋糕。没想到当他即将要开始吃的瞬间，却因为不可思议的叉子的力量而让身体变小了。</p> <p>　　游戏介绍</p> <p>　　本作是4个卡比以竞争吃下的草莓数量来对战的动作游戏。一边滚动一边前进的卡比，只要吃了舞台上的草莓就会逐渐变大。然后，最终体积最大的卡比为优胜者。 舞台上点缀着蛋糕和雪糕等很多食物。堆积如山的草莓在终点等待着，以此为目标竞逐，拾取掉落的草莓，击飞对手并抢走草莓，在不同舞台展开各式各样的对战。 卡比熟悉的复制能力以新的形式登场。吃掉在舞台上获得的「复制食物」，卡比会变成了点心的姿态。吃掉周围的草莓，用冲击波击飞对手，好好掌握的话，立即逆转赛况的「复制食物」是取胜的关键。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa13c49ea.webp" width="357" alt="switch《卡比的美食节 Kirby’s Dream Buffet》中文版nsz下载" /></p> <p>　　以上内容就是小编为大家带来的《卡比的美食节 Kirby&rsquo;s Dream Buffet》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Sgml</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101783/](https://lad.sfcrom.cn/2024/04/101783/)

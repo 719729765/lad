@@ -1,0 +1,13 @@
+---
+title: "PC《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版下载，这是一款动作冒险游戏，为玩家带来了一个东方色彩的美丽世界，玩家要在这里寻找到可以修复飞艇的物资，赶快来看看吧。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Orbital Express 　　游戏&hellip;"
+layout: post
+---
+
+ <p>　　PC《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版下载，这是一款动作冒险游戏，为玩家带来了一个东方色彩的美丽世界，玩家要在这里寻找到可以修复飞艇的物资，赶快来看看吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=808384817&amp;bvid=BV1P34y1q7wd&amp;cid=492155349&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039918c7562.jpg" alt="PC《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660399194b0cd.jpg" alt="PC《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039919bc019.jpg" alt="PC《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603991a5c386.jpg" alt="PC《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Orbital Express</p> <p>　　游戏发行：PLAYISM</p> <p>　　《黄昏沉眠街》是一款探索东方幻想世界的冒险游戏。为了收集零件修理坏掉了的飞艇，让我们寻找隐藏在美丽世界中的&ldquo;大地之源&rdquo;，再飞向另一个城市。</p> <p>　　游戏介绍</p> <p>　　《黄昏沉眠街》 是一款由画师nocras个人制作，主要以自由探索，欣赏由nocras描绘的美丽世界为题材的冒险游戏。</p> <p>　　玩家操纵少女悠云，为了收集零件修理坏掉了的飞艇，在浓罩&ldquo;黄昏之雾&rdquo;的小镇中寻找隐藏着的&ldquo;大地之源&rdquo;，同时协助回复小镇昔日的辉煌。</p> <p>　　配上电子音乐制作人Ujico*创作的梦幻音乐，能令大家尽情享受悠闲独特的东方幻想世界。</p> <p>　　游戏特色</p> <p>　　让我们迷失在一个神秘的城市，在这里，一个轻松的时间流动，并自由探索</p> <p>　　享受与居民的沟通</p> <p>　　让我们冒险各种各样的地方，如高速公路，桥梁，山谷</p> <p>　　请享受独特的东方幻想世界</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows7/8/10 64bit</p> <p>　　处理器: 3GHz</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GeForce GTX660</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《黄昏沉眠街 TASOMACHI Behind The Twilight》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">qqwqqw</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50913/](https://lad.sfcrom.cn/2024/03/50913/)

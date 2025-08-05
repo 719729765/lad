@@ -1,0 +1,13 @@
+---
+title: "switch《埃比尼泽和看不见的世界（Ebenezer and the Invisible World）》中文版nsp下载+1.1.0.14补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "switch《埃比尼泽和看不见的世界（Ebenezer and the Invisible World）》中文版nsp下载+1.1.0.14补丁！《Ebenezer and the Invisible World》是一款动作冒险类型的银河恶魔城新作，以狄更斯经典作品《圣诞颂歌》为背景。游戏采用手绘的&hellip;"
+layout: post
+---
+
+ <p>switch《埃比尼泽和看不见的世界（Ebenezer and the Invisible World）》中文版nsp下载+1.1.0.14补丁！《Ebenezer and the Invisible World》是一款动作冒险类型的银河恶魔城新作，以狄更斯经典作品《圣诞颂歌》为背景。游戏采用手绘的艺术风格，带给玩家视觉上的享受。在游戏中，玩家将扮演主角埃比尼泽&middot;斯克鲁奇，一个从吝啬鬼转变为英雄的角色。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=705462974&amp;bvid=BV1DQ4y1J76X&amp;cid=1320400403&amp;p=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4a44c8058.webp" width="700" alt="switch《埃比尼泽和看不见的世界（Ebenezer and the Invisible World）》中文版nsp下载+1.1.0.14补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4a4544726.webp" width="700" alt="switch《埃比尼泽和看不见的世界（Ebenezer and the Invisible World）》中文版nsp下载+1.1.0.14补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4a45acff0.webp" width="700" alt="switch《埃比尼泽和看不见的世界（Ebenezer and the Invisible World）》中文版nsp下载+1.1.0.14补丁" /></p> <p>　　踏上故事丰富的 2D 银河恶魔城冒险之旅，以令人叹为观止的手绘艺术，重新构想查尔斯&middot;狄更斯的经典小说《圣诞颂歌》。</p> <p>　　加入埃比尼泽&middot;斯克鲁奇和一队幽灵盟友的行列，为将伦敦从富有的实业家卡斯帕&middot;马尔萨斯及其激进的私人卫队的魔掌中拯救出来而战。随着每个幽灵都赋予他们独特的能力，探索伦敦的黑暗角落，揭开黑暗幽灵和不悔改的幽灵军队的险恶影响。你会有勇气面对卡斯帕尔，在为时已晚之前阻止他的恶意计划吗?</p> <p>　　特点：</p> <p>　　- 遇见并解锁强大的幽灵，每个幽灵都有自己的故事和任务要完成，在这次冒险中将他们的力量借给埃比尼泽。</p> <p>　　- 在城市的多个地区探索维多利亚时代的伦敦，揭开马尔萨斯家族的黑暗秘密。</p> <p>　　- 在运动幽灵的帮助下，以非凡的方式穿越世界，包括空中飞人艺术家 Rose 和 Flossie Reed、登山家 Victoria Peak、时空教授 Haley Hall 等。</p> <p>　　- 使用每个幽灵的特殊能力探索世界，同时与自黑暗之灵回归以来降临伦敦的不知悔改的幽灵军团作战。</p> <p>　　- 通过对话和游戏中的过场动画享受叙事，并了解现在被束缚在凡人世界的幽灵的悲惨背景故事。</p> <p>　　- 在经典的非线性、能力门控的银河恶魔城中学习并掌握复杂的地图。</p> <p>　　- 收集有限的材料，如以太、铁和艾蒿，以解锁新的物品和能力。</p> <p>　　- 发现秘密区域和稀有材料。</p> <p>　　- 所有艺术作品都是手绘的，具有逐帧着色和动画。</p> <p><h4>下载地址(由网友<font color="red">RazorBlade</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109291/](https://lad.sfcrom.cn/2024/04/109291/)

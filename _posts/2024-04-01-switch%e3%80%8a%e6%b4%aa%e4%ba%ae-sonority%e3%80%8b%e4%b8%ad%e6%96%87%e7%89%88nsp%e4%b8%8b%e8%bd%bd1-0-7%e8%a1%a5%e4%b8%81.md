@@ -1,0 +1,13 @@
+---
+title: "switch《洪亮 Sonority》中文版nsp下载+1.0.7补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "【更新1.0.7补丁】switch《Sonority》中文版nsp下载+1.07补丁，这是一款音乐主题的冒险解谜游戏，它巧妙的将音乐的元素融入到了关卡的设计中，游戏的画风也十分漂亮，一种幻想童话的风格，感兴趣的话大家可以来看看哦。 　　使用旋律的独特解谜机制 在Sonority中，玩家探索一个失落的&hellip;"
+layout: post
+---
+
+ <p>【更新1.0.7补丁】switch《Sonority》中文版nsp下载+1.07补丁，这是一款音乐主题的冒险解谜游戏，它巧妙的将音乐的元素融入到了关卡的设计中，游戏的画风也十分漂亮，一种幻想童话的风格，感兴趣的话大家可以来看看哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=854360772&amp;bvid=BV1954y1d7E3&amp;cid=728111886&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f678585b3.webp" alt="switch《洪亮 Sonority》中文版nsp下载+1.0.7补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f678b5741.webp" alt="switch《洪亮 Sonority》中文版nsp下载+1.0.7补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f67928d7e.webp" alt="switch《洪亮 Sonority》中文版nsp下载+1.0.7补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f679a03e8.webp" alt="switch《洪亮 Sonority》中文版nsp下载+1.0.7补丁" /></td> </tr> </tbody> </table> <p>　　使用旋律的独特解谜机制 在Sonority<br _istranslated="1" />中，玩家探索一个失落的世界，在这个世界中，音乐是魔法，在音乐的帮助下，您可以在游戏中取得进展。<br _istranslated="1" />谜题是通过正确排列音符来解决的。解决方案是通过声学或使用符号推断的。无需以前的音乐知识。<br _istranslated="1" /><br _istranslated="1" /><br _istranslated="1" />故事<br _istranslated="1" />玩家扮演年轻的埃丝特，踏上了帮助朋友的旅程。带着她的排笛，她到达了神秘的假山。但很快她的道路就被堵住了，她必须利用音乐的力量来克服障碍。并不总是一件容易的事。<br _istranslated="1" />在一个陷入寂静的世界里，以斯帖重新发现了失落的歌曲和长满青苔的艺术作品。自然而然地得到了唱歌的石头和会说话的浣熊的帮助。然而，似乎没有传说中的音乐导师的踪迹。<br _istranslated="1" /><br _istranslated="1" />错综复杂的谜题<br _istranslated="1" />你走得越远，游戏就越棘手。收集新的音符和乐器，以克服导师最困难的难题。<br _istranslated="1" /><br _istranslated="1" />特点&bull;<br _istranslated="1" />基于旋律的有趣的新益智机制。（简单的音符序列发展成小旋律，然后发展成复杂的音乐片段。<br _istranslated="1" />&bull; 一个关于以斯帖和一只古怪的老浣熊以及他唱歌的石头朋友的感人故事。<br _istranslated="1" />&bull;大气，广泛的配乐，包括英语和德语版本的原创歌曲。<br _istranslated="1" />&bull;英语和德语的完整配音。<br _istranslated="1" /><br _istranslated="1" />2020年德国电脑游戏奖&ldquo;最佳原型&rdquo;奖得主</p> <p><h4>下载地址(由网友<font color="red">zzn19930904</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100828/](https://lad.sfcrom.cn/2024/04/100828/)

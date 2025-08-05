@@ -1,0 +1,13 @@
+---
+title: "switch《骑士与枪支 Knights and Guns》中文版1.3.1补丁+DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　【内含原版+TX专用魔改版】switch《骑士与枪支 Knights and Guns》中文版下载，骑士与枪支是一款非常有趣的卡通风格动作冒险游戏，以中世界背景下的骑士为主角，加入了各种炫酷的枪械道具。 　　穿着闪亮盔甲的骑士，用你的方式战斗......用枪! 　　以经典为灵感，为现代观众开发。&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用魔改版】switch《骑士与枪支 Knights and Guns》中文版下载，骑士与枪支是一款非常有趣的卡通风格动作冒险游戏，以中世界背景下的骑士为主角，加入了各种炫酷的枪械道具。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=547316244&amp;bvid=BV1Mq4y1H78R&amp;cid=389173422&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/09-09/01375fcb36c2a431992435097b34f691.jpg" alt="switch《骑士与枪支 Knights and Guns》中文版1.3.1补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/09-09/09ba1bfb078bf8f2a040a5c413dfd902.jpg" alt="switch《骑士与枪支 Knights and Guns》中文版1.3.1补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/09-09/7984bed4267d54f139b45132c83a914a.jpg" alt="switch《骑士与枪支 Knights and Guns》中文版1.3.1补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/09-09/42c0e4f7a8606d9f3169df74a59104af.jpg" alt="switch《骑士与枪支 Knights and Guns》中文版1.3.1补丁+DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/09-09/3d8f2a83a89a9857ca497e49f87250d3.jpg" alt="switch《骑士与枪支 Knights and Guns》中文版1.3.1补丁+DLC下载" /></td> </tr> </tbody> </table> <p>　　穿着闪亮盔甲的骑士，用你的方式战斗......用枪!</p> <p>　　以经典为灵感，为现代观众开发。</p> <p>　　一个以中世纪奇幻世界为背景的经典复仇故事&hellip;&hellip;带有一丝致命的现代火力，只是为了将事情变成十一。与不死族、变种人、外星人、机器和野兽的军队作战，以取回属于你的东西，并为这片土地带来一些表面上的和平。谁知道呢&mdash;&mdash;如果你足够彻底，你甚至可能会发现王国本身的历史，这个王国的学者们早已失传。</p> <p>　　Knights &amp; Guns 将您带到一个危险的世界，在那里您将与您的朋友一起对抗恶魔、食尸鬼和鬼魂。使用霰弹枪、激光和骑士精神来克服每一个障碍。成为最好的骑士版本 - 一个拿着枪的人。</p> <p>　　游戏特色</p> <p>　　&bull; 在各个阶段与超棒的 Boss 战斗!</p> <p>　　&bull; 征服非线性世界!冲过 150 多个手工制作的关卡，或按照自己的节奏享受游戏，寻找秘密和特殊路线!</p> <p>　　&bull; 整个游戏专为单人游戏或多人合作游戏而设计。随时邀请朋友获得额外的火力和混乱。</p> <p>　　&bull; 60 fps 游戏!尝试不同的模式!狩猎怪物!存活!在小地图、大地图和窄地图上玩!</p> <p>　　&bull; 查看所有精美的盔甲套装，当然还有所有 GUNS!激光、霰弹枪、榴弹发射器、狙击步枪&hellip;&hellip;都在这里!</p> <p>　　&bull; 超过30 种独特的枪支。(这可能比你能说出的冰淇淋味道更能说明死亡的味道。)</p> <p>　　&bull; 超过 25 种敌人、5 种小头目和 3 种头目。其中大多数也有不同的颜色。</p> <p>　　&bull; 30 套独特的骑士盔甲。额外的保护和额外的风格!</p> <p><h4>下载地址(由网友<font color="red">的身份</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145984/](https://lad.sfcrom.cn/2024/04/145984/)

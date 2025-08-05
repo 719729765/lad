@@ -1,0 +1,13 @@
+---
+title: "switch《内心的过去 The Past Within》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《内心的过去 The Past Within》中文版nsz下载，这是一款双人的冒险解谜游戏，玩家要和朋友一起来探索一个古老的秘密，游戏的剧情和解谜玩法都不错，喜欢这个风格的玩家可以体验一下。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Rusty Lake 　　游戏发行：Rus&hellip;"
+layout: post
+---
+
+ <p>switch《内心的过去 The Past Within》中文版nsz下载，这是一款双人的冒险解谜游戏，玩家要和朋友一起来探索一个古老的秘密，游戏的剧情和解谜玩法都不错，喜欢这个风格的玩家可以体验一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=559661759&amp;bvid=BV1Te4y1m7Zs&amp;cid=879718476&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d800a0bd5d.webp" alt="switch《内心的过去 The Past Within》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d800a6cc8b.webp" alt="switch《内心的过去 The Past Within》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d800ac44ac.webp" alt="switch《内心的过去 The Past Within》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d800b2cbe6.webp" alt="switch《内心的过去 The Past Within》中文版nsz下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Rusty Lake</p> <p>　　游戏发行：Rusty Lake</p> <p>　　The Past Within是一款Rusty Lake推出的全新双人游戏!和你所信任的伙伴一起进入这个世界：一人回顾过去，一人展望未来。和你的同伴积极沟通，未加密谜题，共同揭开Albert Vanderboom的迷局。</p> <p>　　游戏介绍</p> <p>　　过去和未来并非一己之力可以企及!和你的伙伴并肩作战，共同解开Albert Vanderboom房间里的谜团吧。将你在游戏中的发现告诉你的伙伴，互相帮助着破解层层谜题!</p> <p>　　游戏特色</p> <p>　　一个全新的双人游戏体验</p> <p>　　和你的朋友一起玩，一人负责回顾过去，一人负责展望未来。一起合力破解谜题，帮助Rose实现她父亲的计划!</p> <p>　　两个世界 - 两种视角</p> <p>　　两个玩家将于不同的环境和维度中探索锈湖的世界：一位玩家将置身于2D世界，而另一人将探索3D世界 - 这是Rusty Lake世界中前所未有的全新体验!</p> <p>　　跨平台</p> <p>　　只要能和对方沟通，你和你的伙伴可以在任意平台上游玩: PC, Mac, iOS, Android以及即将上线的Nintendo Switch!</p> <p>　　可玩性&amp;重复游玩性</p> <p>　　游戏有两个篇章，平均通关时间为2小时。如果想追求完整的游戏体验，我们建议两个人互换视角重新玩一遍流程。以及你可以利用游戏的重复游玩性来从新的视角利用答案来解开谜题。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 8+</p> <p>　　处理器: 2.4GHz Dual Core</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: 12 MB NVIDIA GeForce 9800 / ATI Radeon HD 2600 XT</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《内心的过去 The Past Within》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">3021553070</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124059/](https://lad.sfcrom.cn/2024/04/124059/)

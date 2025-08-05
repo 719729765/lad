@@ -1,0 +1,13 @@
+---
+title: "switch《超时空战记Gun &#038; Slash CosmicBreak Gun &#038; Slash》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版下载，这是一款机器人主题的动作游戏。玩家可以选择装备是装甲的美少女进行战斗。游戏中可供选择的角色很多，赶快来看看吧。 　　这是一款动漫美少女机甲题材的动作游戏，衍生自超时空战记的&hellip;"
+layout: post
+---
+
+ <p>　　switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版下载，这是一款机器人主题的动作游戏。玩家可以选择装备是装甲的美少女进行战斗。游戏中可供选择的角色很多，赶快来看看吧。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0717fbd.jpg" alt="switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd079a46e.jpg" alt="switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd081e19f.jpg" alt="switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0895dbd.jpg" alt="switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd091b1ae.jpg" alt="switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　这是一款动漫美少女机甲题材的动作游戏，衍生自超时空战记的战斗射击作品，玩家以俯视视角控制美少女机甲战士消灭一波接一波的机器人敌人。游戏包含3种不同的模式，可解锁12名超时空战记中的美少女角色。</p> <p>　　游戏介绍</p> <p>　　迷人的角色!</p> <p>　　解锁并控制来自&ldquo;CosmicBreak Universal&rdquo;的 12 个最受欢迎的角色!角色将根据您在主模式中完成的阶段数和您的通关时间来解锁!</p> <p>　　用你的武器打败敌人!</p> <p>　　角色最多可以装备两把武器，每把武器都有一个主武器和一个副武器。在您追求胜利的过程中，在最多四种武器之间切换!武器在主模式的游戏中随机掉落。</p> <p>　　争夺最好的记录!</p> <p>　　时间攻击模式和挑战模式兼容排行榜!与来自世界各地的玩家竞争成为顶级排名!</p> <p>　　游戏特色</p> <p>　　&middot;让自己超越极限</p> <p>　　&middot;游戏模式：主要模式/竞速模式/挑战模式</p> <p>　　&middot;富有魅力的角色阵容</p> <p>　　&middot;使用各式丰富的武器打败敌人</p> <p>　　&middot;超越自己打破纪录</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd0966629.png" width="391" alt="switch《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《超时空战记Gun &amp; Slash CosmicBreak Gun &amp; Slash》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">HdpVJgJ1</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100296/](https://lad.sfcrom.cn/2024/04/100296/)

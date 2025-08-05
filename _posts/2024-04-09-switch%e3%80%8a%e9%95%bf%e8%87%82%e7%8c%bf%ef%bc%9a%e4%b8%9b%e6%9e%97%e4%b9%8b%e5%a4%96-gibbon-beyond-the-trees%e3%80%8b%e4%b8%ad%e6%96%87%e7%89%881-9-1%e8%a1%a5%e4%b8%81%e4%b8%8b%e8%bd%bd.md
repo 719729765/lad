@@ -1,0 +1,13 @@
+---
+title: "switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版1.9.1补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版下载1.9.1补丁，这是一款以长臂猿为主角的动作游戏，很唯美的手绘画风，玩家要利用长臂猿的特长在丛林中穿行，游戏的故事也很动人。 　　《Gibbon: Beyond the Trees》是一款手绘丛林冒险游戏，&hellip;"
+layout: post
+---
+
+ <p>　　switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版下载1.9.1补丁，这是一款以长臂猿为主角的动作游戏，很唯美的手绘画风，玩家要利用长臂猿的特长在丛林中穿行，游戏的故事也很动人。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=768931689&amp;bvid=BV1tr4y1t7zQ&amp;cid=717875537&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550c60a4c8.webp" alt="switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版1.9.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550c670e3e.webp" alt="switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版1.9.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550c6c251f.webp" alt="switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版1.9.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550c72c6a3.webp" alt="switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版1.9.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661550c796159.webp" alt="switch《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版1.9.1补丁下载" /></td> </tr> </tbody> </table> <p>　　《Gibbon: Beyond the Trees》是一款手绘丛林冒险游戏，跟着一只迷路的长臂猿展开冒险旅程，进入未知的危险之地。在解放模式下竞速奔向自由，或者进入长达一小时的叙事故事中，体会世界各地野生动物奋斗求生的真实故事。</p> <p>　　游戏特色</p> <p>　　体验臂跃行动那如行云流水般的动态运动，这是长臂猿在林间穿梭的真实方式</p> <p>　　熟练各种特技动作，包括从另一只长臂猿的手中抛入空中</p> <p>　　一场长臂猿家族努力在人类威胁日深的环境中图存的感人冒险。</p> <p>　　选择以故事模式进行长达一小时的冒险，或者以解放模式在程序化生成的丛林中奔向自由。</p> <p>　　精致绝伦的2D手绘视觉效果，为迅速消失的世界注入活力。</p> <p>　　探索不同的环境，从东南亚的野外丛林到远方忙碌的人类世界，包罗万象。</p> <p>　　《Gibbon： Beyond the Trees》讲述的是具挑战性又尖锐的环境议题，包括森林砍伐、盗猎和气候变迁。</p> <p>　　以上内容就是小编为大家带来的《长臂猿：丛林之外 Gibbon Beyond the Trees》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">393383930</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145336/](https://lad.sfcrom.cn/2024/04/145336/)

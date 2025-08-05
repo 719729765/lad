@@ -1,0 +1,13 @@
+---
+title: "switch《阿尔弗莱德·希区柯克 — 迷魂记 Alfred Hitchcock – Vertigo》英文版nsp下载【含1.0.1补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《阿尔弗莱德&middot;希区柯克 &mdash; 迷魂记 Alfred Hitchcock &ndash; Vertigo》英文版下载，这是一款剧情非常精彩的冒险解谜游戏，灵感来自希区柯克的经典电影迷魂计，为玩家带来了一个惊悚悬疑的故事。 　　这是一个带有悬疑惊悚风格的电影式互动&hellip;"
+layout: post
+---
+
+ <p>　　switch《阿尔弗莱德&middot;希区柯克 &mdash; 迷魂记 Alfred Hitchcock &ndash; Vertigo》英文版下载，这是一款剧情非常精彩的冒险解谜游戏，灵感来自希区柯克的经典电影迷魂计，为玩家带来了一个惊悚悬疑的故事。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=209960343&amp;bvid=BV1ia411k7aw&amp;cid=462903154&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9a7fa4617.jpg" alt="switch《阿尔弗莱德·希区柯克 — 迷魂记 Alfred Hitchcock – Vertigo》英文版nsp下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9a8015a6e.jpg" alt="switch《阿尔弗莱德·希区柯克 — 迷魂记 Alfred Hitchcock – Vertigo》英文版nsp下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9a80a0097.jpg" alt="switch《阿尔弗莱德·希区柯克 — 迷魂记 Alfred Hitchcock – Vertigo》英文版nsp下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9a810a6d1.jpg" alt="switch《阿尔弗莱德·希区柯克 — 迷魂记 Alfred Hitchcock – Vertigo》英文版nsp下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9a817320f.jpg" alt="switch《阿尔弗莱德·希区柯克 — 迷魂记 Alfred Hitchcock – Vertigo》英文版nsp下载【含1.0.1补丁】" /></td> </tr> </tbody> </table> <p>　　这是一个带有悬疑惊悚风格的电影式互动小说游戏，灵感来自希区柯克的《迷魂记》，让你在游戏中可以体验到这段奇妙的剧情。虽然它和原作同名，但是所讲述的剧情是完全不一样的。艾德因为车祸使得自己有着一段记忆的遗失，随着逐渐深入调查，发现真相非常的疯狂。</p> <p>　　故事介绍</p> <p>　　艾德&middot;米勒是一名作家，他在汽车从加利福尼亚的布罗迪山谷坠落后毫发无伤地脱险。虽然汽车残骸内没有找到任何人，但艾德依然坚称他曾与妻女一同出行。这起事故让他遭受了巨大的创伤，并使他患上了严重的眩晕症。艾德因此开始了一段治疗，并尝试发现这悲剧的一天到底真正发生了什么。</p> <p>　　做好准备，开展一段潜入人性深处的最令人困惑的调查：有时，真相比疯狂更可怕。</p> <p>　　游戏特色</p> <p>　　一个有关痴迷、操纵和疯狂的全新故事，灵感源自阿尔弗莱德&middot;希区柯克的代表作&mdash;&mdash;Vertigo(迷魂记)。</p> <p>　　感受向惊悚片的视觉和写作技巧致敬的震撼故事体验。</p> <p>　　通过三个人的幻觉展开调查：每个人都有不同的故事要讲述。</p> <p>　　通过闪回来探索事件，区别真实和欺诈性的回忆。</p> <p>　　由获得嘉奖的冒险游戏工作室Pendulo Studios开发。</p> <p>　　以上内容就是小编为大家带来的《阿尔弗莱德&middot;希区柯克 &mdash; 迷魂记 Alfred Hitchcock &ndash; Vertigo》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">GUUU</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112036/](https://lad.sfcrom.cn/2024/04/112036/)

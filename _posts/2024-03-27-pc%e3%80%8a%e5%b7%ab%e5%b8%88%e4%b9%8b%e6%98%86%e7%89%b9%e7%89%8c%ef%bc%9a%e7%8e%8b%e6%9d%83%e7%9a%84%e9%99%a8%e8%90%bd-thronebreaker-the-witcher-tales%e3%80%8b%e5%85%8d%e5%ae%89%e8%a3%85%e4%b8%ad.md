@@ -1,0 +1,13 @@
+---
+title: "PC《巫师之昆特牌：王权的陨落 Thronebreaker The Witcher Tales》免安装中文版下载（v1.0.2.12中文配音）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《巫师之昆特牌：王权的陨落 Thronebreaker The Witcher Tales》免安装中文版下载，这是一款《巫师》衍生的角色扮演类游戏，加入了有趣的卡牌战斗玩法。 　　《王权的陨落》是一款以《巫师》世界为舞台，将叙事驱动探索与独特的解谜以及卡片战斗机制相结合的单人角色扮演游戏。 &hellip;"
+layout: post
+---
+
+ <p>　　PC《巫师之昆特牌：王权的陨落 Thronebreaker The Witcher Tales》免安装中文版下载，这是一款《巫师》衍生的角色扮演类游戏，加入了有趣的卡牌战斗玩法。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=34460891&amp;bvid=BV1Ut411R7mF&amp;cid=60368783&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039153d03ac.jpg" alt="PC《巫师之昆特牌：王权的陨落 Thronebreaker The Witcher Tales》免安装中文版下载（v1.0.2.12中文配音）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603915461b6f.jpg" alt="PC《巫师之昆特牌：王权的陨落 Thronebreaker The Witcher Tales》免安装中文版下载（v1.0.2.12中文配音）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039154dcacf.jpg" alt="PC《巫师之昆特牌：王权的陨落 Thronebreaker The Witcher Tales》免安装中文版下载（v1.0.2.12中文配音）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603915573510.jpg" alt="PC《巫师之昆特牌：王权的陨落 Thronebreaker The Witcher Tales》免安装中文版下载（v1.0.2.12中文配音）" /></td> </tr> </tbody> </table> <p>　　《王权的陨落》是一款以《巫师》世界为舞台，将叙事驱动探索与独特的解谜以及卡片战斗机制相结合的单人角色扮演游戏。</p> <p>　　本作由制作了脍炙人口的《巫师 3：狂猎》开发商倾情巨献。游戏将会围绕一段真正的王家传说展开。作为北方领域的两个王国莱里亚和利维亚的女王，面对尼弗迦德人迫在眉睫的入侵，身经百战的米薇不得不再一次发兵出征，踏上一段毁灭与复仇的黑暗之旅。</p> <p>　　游戏介绍</p> <p>　　一段全新的史诗传奇</p> <p>　　体验一段全新打造的 30 小时《巫师》世界传说，迎来 20 种可能的最终结局。</p> <p>　　踏上一段由无数发人深省的任务组成的华丽冒险。</p> <p>　　做出艰难的抉择，面对它们带来的后果，从而对您周遭的世界造成影响。</p> <p>　　遭遇丰富、多元的角色人物，其中一些会加入您的征程，而另一些则需要您在战场上与之交锋。</p> <p>　　进入前所未见的国度</p> <p>　　置身于怪物滋生的《巫师》世界，探索其中全新而神秘的地区。</p> <p>　　穿越广袤的土地和非比寻常的所在，从生机勃勃的乡郊和饱受战火涂炭的村野，到宏伟的城堡与冰雪覆盖的群山，每一处的风格都迥然各异。</p> <p>　　从成群的怪物手中拯救村民，前往古代废墟寻找埋藏的宝藏，在土地上搜索资源&hellip;&hellip;《王权的陨落》世界提供了丰富的游戏内容。</p> <p>　　为大战做好准备</p> <p>　　开发并定制您自己的战争营地。</p> <p>　　训练、招募单位，解锁新技能，发展您自己的战术。</p> <p>　　管理您所发现的资源，与当地的商贩展开交易。</p> <p>　　详细了解伙伴们的过往，提升他们在战场上的实力。</p> <p>　　率领您的大军投身史诗般的战斗</p> <p>　　在旅途中您将会遭遇不同的人物，与他们产生互动，把他们组织成一支军队。</p> <p>　　投身史诗般的剧情战斗，解开别具一格的谜题和挑战。</p> <p>　　发挥军队独有的技能和能力，率领部队走向胜利。</p> <p><h4>下载地址(由网友<font color="red">LaoHE2338701</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52319/](https://lad.sfcrom.cn/2024/03/52319/)

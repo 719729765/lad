@@ -1,0 +1,13 @@
+---
+title: "PC《复仇女神号：锁定 Nemesis Lockdown》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《复仇女神号：锁定 Nemesis Lockdown》英文版下载，复仇女神号是一个很好玩的棋盘桌游，这是它的电子版，&ldquo;Lockdown&rdquo;则是原作的扩展，喜欢桌游的玩家应该会感兴趣哦。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：InterStudio 　　游戏发&hellip;"
+layout: post
+---
+
+ <p>　　PC《复仇女神号：锁定 Nemesis Lockdown》英文版下载，复仇女神号是一个很好玩的棋盘桌游，这是它的电子版，&ldquo;Lockdown&rdquo;则是原作的扩展，喜欢桌游的玩家应该会感兴趣哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=684723694&amp;bvid=BV1vU4y19766&amp;cid=735753696&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dc594788.webp" alt="PC《复仇女神号：锁定 Nemesis Lockdown》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dc5f40a6.webp" alt="PC《复仇女神号：锁定 Nemesis Lockdown》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dc6a4f27.webp" alt="PC《复仇女神号：锁定 Nemesis Lockdown》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033dc75a855.webp" alt="PC《复仇女神号：锁定 Nemesis Lockdown》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：InterStudio</p> <p>　　游戏发行：Awaken Realms</p> <p>　　基于最成功的棋盘游戏之一的回合制恐怖，多人游戏体验。在多人游戏中生存、合作并可能背叛你的团队，或者在单人游戏中享受游戏的乐趣</p> <p>　　游戏介绍</p> <p>　　《复仇者》是近年来最成功的棋类游戏之一，目前在BGG历史排名中排名第17位，收视率超过20k。它是为了纪念经典科幻恐怖电影而创作的。主要目标是创造一个伟大的恐怖体验，在每一场游戏中都能写出一个独特的电影故事。游戏结束后，你会想和朋友们讨论一段时间的故事!</p> <p>　　现在，复仇女神的封锁正在数字化!这是一款在数字世界中重新打造的棋盘游戏，由于该游戏对我们来说非常特殊，我们希望体验一流。这个游戏的目标是两个：复仇女神的粉丝，他们现在可以在线与朋友一起玩，以及新玩家，他们可能不太熟悉棋盘游戏，但仍然想要一次伟大的科幻冒险!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10 (64-bit)</p> <p>　　处理器: AMD Ryzen 5 1xxx / Intel Core i3 6gen</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GeForce GT 1030 / Radeon 530</p> <p>　　DirectX 版本: 12</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p>　　附注事项: Internet Connection Required</p> <p>　　推荐配置:</p> <p>　　处理器: AMD Ryzen 7 4xxx / Intel Core i7 10gen</p> <p>　　内存: 16 GB RAM</p> <p>　　显卡: GeForce RTX 2060 6gb / Radeon RX 590</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《复仇女神号：锁定 Nemesis Lockdown》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">wj5945</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39034/](https://lad.sfcrom.cn/2024/03/39034/)

@@ -1,0 +1,13 @@
+---
+title: "PC《鲁格纳寻宝记 Ruggnar》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《鲁格纳寻宝记 Ruggnar》英文版下载，这是一款2D横版的动作游戏，主角是一名在地下遗迹中探索的矮人，游戏中并没有传统的敌人，玩家要面对的是关卡中的各种谜题障碍，感兴趣的玩家不要错过。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Sword N&#039; Wands 　　游戏发&hellip;"
+layout: post
+---
+
+ <p>　　PC《鲁格纳寻宝记 Ruggnar》英文版下载，这是一款2D横版的动作游戏，主角是一名在地下遗迹中探索的矮人，游戏中并没有传统的敌人，玩家要面对的是关卡中的各种谜题障碍，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=684137054&amp;bvid=BV1RU4y1m7KR&amp;cid=722122952&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603418396f9f.jpg" alt="PC《鲁格纳寻宝记 Ruggnar》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603418411d1b.jpg" alt="PC《鲁格纳寻宝记 Ruggnar》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660341847281d.jpg" alt="PC《鲁格纳寻宝记 Ruggnar》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034184d2513.jpg" alt="PC《鲁格纳寻宝记 Ruggnar》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Sword N&#39; Wands</p> <p>　　游戏发行：PID Games</p> <p>　　《Ruggnar》是一款没有敌人的平台游戏，但在黑暗中隐藏着许多陷阱。帮助Ruggnar探索阴暗的地方，他的包和一些蜡烛是他唯一的装备。</p> <p>　　游戏介绍</p> <p>　　主角鲁格纳所属在城市的矿产资源枯竭，被山上的居民抛弃，但关于宝藏的谣言传到了鲁格纳尔的耳朵里。被居民无情抛弃的地方居然埋藏包含着令人始料不及的宝藏，这些宝藏正等待着鲁格纳。鲁格纳整装待发，配备了他道具和几支蜡烛，他开始了一次刺激过瘾的冒险，梦想挖到宝藏，发家致富!</p> <p>　　在数量有限的蜡烛中，取决玩家对每支蜡烛物尽其用!玩家帮助他在这些黑暗的地方。点亮前面的路况，如果你使用完了，不要扔掉，你会马上发现它并不是没有其他用途了!</p> <p>　　游戏里头居然是没有人会阻挡你寻宝，但是&hellip;&hellip;却有黑暗之中的陷阱无时无刻去挡住你的去路。</p> <p>　　在山谷深处黑暗中，你自己要面对锋利斧头，红炎炎的火球或其他要人性命的陷阱。要想活命探到宝，请玩家协助鲁格纳合理使用蜡烛。眼看六路，耳听八方，投掷蜡烛，照亮前方!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Microsoft&reg; Windows&reg; 7 SP1, 8.1, 10 (version 1607 or better)</p> <p>　　处理器: 2 GHz CPU</p> <p>　　内存: 2048 MB RAM</p> <p>　　显卡: OpenGL 3.0 (DirectX&reg; 10) compliant graphics card and driver</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 600 MB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《鲁格纳寻宝记 Ruggnar》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">QJQ0083</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40712/](https://lad.sfcrom.cn/2024/03/40712/)

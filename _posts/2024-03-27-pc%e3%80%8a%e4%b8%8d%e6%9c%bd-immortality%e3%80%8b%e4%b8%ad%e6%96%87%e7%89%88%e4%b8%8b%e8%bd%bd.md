@@ -1,0 +1,13 @@
+---
+title: "PC《不朽 IMMORTALITY》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《不朽 IMMORTALITY》中文版下载，这是一部真人互动电影，以一名电影明星为主角，为玩家准备了一个精彩的冒险故事。喜欢这个类型游戏的玩家可以来尝试一下。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Sam Barlow/Half Mermaid 　　游戏发行：Half Mer&hellip;"
+layout: post
+---
+
+ <p>　　PC《不朽 IMMORTALITY》中文版下载，这是一部真人互动电影，以一名电影明星为主角，为玩家准备了一个精彩的冒险故事。喜欢这个类型游戏的玩家可以来尝试一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=599886188&amp;bvid=BV1UB4y1x7eu&amp;cid=816330678&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dca1596f.jpg" alt="PC《不朽 IMMORTALITY》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dca71244.jpg" alt="PC《不朽 IMMORTALITY》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dcad55d4.jpg" alt="PC《不朽 IMMORTALITY》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dcb3dfc4.jpg" alt="PC《不朽 IMMORTALITY》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Sam Barlow/Half Mermaid</p> <p>　　游戏发行：Half Mermaid</p> <p>　　是由Sam Barlow, Half Mermaid制作，Half Mermaid发行的一款剧情向冒险游戏，在游戏中玩家将跟随一位电影明星的视角，去窥探她的电影生涯究竟是怎样的，为何她的三部作品都未曾问世，为何她会突然失踪。</p> <p>　　《不朽》的灵感来来自于哥特式小说，讲述了主人公电影明星玛丽莎&middot;马塞尔(Marissa Marcel)在出演三部电影后神秘失踪，并且电影也没有公开上映，玩家在游戏中将揭开一系列密秘，探究玛丽莎&middot;马塞尔身上究竟发生了什么故事。</p> <p>　　游戏介绍</p> <p>　　1968年，艾伦&middot;菲舍尔执导了改编自M. G. Lewis刘易斯著名的哥特小说《修道士》。他将未命名的玛丽莎&middot;马塞尔塑造成臭名昭著的玛蒂尔达。</p> <p>　　1970年，约翰&middot;杜里克在写惊悚片《明斯基》时就想到了马塞尔。故事以纽约为背景，讲述了一位著名艺术家的死亡，玛丽莎扮演了涉嫌谋杀他的缪斯女神。</p> <p>　　1999年，在杜里克的最后一部作品中，他再次与马塞尔合作，在长时间的中断后将她带回银幕。电影《万物之二》是一部颠覆性的惊悚片，探讨了成功的流行歌星和她的替身之间的二元关系。</p> <p>　　这些电影都没有上映过。有人猜测它们已经丢失或被毁。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Requires a 64-bit processor</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GeForce Nvidia GTX/AMD Radeon series or similar</p> <p>　　存储空间: 需要 30 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《不朽 IMMORTALITY》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">174824777</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53168/](https://lad.sfcrom.cn/2024/03/53168/)

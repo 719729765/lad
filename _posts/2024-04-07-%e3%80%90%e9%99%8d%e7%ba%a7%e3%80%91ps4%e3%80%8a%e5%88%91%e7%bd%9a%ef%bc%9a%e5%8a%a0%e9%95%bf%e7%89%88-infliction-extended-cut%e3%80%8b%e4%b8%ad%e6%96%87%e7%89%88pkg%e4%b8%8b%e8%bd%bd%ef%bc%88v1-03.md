@@ -1,0 +1,13 @@
+---
+title: "【降级】PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载（v1.03）"
+date: 2024-04-07
+tags: []
+categories: ["PS4最新破解"]
+excerpt: "　　PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载。这是一款第一人称的恐怖冒险游戏，玩家将探索一个梦境版的恐怖场景，丰富的互动内容可以尝试，喜欢恐怖游戏的玩家不要错过。 　　在一个曾经幸福的家庭的房屋中漫步，阅读信件和期刊，听取语音邮件，拼凑线索，了解导致你在&hellip;"
+layout: post
+---
+
+ <p>　　PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载。这是一款第一人称的恐怖冒险游戏，玩家将探索一个梦境版的恐怖场景，丰富的互动内容可以尝试，喜欢恐怖游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=28361074&amp;bvid=BV1us41137pD&amp;cid=49052770&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/e8c4f57dc5126e6461d85d6b1d2838ba.jpg" alt="【降级】PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载（v1.03）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/0ab558bcea91b208731fab0530069d12.jpg" alt="【降级】PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载（v1.03）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/b042be8839d7c2945627416426865383.jpg" alt="【降级】PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载（v1.03）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/d2f5bf30c34c796b532c77bf4fe6c7ec.jpg" alt="【降级】PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载（v1.03）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/c76ea03ac47db55ba68f6a027939d320.jpg" alt="【降级】PS4《刑罚：加长版 Infliction Extended Cut》中文版pkg下载（v1.03）" /></td> </tr> </tbody> </table> <p>　　在一个曾经幸福的家庭的房屋中漫步，阅读信件和期刊，听取语音邮件，拼凑线索，了解导致你在这里遇到的可怕事件。但是，你并不孤单。这房子里还有其他东西，一种无限的悲伤和愤怒。当你在寻找线索的时候，它会狩猎你，等着机会向你发泄愤怒。</p> <p>　　游戏特色</p> <p>　　你并不孤单&mdash;&mdash;一个不安分的AI敌人会跟踪你。你不想被抓住。你会逃跑、躲藏，还是想办法反击?</p> <p>　　扭曲的现实&mdash;&mdash;在一个现实的，交互式的郊区住宅里进行探索。你进行的越深入，一切就越破碎和扭曲。</p> <p>　　拼凑线索&mdash;&mdash;阅读信件、寻找日记和检查这个破碎家庭的纪念物品，来了解这些引导你来到这里的可怕事件。</p> <p>　　几近真实&mdash;&mdash;故事基于现实世界的家庭悲剧，有着我们都知道的恐惧和伤害：心碎，背叛信任，悲伤和失落。</p> <p>　　光明与黑暗&mdash;&mdash;虚幻的力量渲染了一个逼真的环境，动态的灯光和阴影让你眼花缭乱或者让你陷入黑暗。</p> <p>　　选择你的挑战&mdash;&mdash;标准难度偶尔会为你指出正确的方向，但在困难难度下，你将完全靠自己。</p> <p>　　以上内容就是小编为大家带来的《刑罚：加长版 Infliction Extended Cut》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">lxlsdsgy</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/131139/](https://lad.sfcrom.cn/2024/04/131139/)

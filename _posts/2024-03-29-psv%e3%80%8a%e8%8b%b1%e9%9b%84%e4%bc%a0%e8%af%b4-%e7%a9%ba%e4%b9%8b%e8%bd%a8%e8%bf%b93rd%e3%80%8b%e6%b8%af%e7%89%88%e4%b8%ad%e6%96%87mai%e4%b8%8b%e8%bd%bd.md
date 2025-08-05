@@ -1,0 +1,13 @@
+---
+title: "PSV《英雄传说 空之轨迹3rd》港版中文Mai下载"
+date: 2024-03-29
+tags: []
+categories: ["PSV中文游戏"]
+excerpt: "　　英雄传说 空之轨迹3rd是一款非常好玩的策略类角色扮演游戏，玩家可以在游戏中尝试非常紧张刺激的游戏玩法以及丰富有趣的游戏剧情，下面我们就来看看关于这款游戏的相关介绍吧! 　　根据玩家的战斗方式，可以自由编成相应的队伍。这次可供选择的队员是&ldquo;空之轨迹&rdquo;系列中最多的!队伍中新&hellip;"
+layout: post
+---
+
+ <p>　　英雄传说 空之轨迹3rd是一款非常好玩的策略类角色扮演游戏，玩家可以在游戏中尝试非常紧张刺激的游戏玩法以及丰富有趣的游戏剧情，下面我们就来看看关于这款游戏的相关介绍吧!</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_66066385a8a18.webp" alt="PSV《英雄传说 空之轨迹3rd》港版中文Mai下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_6606638638e92.webp" alt="PSV《英雄传说 空之轨迹3rd》港版中文Mai下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_66066386e217d.webp" alt="PSV《英雄传说 空之轨迹3rd》港版中文Mai下载" /></td> </tr> </tbody> </table> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2019/03-15/2556c991e6b543735f175c6910d71576.jpg" width="480" alt="PSV《英雄传说 空之轨迹3rd》港版中文Mai下载" /></p> <p>　　根据玩家的战斗方式，可以自由编成相应的队伍。这次可供选择的队员是&ldquo;空之轨迹&rdquo;系列中最多的!队伍中新增了玲、理查德、穆拉等新成员，使用S战技、协力战技让战斗变得更加丰富多彩吧!</p> <p>　　更加深层体会&ldquo;空之轨迹&rdquo;的情节</p> <p>　　这次为大家准备了大量&ldquo;SC&rdquo;之后的故事。主要角色令人在意的过去等能够更深刻体会&ldquo;空之轨迹&rdquo;世界乐趣的外传性质情节。</p> <p>　　魔兽焕然一新!巨大BOSS战也仍然健在</p> <p>　　&ldquo;the 3rd&rdquo;中魔兽进行了重新设计，&ldquo;FC&rdquo;、&ldquo;SC&rdquo;中没有的兽人、不死者、亡灵、恶魔等魔物这次会大量出现!同时也有不少巨大的BOSS魔兽登场。</p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2019/03-15/dab4528ccbe2262c7c3234d94e300aac.jpg" width="480" alt="PSV《英雄传说 空之轨迹3rd》港版中文Mai下载" /></p> <p>　　可继承前作&ldquo;SC&rdquo;的存档</p> <p>　　如果PSP中还留存有&ldquo;空之轨迹SC&rdquo;的通关存档，在游戏开始时就可以进行进度继承。根据SC存档的游击士等级，在游戏初期取得的道具会有所不同。</p> <p>　　the 3rd 序曲</p> <p>　　自浮游都市《利贝尔=方舟》崩坏半年后&mdash;&mdash;</p> <p>　　埃利波尼亚帝国东部、克罗伊真州的中心都市巴利亚哈特。</p> <p>　　位于郊外的飞行船发着场中，有一个与众不同的青年。</p> <p>　　他的名字是：凯文&middot;古拉哈穆</p> <p>　　身为七耀教会的神父、同时也是对古代文明遗产进行调查&middot;回收&middot;处理相关事件的《星杯骑士团》所属骑士。</p> <p>　　&ldquo;《露西塔莉亚号》&hellip;&hellip;</p> <p>　　莱茵福特社自满作的豪华飞行客船。&rdquo;</p> <p>　　&ldquo;哈～、没有任务的话</p> <p>　　就可以好好的享受天空的休假了。&rdquo;</p> <p>　　各地的贵族和大富豪。</p> <p>　　巨额购入二等客房船票的市民。</p> <p>　　&mdash;&mdash;混迹在熙熙攘攘的人群中、开始漫长旅途的凯文。</p> <p>　　莱茵福特社制的大型引擎响起重低音、全场120亚矩的巨船慢慢地浮上天空。</p> <p>　　于是&mdash;&mdash;新的冒险开始了。</p> <p>　　关于这款游戏的相关情况就为大家介绍到这里，欢迎喜欢这款游戏的小伙伴们去尝试体验一下哟!</p> <p><h4>下载地址(由网友<font color="red">luobatian666</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/84514/](https://lad.sfcrom.cn/2024/03/84514/)

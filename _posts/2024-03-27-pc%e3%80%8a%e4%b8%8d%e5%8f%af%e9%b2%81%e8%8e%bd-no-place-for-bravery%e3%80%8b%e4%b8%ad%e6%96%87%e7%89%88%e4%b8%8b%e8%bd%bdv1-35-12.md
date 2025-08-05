@@ -1,0 +1,13 @@
+---
+title: "PC《不可鲁莽 No Place for Bravery》中文版下载v1.35.12"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《不可鲁莽 No Place for Bravery》中文版下载，这是一款像素画风的动作冒险游戏，画面非常精致，讲述的是男主角寻找女儿的故事，对这款游戏感兴趣的玩家一定不要错过哦。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Glitch Factory 　　游戏发行：Ysbryd&hellip;"
+layout: post
+---
+
+ <p>　　PC《不可鲁莽 No Place for Bravery》中文版下载，这是一款像素画风的动作冒险游戏，画面非常精致，讲述的是男主角寻找女儿的故事，对这款游戏感兴趣的玩家一定不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=900357712&amp;bvid=BV15P4y1Z72c&amp;cid=825345325&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b7322dc09.webp" width="600" alt="PC《不可鲁莽 No Place for Bravery》中文版下载v1.35.12" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b7328455c.webp" width="600" alt="PC《不可鲁莽 No Place for Bravery》中文版下载v1.35.12" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b732df9cd.webp" width="600" alt="PC《不可鲁莽 No Place for Bravery》中文版下载v1.35.12" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b7336d15c.webp" width="600" alt="PC《不可鲁莽 No Place for Bravery》中文版下载v1.35.12" /></p> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Glitch Factory</p> <p>　　游戏发行：Ysbryd Games</p> <p>　　索恩，一个年老但雄心勃勃的战士，在一个被战争破坏的世界里漫游，寻找他丢失的女儿。体验这款竖版 2D 动作角色扮演类游戏，在疯狂而激烈的战斗中生存下来，揭开索恩旅程背后的精彩故事。</p> <p>　　游戏介绍</p> <p>　　游戏将集中于招架和快节奏的战斗。犯错误会受到惩罚，在面对《勇敢》世界的危险时，你会体验到一种挥之不去的脆弱感。</p> <p>　　《不可鲁莽》的故事传递了一个强烈的信息，即在一个混乱的世界中，父母的角色和他们的选择的后果。这一信息是由开发者的个人生活经历所提供的，游戏旨在以能力和深度来传授这些真实、共鸣的感受。</p> <p>　　游戏特色</p> <p>　　游戏的重点将是跑垒和快节奏的战斗。</p> <p>　　犯错将是惩罚，你将经历一种挥之不去的脆弱感，同时面对勇敢世界的危险。</p> <p>　　在一个像他这样的人总是死去的世界里，索恩是一位能干的战士。</p> <p>　　在你的控制下，索恩将有能力杀死和生存在世界围棋，但你应该期待发现索恩的脆弱性鲜明地反映在你自己的一系列可能的失败。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: 64-bit Windows 7</p> <p>　　处理器: 2.8 GHz Dual Core CPU</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: GeForce GTX 660, Radeon R7 370 or equivalent with 2 GB of video RAM</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　声卡: DirectX compatible</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《不可鲁莽 No Place for Bravery》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">冯东东</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52227/](https://lad.sfcrom.cn/2024/03/52227/)

@@ -1,0 +1,13 @@
+---
+title: "PC《GTA三部曲终极版 Grand Theft Auto:The Trilogy The Definitive Edition》中文版下载【v1.17.37984884版|集成全DLC】"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《GTA三部曲终极版 Grand Theft Auto:The Trilogy The Definitive Edition》中文版下载【v1.17.37984884版|集成全DLC】！三座个性十足的城市，三段扣人心弦的故事。重温开创了流派先河的 Grand Theft Auto 游戏包含《GT&hellip;"
+layout: post
+---
+
+ <p>PC《GTA三部曲终极版 Grand Theft Auto:The Trilogy The Definitive Edition》中文版下载【v1.17.37984884版|集成全DLC】！三座个性十足的城市，三段扣人心弦的故事。重温开创了流派先河的 Grand Theft Auto 游戏包含《GTA3》《罪恶都市》《圣安地列斯》三部曲高清重置！</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=933626672&amp;bvid=BV1BT4y1o7dJ&amp;cid=429221563&amp;page=1" width="410"></iframe></p> <p>　　同时，您还能体验到新世代的全面功能改进，包括明亮的全新光照和环境升级、高分辨率纹理、经过提升的绘制距离、Grand Theft Auto V 风格的操作和瞄准方式等等。用全新的细节程度，逼真呈现深受大家喜爱的世界。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be6cd3c20.webp" width="700" alt="PC《GTA三部曲终极版 Grand Theft Auto:The Trilogy The Definitive Edition》中文版下载【v1.17.37984884版|集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be6d3a15e.webp" width="700" alt="PC《GTA三部曲终极版 Grand Theft Auto:The Trilogy The Definitive Edition》中文版下载【v1.17.37984884版|集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be6d981b9.webp" width="700" alt="PC《GTA三部曲终极版 Grand Theft Auto:The Trilogy The Definitive Edition》中文版下载【v1.17.37984884版|集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be6dec22d.webp" width="700" alt="PC《GTA三部曲终极版 Grand Theft Auto:The Trilogy The Definitive Edition》中文版下载【v1.17.37984884版|集成全DLC】" /></p></div> <p>　　Grand Theft Auto：三部曲 &ndash; 最终版包括：</p> <p>　　&bull; Grand Theft Auto III：欢迎来到自由市，一切的起点。伴随着革命性的自由度提升，您想去哪便去哪、想偷谁便偷谁。在 Grand Theft Auto III 中，整个地下犯罪世界的中心尽在您的指尖，只看您有没有胆子将它揽入掌中。</p> <p>　　&bull; Grand Theft Auto: Vice City：欢迎来到 20 世纪 80 年代。在这发型浮夸和粉色西装当道的年代，一个男人在成群罪犯中崛起的故事就此展开。Grand Theft Auto 载誉归来，讲述汤米&middot;维尔切蒂的传说，带您领略灯红酒绿的热带都会，在背叛与复仇之间争名夺利、纸醉金迷。</p> <p>　　&bull; Grand Theft Auto: San Andreas：五年前，&ldquo;CJ&rdquo;卡尔&middot;约翰逊逃离了圣安地列斯州的洛圣都&hellip;&hellip;一个充斥着帮派问题、毒品和贪腐的崩坏之城。现在是 90 年代初期，卡尔得回家了。他的母亲遭人谋杀、家庭分崩离析，甚至连童年好友都难逃厄运。回到街区后，一群贪污腐败的警察诬陷他犯下了谋杀罪。在这款改变了一切的系列新作中，卡尔&middot;约翰逊被迫踏上横跨整个圣安地列斯州的旅程，试图挽救他的家庭并掌控街头。</p> <p><h4>下载地址(由网友<font color="red">kyojoyes</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53678/](https://lad.sfcrom.cn/2024/03/53678/)

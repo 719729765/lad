@@ -1,0 +1,13 @@
+---
+title: "PC《Aery：维京人 Aery &#8211; Vikings》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《Aery：维京人 Aery - Vikings》英文版下载，这是著名的模拟飞行游戏Aery系列的最新一部作品，在这部作品中玩家将穿梭一个维京人主题的美丽世界，喜欢的玩家可以关注一下。 &nbsp; 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：EpiXR Games UG 　　游戏&hellip;"
+layout: post
+---
+
+ <p>　　PC《Aery：维京人 Aery - Vikings》英文版下载，这是著名的模拟飞行游戏Aery系列的最新一部作品，在这部作品中玩家将穿梭一个维京人主题的美丽世界，喜欢的玩家可以关注一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=600563784&amp;bvid=BV11B4y1W71i&amp;cid=761816769&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347b338b5f.jpg" alt="PC《Aery：维京人 Aery - Vikings》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347b3dc972.jpg" alt="PC《Aery：维京人 Aery - Vikings》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347b5204aa.jpg" alt="PC《Aery：维京人 Aery - Vikings》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347b5aab78.jpg" alt="PC《Aery：维京人 Aery - Vikings》英文版下载" /></td> </tr> <tr> <td align="center"> <p><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347b653ebd.jpg" alt="PC《Aery：维京人 Aery - Vikings》英文版下载" /></p> <p>&nbsp;</p></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：EpiXR Games UG</p> <p>　　游戏发行：EpiXR Games UG</p> <p>　　由EpiXR Games UG制作并发行的一款飞行模拟游戏，在游戏中玩家将扮演一只自由的鸟，跟随有趣的故事情节穿越一个和平而梦幻的世界，将维京人从他们的命运中解救出来。</p> <p>　　游戏介绍</p> <p>　　让您的旅程穿越一个美妙、令人兴奋和令人叹为观止的世界，并在寻找瓦尔哈拉的过程中享受飞行的感觉。</p> <p>　　跟随有趣的故事情节穿越一个和平而梦幻的世界，将维京人从他们的命运中解救出来。</p> <p>　　让北欧诸神相信你值得他们的祝福，并展示你令人难以置信的机动技能。</p> <p>　　这个故事驱动的游戏是非暴力的，因此您可以在等待探索的 13 个巨大的不同阶段中享受直观和轻松的游戏玩法。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Win 10</p> <p>　　处理器: Intel Core i5-4590 (AMD FX 8350) or better</p> <p>　　显卡: NVIDIA GTX600</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　声卡: No specific requirements.</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《Aery：维京人 Aery - Vikings》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">zjltn</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39571/](https://lad.sfcrom.cn/2024/03/39571/)

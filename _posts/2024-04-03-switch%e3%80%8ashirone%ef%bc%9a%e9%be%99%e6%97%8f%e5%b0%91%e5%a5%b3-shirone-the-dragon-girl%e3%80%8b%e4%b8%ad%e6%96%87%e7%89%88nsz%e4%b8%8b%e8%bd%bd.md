@@ -1,0 +1,13 @@
+---
+title: "switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版下载，这是一款3D冒险解谜游戏，主角是一位可爱的龙族少女，她被困在了一座城堡中，帮助她解开这里的机关，逃出城堡。 　　&ldquo;Shirone：龙族少女&rdquo;是一款3D冒险游戏，在这个游戏里&hellip;"
+layout: post
+---
+
+ <p>　　switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版下载，这是一款3D冒险解谜游戏，主角是一位可爱的龙族少女，她被困在了一座城堡中，帮助她解开这里的机关，逃出城堡。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=724966473&amp;bvid=BV16S4y1U7dv&amp;cid=553880994&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d718b234fe.jpg" alt="switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d718b93a13.jpg" alt="switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d718c03263.jpg" alt="switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d718c8182c.jpg" alt="switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d718d17160.jpg" alt="switch《Shirone：龙族少女 Shirone the Dragon Girl》中文版nsz下载" /></td> </tr> </tbody> </table> <p>　　&ldquo;Shirone：龙族少女&rdquo;是一款3D冒险游戏，在这个游戏里，你将帮助Shirone 解开谜题，找到逃出鬼堡的方法。</p> <p>　　逃离鬼堡是游戏的主旨，在这个过程中你需要充分利用Shirone 的翅膀和尾巴来达到目的!</p> <p>　　找到线索去解开阻碍你逃离的谜题吧。</p> <p>　　你的想象力和创造力能够帮助你找到正确的解决方案。</p> <p>　　游戏特色</p> <p>　　・Shirone的动作</p> <p>　　通过煽动翅膀触发二连跳，卷曲尾巴拉动操纵杆。</p> <p>　　需要找到每一个关卡的出口。</p> <p>　　・3D 关卡谜题</p> <p>　　&ldquo;如何从A点到达B点?&rdquo;&ldquo;怎么扫清障碍?&rdquo;</p> <p>　　你需要仔细观察Shirone所处的周边环境，分析并找到正确答案。</p> <p>　　・鬼堡里有各种奇异的怪物。</p> <p>　　Shirone并不是唯一一个误入鬼堡的。</p> <p>　　他们的命运如何呢?</p> <p>　　随着游戏的推进，你将抽丝剥茧，揭开这层层面纱。</p> <p>　　・独特的冒险旅程</p> <p>　　每个关卡都有&ldquo;神奇碎片&rdquo;散布其中。</p> <p>　　收集碎片，解锁新的发型和服饰，为Shirone换上新装。</p> <p>　　以上内容就是小编为大家带来的《Shirone：龙族少女 Shirone the Dragon Girl》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">jhkljuotiygj</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124261/](https://lad.sfcrom.cn/2024/04/124261/)

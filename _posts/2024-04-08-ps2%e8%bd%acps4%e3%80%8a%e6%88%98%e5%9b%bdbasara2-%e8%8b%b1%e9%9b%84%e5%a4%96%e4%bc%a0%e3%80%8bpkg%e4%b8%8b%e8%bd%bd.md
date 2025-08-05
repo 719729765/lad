@@ -1,0 +1,13 @@
+---
+title: "[ps2转ps4]《战国Basara2 英雄外传》PKG下载"
+date: 2024-04-08
+tags: []
+categories: ["ps2转ps4"]
+excerpt: "　　[ps2转ps4]《战国Basara2 英雄外传》PKG下载，这次为大家推荐的游戏是战国Basara2的一个外传版本，感兴趣的玩家们一起来看看吧。 　　《战国BASARA2：英雄外传》虽然是款外传性质作品，但是游戏内容和可玩性都极为出色。本作不但保留了原有作品的特色及相关内容，还新增了系统和模式&hellip;"
+layout: post
+---
+
+ <p>　　[ps2转ps4]《战国Basara2 英雄外传》PKG下载，这次为大家推荐的游戏是战国Basara2的一个外传版本，感兴趣的玩家们一起来看看吧。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_6613f7007b656.webp" width="400" alt="[ps2转ps4]《战国Basara2 英雄外传》PKG下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_6613f700d45c2.webp" width="500" alt="[ps2转ps4]《战国Basara2 英雄外传》PKG下载" /></p> <p>　　《战国BASARA2：英雄外传》虽然是款外传性质作品，但是游戏内容和可玩性都极为出色。本作不但保留了原有作品的特色及相关内容，还新增了系统和模式，尤其玩家还能操控一些正统作品中所无法使用的角色，还有众多元素都值得体验一番，喜欢的玩家不要错过了。本作是PS2上的游戏，现在带给大家整合模拟器的PC版。</p> <p>　　《战国BASARA2：英雄外传》是由CAPCOM 制作的《战国BASARA2》外传，是以日本战国时代为背景的流行英雄动作游戏系列作品。本作是以《战国BASARA》、《战国BASARA2》中没有提及的武将们的故事进行游戏的追加故事剧情。收录&ldquo;伊达政宗&rdquo;、&ldquo;真田幸村&rdquo;、&ldquo;前田庆次&rdquo;、&ldquo;长曾我部元亲&rdquo;、&ldquo;风魔小太郎&rdquo;，各故事线均为3章。</p> <p>　　游戏背景</p> <p>　　16世纪，战国时代的日本。在全国各地的大名们组建起自己的势力都想一统天下。为了人民，为了爱，并且也为了大名的野望，怀抱着不同的抱负和理想，形成了战乱的世界。</p> <p>　　故事模式</p> <p>　　&ldquo;伊达政宗&rdquo;外传故事模式「苍红共斗」</p> <p>　　面对与魔王&ldquo;织田信长&rdquo;的决战，&ldquo;伊达政宗&rdquo;带领全军向本能寺进军。(本能寺之变)可是就在这个当口，继承在长筱之战中负伤的&ldquo;武田信玄&rdquo;的意志，与同以本能寺作为目标的&ldquo;真田幸村&rdquo;遭遇。与&ldquo;信长&rdquo;决战前的现在，并非本意但只能与宿敌做个了解的&quot;政宗&quot;&hellip;&hellip;。</p> <p>　　&ldquo;真田幸村&rdquo;外传故事模式「武田家的日常～修行编～」</p> <p>　　在的武田式修业道场，别名「武田汉(男人)节」终于开始了。为了成为男子汉要经历许多考验，并且遭遇神秘的忍者&ldquo;天狐假具&rdquo;和道场的主人&ldquo;火男假具&rdquo;对&ldquo;真田幸村&rdquo;的袭击。到底&ldquo;幸村&rdquo;能杀出重围吗?</p> <p>　　&ldquo;前田庆次&rdquo;外传故事方式「老朋友们」</p> <p>　　一日&ldquo;前田庆次&rdquo;和&ldquo;丰臣秀吉&rdquo;，年轻人爱冒险(胡闹)，而且想试试身手，潜入了&ldquo;上杉谦信&rdquo;摆下阵势防守的手取川。在对&ldquo;谦信&rdquo;的捣乱计划成功之后，拥有自信的2人，开始面对强大的新对手。</p> <p>　　&ldquo;长曾我部元亲&rdquo;外传故事模式「战场的友情」</p> <p>　　乘平定了四国的气势，进入本州的战国风云人物&ldquo;长曾我部元亲&rdquo;。但是和&ldquo;武田信玄&rdquo;带领的武田骑马队的战斗中吃了败仗，逼不得已只好撤退。总算到了再战之日，&ldquo;元亲&rdquo;与相同目的&ldquo;德川家康&rdquo;遭遇。争执&ldquo;只有我才能打倒信玄&rdquo;而寸步不让的两人，站在了一起!</p> <p>　　&ldquo;风魔小太郎&rdquo;外传故事模式「传说的忍者」</p> <p>　　以强大的军力做为武器在战国乱世中崭露头角的丰臣军，终于开始进军小田原。被北条家雇用的雇佣兵&ldquo;风魔小太郎&rdquo;，被&ldquo;北条氏政&rdquo;命令将霸王&ldquo;丰臣秀吉&rdquo;的丰臣军的天才军师&ldquo;竹中半兵卫&rdquo;的暗杀。可是，相同目的2个忍者&ldquo;猿飞佐助&rdquo;&ldquo;かすが&rdquo;，都比&ldquo;风魔&rdquo;先潜入了稻叶山城。</p> <p>&nbsp;</p> <p>　　喜欢这款游戏的玩家朋友们，现在就可以通过上面的链接来获取游戏了!</p> <p><h4>下载地址(由网友<font color="red">woshiyeshuai</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/138172/](https://lad.sfcrom.cn/2024/04/138172/)

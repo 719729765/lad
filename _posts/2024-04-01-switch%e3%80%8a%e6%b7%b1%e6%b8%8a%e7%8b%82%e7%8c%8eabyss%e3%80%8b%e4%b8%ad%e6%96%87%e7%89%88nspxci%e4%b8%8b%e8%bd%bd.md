@@ -1,0 +1,13 @@
+---
+title: "switch《深渊狂猎Abyss》中文版NSP+XCI下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "今天为大家推荐一款非常好玩的游戏，感兴趣的玩家们可以先来了解一下哦。 实机视频 在这款2D动作RPG的世界里，玩家须操控4个角色组成的丸子头队伍深入各式各样的迷宫，并用获得的道具强化角色、扫荡成群结队的敌人，是一部既爽快又华丽的作品。从操作风格大相迳庭的8种职业选里任选4个角色，一路扫荡怪物，深入从&hellip;"
+layout: post
+---
+
+ <p>今天为大家推荐一款非常好玩的游戏，感兴趣的玩家们可以先来了解一下哦。</p> <p style="text-align: center;"><strong><span style="font-size:18px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=44441513&amp;cid=77809029&amp;page=1" width="410"></iframe></p> <p>在这款2D动作RPG的世界里，玩家须操控4个角色组成的丸子头队伍深入各式各样的迷宫，并用获得的道具强化角色、扫荡成群结队的敌人，是一部既爽快又华丽的作品。从操作风格大相迳庭的8种职业选里任选4个角色，一路扫荡怪物，深入从未有人抵达的迷宫吧!</p> <p align="center"><img align="" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2dcf58acf.webp" style="border-width: 0px; border-style: solid; width: 640px; height: 1043px;" alt="switch《深渊狂猎Abyss》中文版NSP+XCI下载" /></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2dcfc685c.webp" alt="switch《深渊狂猎Abyss》中文版NSP+XCI下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2dd048486.webp" alt="switch《深渊狂猎Abyss》中文版NSP+XCI下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2dd0b7fce.webp" alt="switch《深渊狂猎Abyss》中文版NSP+XCI下载" /></td> </tr> </tbody> </table> <p>　　《深渊狂猎(LapisReAbyss)》讲述了在某个小国的边境地区流传著《黄金森》的传说，在这片大森林的最深处，相传有著黄金生成的树木!众多的个性职业冒险家纷纷被之吸引，争相恐后的来到这里，意欲寻获黄金之树而成为巨富!</p> <p>　　本作最大的创意系统是搞笑实用的&ldquo;DANGO(穿签丸子)&rdquo;系统，玩家可以指定一名领队，最多附加3名成员组成4人小队，队员会变身大头娃娃坐在领队头上，你可以选择让队员坐在你头上给你援护，或者是和队员一起进行攻击。</p> <p>　　另外，游戏中包含力之剑、精灵石等各种各样的道具，还包含改造屋、交换屋等多个场所，等着你去慢慢探索。</p> <p>　　《深渊狂猎》讲述了在某个小国的边境地区流传著《黄金森》的传说，在这片大森林的最深处，相传有著黄金生成的树木，众多的个性职业冒险家知道之后纷纷被吸引到这里，想要夺取黄金之树从而获得巨大的财富。<br />&nbsp;</p> <p>　　这款游戏从介绍内容上来看还是很值得期待的，喜欢的玩家们赶快来玩吧。</p> <p><h4>下载地址(由网友<font color="red">yuzb</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109443/](https://lad.sfcrom.cn/2024/04/109443/)

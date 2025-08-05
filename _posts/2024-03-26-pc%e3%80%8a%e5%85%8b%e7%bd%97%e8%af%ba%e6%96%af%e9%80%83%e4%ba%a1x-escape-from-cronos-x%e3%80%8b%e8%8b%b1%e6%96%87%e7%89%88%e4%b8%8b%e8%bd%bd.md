@@ -1,0 +1,13 @@
+---
+title: "PC《克罗诺斯逃亡X Escape from Cronos X》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《克罗诺斯逃亡X Escape from Cronos X》英文版下载，这是一款动作角色扮演类型的游戏，俯视视角的玩法，在星际空间中冒险，对这个类型游戏感兴趣的玩家不要错过。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Request Logic 　　游戏发行：Request Lo&hellip;"
+layout: post
+---
+
+ <p>　　PC《克罗诺斯逃亡X Escape from Cronos X》英文版下载，这是一款动作角色扮演类型的游戏，俯视视角的玩法，在星际空间中冒险，对这个类型游戏感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=593931937&amp;bvid=BV1Kq4y187Ln&amp;cid=504981047&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034f4ef3140.jpg" width="600" alt="PC《克罗诺斯逃亡X Escape from Cronos X》英文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034f4fbca8d.jpg" width="600" alt="PC《克罗诺斯逃亡X Escape from Cronos X》英文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034f503195c.jpg" width="600" alt="PC《克罗诺斯逃亡X Escape from Cronos X》英文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034f510325c.jpg" width="600" alt="PC《克罗诺斯逃亡X Escape from Cronos X》英文版下载" /></p> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Request Logic</p> <p>　　游戏发行：Request Logic AS (Ltd)</p> <p>　　《克罗诺斯逃亡X(Escape from Cronos X)》是一款俯视视角的动作RPG游戏，具有深刻的故事情节和史诗般的战斗。你要通过许多充满动作的任务来探索克洛诺斯并找到逃离这个星球的方法。</p> <p>　　游戏介绍</p> <p>　　探索这个星球，在那里你会遇到成群结队的敌对生物和强大的敌人，因为你试图找到救援的方法。</p> <p>　　探索一个广阔的星球</p> <p>　　探索坟墓、广袤的荒地、未知的前哨站和废弃的研究基地，寻找逃离克洛诺斯的方法。</p> <p>　　打仗</p> <p>　　与游荡在克洛诺斯的成群腐败生物战斗。从死亡步行者和掠夺者到庞然大物和巨型蜘蛛。在整个游戏中，你将面对许多敌人。</p> <p>　　创造你的角色</p> <p>　　从四个不同种族、四个不同阶级和起源故事中选择。塑造你想成为的角色。</p> <p>　　揭露克罗诺斯的黑暗历史</p> <p>　　克罗诺斯有一个秘密。地球上发生了一些事情，让它变成了一个致命的世界。揭开这个星球的神秘面纱，也许是一种消除邪恶的方法。</p> <p>　　发展</p> <p>　　选择角色的演变方式。通过战斗、完成任务和探索获得经验。</p> <p>　　贸易</p> <p>　　你会在旅途中发现很多战利品。有些你想保留，但很多可以卖给居住在地球上的供应商。</p> <p>　　工艺升级和设备</p> <p>　　了解如何制作升级和重要设备，以增加您的生存机会。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 8 / 10</p> <p>　　处理器: INTEL CORE I5-8400 or AMD RYZEN 3 3300X</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Geforce 950 4 GB or better</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 20 GB 可用空间</p> <p>　　声卡: Windows Compatible Audio Device</p> <p>　　附注事项: Internet connection and active Steam client</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《克罗诺斯逃亡X Escape from Cronos X》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">sky枭魔</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39087/](https://lad.sfcrom.cn/2024/03/39087/)

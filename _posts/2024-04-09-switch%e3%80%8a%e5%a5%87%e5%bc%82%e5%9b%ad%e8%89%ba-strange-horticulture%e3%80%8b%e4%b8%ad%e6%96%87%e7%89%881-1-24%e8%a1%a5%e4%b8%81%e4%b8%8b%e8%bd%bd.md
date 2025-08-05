@@ -1,0 +1,13 @@
+---
+title: "switch《奇异园艺 Strange Horticulture》中文版1.1.24补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《奇异园艺 Strange Horticulture》中文版下载，这是一款很有趣的模拟经营游戏，在游戏内容中加入了解谜的元素，玩家在游戏中的角色是一家植物店的老板，很多神秘事件等你来体验。 　　《Strange Horticulture》是一款神秘学解谜游戏，你将扮演当地植物商店的店&hellip;"
+layout: post
+---
+
+ <p>　　switch《奇异园艺 Strange Horticulture》中文版下载，这是一款很有趣的模拟经营游戏，在游戏内容中加入了解谜的元素，玩家在游戏中的角色是一家植物店的老板，很多神秘事件等你来体验。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=423899000&amp;bvid=BV1y3411j7Lc&amp;cid=505882354&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615418e19e33.jpg" alt="switch《奇异园艺 Strange Horticulture》中文版1.1.24补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615418e9b661.jpg" alt="switch《奇异园艺 Strange Horticulture》中文版1.1.24补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615418f17fd4.jpg" alt="switch《奇异园艺 Strange Horticulture》中文版1.1.24补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615418f9539f.jpg" alt="switch《奇异园艺 Strange Horticulture》中文版1.1.24补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615419024ab7.jpg" alt="switch《奇异园艺 Strange Horticulture》中文版1.1.24补丁下载" /></td> </tr> </tbody> </table> <p>　　《Strange Horticulture》是一款神秘学解谜游戏，你将扮演当地植物商店的店主，寻找并识别新的植物，悠闲撸猫，与女巫团体交谈，或加入异教。收集各种强大的植物，用它们来影响故事走向，揭开昂德米尔镇的黑暗谜团。</p> <p>　　故事介绍</p> <p>　　欢迎来到昂德米尔镇。这个古朴小镇周围环绕着沼泽密布的森林和崎岖不平的山脉。你是园艺家，当地植物商店Strange Horticulture的店主。随着一群形形色色的顾客光临你的小店，你迅速被卷入到一起延续数百年的神秘学事件中。</p> <p>　　游戏特色</p> <p>　　探索店外的广袤土地，寻找新的植物，但要小心!幽暗的森林与湖泊并不总会对一个小小的草药师释放善意。你可能会发现绝对意想不到的力量&mdash;&mdash;或者彻底迷失心智。根据情境线索决定哪些地方值得一探，哪些地方必须避开!</p> <p>　　值得信赖的百科知识和探索途中发现的线索可以让你进一步了解你遇到的奇怪植物。通过识别每种植物，你将能够利用它们的功效来影响故事走向&mdash;&mdash;从催眠幻剂到致命剧毒，应有尽有。</p> <p>　　以上内容就是小编为大家带来的《奇异园艺 Strange Horticulture》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">荒野之心</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145527/](https://lad.sfcrom.cn/2024/04/145527/)

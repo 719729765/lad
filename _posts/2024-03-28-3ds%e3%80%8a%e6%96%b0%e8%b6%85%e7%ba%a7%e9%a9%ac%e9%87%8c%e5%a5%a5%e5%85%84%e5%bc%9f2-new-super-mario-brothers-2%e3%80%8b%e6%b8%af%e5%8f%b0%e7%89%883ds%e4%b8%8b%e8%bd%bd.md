@@ -1,0 +1,13 @@
+---
+title: "3DS《新超级马里奥兄弟2 New Super Mario Brothers 2》港台版3ds下载"
+date: 2024-03-28
+tags: []
+categories: ["3DS中文游戏"]
+excerpt: "　　3DS《新超级马里奥兄弟2 New Super Mario Brothers 2》港台版3ds下载。《新超级马里奥兄弟2》是由Nintendo制作发行的一款经典动作冒险游戏，是一个以收集金币为主题的游戏。 　　库巴又一次绑架了碧琪公主，但是本次马里奥还有另一个目标，那就是收集散落在蘑菇王国四处的&hellip;"
+layout: post
+---
+
+ <p>　　3DS《新超级马里奥兄弟2 New Super Mario Brothers 2》港台版3ds下载。《新超级马里奥兄弟2》是由Nintendo制作发行的一款经典动作冒险游戏，是一个以收集金币为主题的游戏。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660549ce8d234.png" width="598" alt="3DS《新超级马里奥兄弟2 New Super Mario Brothers 2》港台版3ds下载" /></p> <p>　　库巴又一次绑架了碧琪公主，但是本次马里奥还有另一个目标，那就是收集散落在蘑菇王国四处的金币。每一层都散落着金币，而玩家在冒险途中要尽可能多地收集金币。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660549cf50211.png" width="594" alt="3DS《新超级马里奥兄弟2 New Super Mario Brothers 2》港台版3ds下载" /></p> <p>　　游戏特色</p> <p>　　关卡</p> <p>　　游戏总计有80个以上不同的关卡，收集金币的要素更为丰富，并加入了双人游戏的面联功能。</p> <p>　　包括海洋、天空、沙漠、冰之世界，共有80个以上的关卡路线。</p> <p>　　获取道具，对马里奥进行变身，就能让冒险更加顺利。</p> <p>　　关卡中有着大量的机关，好好地利用这些机关向终点进发吧。</p> <p>　　关卡中有很多可以用来收集金币的机关，游戏中收集到的金币全部都会累计。收集总数100万枚之后可以得到&ldquo;金色马里奥像&rdquo;，另外游戏本身也可以反复地玩。</p> <p>　　金马里奥</p> <p>　　能够将砖块变成硬币。</p> <p>　　金砖块</p> <p>　　顶着它奔跑的话，会有大量金币喷涌而出。</p> <p>　　金环</p> <p>　　钻过去后敌人在一定时间内会变成黄金，变成黄金的敌人会生成大量金币。</p> <p>　　双人游戏</p> <p>　　本作中通过面联可实现两人一起闯关，通过两人的配合金币的收集，或是难打的关卡都会变得简单。</p> <p>　　使用泡泡</p> <p>　　进入安全的&ldquo;泡泡&rdquo;中后，就可以在画面中飘来飘去了。</p> <p>　　同时坠击</p> <p>　　两人同时进行坠击，将附着在地面的敌人一网打尽。</p> <p>　　双倍金币</p> <p>　　两人游戏时获得的金币也会变成双倍。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660549d01077b.png" width="597" alt="3DS《新超级马里奥兄弟2 New Super Mario Brothers 2》港台版3ds下载" /></p> <p><h4>下载地址(由网友<font color="red">15250966160</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/71106/](https://lad.sfcrom.cn/2024/03/71106/)

@@ -1,0 +1,13 @@
+---
+title: "switch《死亡学院 DEAD OR SCHOOL》v1.0.0金手指下载"
+date: 2024-04-10
+tags: []
+categories: ["switch金手指"]
+excerpt: "　　switch《死亡学院 DEAD OR SCHOOL》v1.0.0金手指下载，这是一款以打僵尸为主题的动作冒险游戏，讲述的是末日后人们在地下生活的故事，下面为大家准备了这款游戏的金手指，一起来看看吧。 　　地面被尸鬼镇压的东京。 　　人们被迫躲在地底不见天日，失去希望，终日过着寂静的生活。 　　&hellip;"
+layout: post
+---
+
+ <p>　　switch《死亡学院 DEAD OR SCHOOL》v1.0.0金手指下载，这是一款以打僵尸为主题的动作冒险游戏，讲述的是末日后人们在地下生活的故事，下面为大家准备了这款游戏的金手指，一起来看看吧。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615dd245c6c1.webp" width="600" alt="switch《死亡学院 DEAD OR SCHOOL》v1.0.0金手指下载" /></p> <p>　　地面被尸鬼镇压的东京。</p> <p>　　人们被迫躲在地底不见天日，失去希望，终日过着寂静的生活。</p> <p>　　在地下长大的少女，久子。</p> <p>　　从祖母得知&ldquo;学校&rdquo;的存在。</p> <p>　　学校，就是和朋友嬉戏学习，挥洒青春的地方，</p> <p>　　对于年青人而言就是地面的乐园。</p> <p>　　少女怀抱着愿望，为了一睹祖母口中所说的&ldquo;学校&rdquo;，毅然坐上了前往地面的地下列车。</p> <p>　　天真如她还未知晓，在前方等待她的，只有绝望&hellip;&hellip;</p> <p>　　以上内容就是小编为大家带来的《死亡学院 DEAD OR SCHOOL》v1.0.0金手指，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">putizi2005</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/150473/](https://lad.sfcrom.cn/2024/04/150473/)

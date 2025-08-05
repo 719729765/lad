@@ -1,0 +1,13 @@
+---
+title: "黑暗中的教堂 The Church in the Darkness PC中文版下载（v1.2）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　【PC】《黑暗中的教堂(The Church in the Darkness)》中文版下载。一款由Paranoid Productions制作发行的动作冒险游戏，该作是一款充满宗教色彩的潜行类游戏。 　　《黑暗中的教堂(The Church in the Darkness)》是由Paranoid&hellip;"
+layout: post
+---
+
+ <p>　　【PC】《黑暗中的教堂(The Church in the Darkness)》中文版下载。一款由Paranoid Productions制作发行的动作冒险游戏，该作是一款充满宗教色彩的潜行类游戏。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660382a95d4d0.webp" width="533" alt="黑暗中的教堂 The Church in the Darkness PC中文版下载（v1.2）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660382a9bbc3d.webp" width="533" alt="黑暗中的教堂 The Church in the Darkness PC中文版下载（v1.2）" /></p> <p>　　《黑暗中的教堂(The Church in the Darkness)》是由Paranoid Productions制作的一款动作冒险游戏。游戏背景比较特殊，一群教团分子不满美国当局的对待，组团迁移到了南美洲的一片丛林，在那里建立了新的城镇和社会群体。你的大侄子就是这个教团中的一员，你非常担心他，于是你准备潜入到这个神秘的小镇子，查明这个神秘的教团到底是个什么鬼，并根据你的选择决定是否将大侄子带回来。</p> <p>　　游戏背景</p> <p>　　1970年代末，充满感召力的以撒&middot;沃克和丽贝卡&middot;沃克领导着集体正义使命团。他们被美国政府标榜为极端分子并感到自己受到迫害，因此率领信徒转移到了南美的丛林，相信只有在这里才能建立起社会主义的乌托邦。于是，他们建起了自由镇。然而，信徒们在美国的家人开始担心。在丛林中的这个小镇上，究竟发生着什么?</p> <p>　　没有人是被强迫进入教团的。教团欢迎你，理解你。它拥抱你，直到领袖的言语超越了真相。你因此变得完整。</p> <p>　　游戏玩法</p> <p>　　游戏中你将扮演前警察维克。你将潜入自由镇，查看侄子亚历克斯的情况。不管是选择躲避还是对抗，你必须深入小镇，揭开它的秘密，并在局势发生变动前找到侄子。</p> <p>　　沃克夫妇究竟有多危险?为了揭开真相，拯救亚历克斯，你是否会不择手段?结局是不是本可以不同?</p> <p>　　游戏内容</p> <p>　　你将得到什么结局?你是否能将亚历克斯救出，不管他愿不愿意?你是否会面对教团领袖?你是否会加入教团?</p> <p>　　通过不同的游戏方式及选择，解开不同的结局。</p> <p>　　丰富的游戏方式：完全躲避侦测，以非致命方式打晕警卫和信徒，或者直接消灭阻拦你的人。</p> <p>　　和自由镇的信徒谈话，搜查线索。营地四处的文书和信件将揭开关于教团的更多真相。</p> <p>　　教团领袖丽贝卡&middot;沃克和以撒&middot;沃克分别由Ellen McLain(《Portal》中的GLaDOS)和John Patrick Lowrie (《军团要塞2》中的狙击手)进行全程配音。</p> <p><strong>最低配置:</strong></p> <p>　　操作系统: Windows 7 or later (32 or 64 bit)</p> <p>　　处理器: Dual Core CPU &ndash; 2GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　存储空间: 需要 2 MB 可用空间</p> <p><strong>说明：安装游戏记得全英文路径，关杀毒软件哦。</strong></p> <p>　　1. 解压缩 2. 载入镜像 3. 安装游戏 4. 复制CODEX文件夹内的未加密补丁到游戏目录中覆盖 5. 运行游戏</p> <p>　　这款游戏的质量不错，推荐大家都来体验一下。更多精彩游戏在这里等着你哦。</p> <p><h4>下载地址(由网友<font color="red">rimuruchalulu</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50299/](https://lad.sfcrom.cn/2024/03/50299/)

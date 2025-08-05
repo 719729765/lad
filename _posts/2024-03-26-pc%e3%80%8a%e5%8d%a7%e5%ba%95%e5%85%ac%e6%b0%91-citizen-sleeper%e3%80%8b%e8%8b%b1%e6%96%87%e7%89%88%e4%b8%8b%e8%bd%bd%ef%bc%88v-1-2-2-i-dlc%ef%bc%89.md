@@ -1,0 +1,13 @@
+---
+title: "PC《卧底公民 Citizen Sleeper》英文版下载（v 1.2.2-I + DLC）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《卧底公民 Citizen Sleeper》英文版下载。这是一款故事驱动的角色扮演游戏，背景是如今十分流行的赛博朋克风世界，游戏的剧情很值得品味，对这个类型游戏感兴趣的话，就来体验一下吧。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Jump Over The Age 　　游戏发行&hellip;"
+layout: post
+---
+
+ <p>　　PC《卧底公民 Citizen Sleeper》英文版下载。这是一款故事驱动的角色扮演游戏，背景是如今十分流行的赛博朋克风世界，游戏的剧情很值得品味，对这个类型游戏感兴趣的话，就来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=256296321&amp;bvid=BV17Y411A7wg&amp;cid=712902660&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660354404687c.jpg" alt="PC《卧底公民 Citizen Sleeper》英文版下载（v 1.2.2-I + DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035440b2953.jpg" alt="PC《卧底公民 Citizen Sleeper》英文版下载（v 1.2.2-I + DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660354412cbe3.jpg" alt="PC《卧底公民 Citizen Sleeper》英文版下载（v 1.2.2-I + DLC）" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Jump Over The Age</p> <p>　　游戏发行：Fellow Traveller</p> <p>　　一款角色扮演游戏，成千上万的人生活在星际资本主义的压迫下，而主角是一个被植入于人造躯体的数字化人类意识。若想生存下去，则必须在这个破败、混乱、不守规矩、却又生机勃勃的废弃空间站 Erlin&#39;s Eye 中随机应变左右逢源，和各类居民建立友好的关系。</p> <p>　　游戏介绍</p> <p>　　处于危机系统边缘的废弃车站。破败、混乱、不守规矩、生机勃勃&mdash;&mdash;它是由理想主义者在公司倒闭的阴影下创立的。现在它被无政府主义的联盟、摇摇欲坠的派系和摆脱公司控制的共同愿望维系在一起。</p> <p>　　每个周期你起床并选择如何处理你的时间。在院子里劳作，或者换个酒吧。在市场上寻找稀有成分或购买一些街头食品。建立或破坏联盟，揭开真相并逃脱那些追捕你的人。一次一个循环，学会生存并最终茁壮成长。</p> <p>　　该站接待了各行各业的人物，试图在明星中勉强生存。打捞员、工程师、黑客、调酒师、街头食品摊贩，每个人都有将他们带到这里的历史。你选择你想帮助的人，一起塑造你的未来。</p> <p>　　侵入空间站的云端，访问数十年的数字数据，发现新领域并解开秘密。这是你独一无二的力量，用它你可以改变你的未来。企业机密、流氓 AI 和大量丢失的数据等待着那些愿意潜入空间站网络深处的人。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7+</p> <p>　　处理器: Requires a 64-bit processor and operating system</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: DirectX 11 compatible GPU</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《卧底公民 Citizen Sleeper》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">IndexBox</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41166/](https://lad.sfcrom.cn/2024/03/41166/)

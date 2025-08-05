@@ -1,0 +1,13 @@
+---
+title: "PC《孤独的麦克洛尼根 Lone McLonegan : A Western Adventure》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《孤独的麦克洛尼根 Lone McLonegan : A Western Adventure》英文版下载，这是一款2D横板的冒险解谜游戏，为玩家带来的是传统的点击式玩法，游戏讲述的是西部牛仔的冒险故事。 游戏类型： 冒险解密类(AVG)游戏 游戏制作： Sonomio Games 游戏发行：&hellip;"
+layout: post
+---
+
+ <p>　　PC《孤独的麦克洛尼根 Lone McLonegan : A Western Adventure》英文版下载，这是一款2D横板的冒险解谜游戏，为玩家带来的是传统的点击式玩法，游戏讲述的是西部牛仔的冒险故事。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032074b8b62.jpg" alt="PC《孤独的麦克洛尼根 Lone McLonegan : A Western Adventure》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660320753b519.jpg" alt="PC《孤独的麦克洛尼根 Lone McLonegan : A Western Adventure》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032075d358f.jpg" alt="PC《孤独的麦克洛尼根 Lone McLonegan : A Western Adventure》英文版下载" /></td> </tr> </tbody> </table> <p><strong>游戏类型：</strong></p> <p align="center">冒险解密类(AVG)游戏</p> <p><strong>游戏制作：</strong></p> <p align="center">Sonomio Games</p> <p><strong>游戏发行：</strong></p> <p align="center">Flynn&#39;s Arcade</p> <p>　　孤独的麦克洛尼根是一款老式的点击式冒险游戏，其灵感来自于老式西部片，并带有一丝酸性幽默。帮助Lone成为 &quot;旧西部最伟大的逃犯&quot;，同时解决有趣的谜题并遇到古怪的人物。</p> <p>　　孤独的麦克洛尼根曾经是&ldquo;旧西部最受欢迎的逃犯&rdquo;，但现在他有点生疏了，而且不在状态。布拉格坏蛋，他的宿敌，现在是头号通缉犯，是西方的新偶像。</p> <p>　　当独行侠得知坏蛋的最新战绩后，他喝完莫吉托酒，跳下沙发，决定通过抢劫奥德维尔银行夺回王位，该银行拥有全县最安全的保险箱。这无疑将再次把最高的价格压在他的头上，他将最终超越坏蛋!</p> <p>　　在旅程的中途，Lone 所乘坐的驿站被 Badass 的杀手袭击，Lone 必须步行到 Oldewell，再次创造历史。</p> <p>　　游戏特色</p> <p>　　孤独的麦克洛尼根是一个点对点的冒险游戏。看，拿起和使用物体，与人物交谈和互动，踢东西，携带无数奇怪的库存物品，并以最滑稽的方式使用它们。</p> <p>　　孤独，一个强硬的人</p> <p>　　孤独是一个典型的硬汉...... 但只是在外面。在内心深处，他是软弱和怯懦的。他尽可能地避免打架，通常利用他的智慧，当然还有你的帮助来摆脱最错综复杂的局面。在《孤独的麦克洛尼根》中，你不仅仅是在这里和那里点击，解决难题，孤独也会和你交谈，讨论你的决定，并以他的个性赢得你的信任。</p> <p>　　用爱做的游戏</p> <p>　　所有的人物都是手绘的，场景保持了老式西部片的那种特殊魅力。我们加入了会让你笑出声来的流行文化参考资料和有趣的不合时宜之处，使《孤独的麦克洛尼根》成为一个具有巨大个性的独特游戏，不会让你无动于衷。</p> <p>　　帮助 Lone 成为 &quot;旧西部最受欢迎的逃犯&quot;!</p> <p>　　最低配置:</p> <p>　　操作系统: Microsoft Windows 8, 10</p> <p>　　处理器: 1.5 GHz Core2Duo</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　操作系统: Microsoft Windows 8, 10</p> <p>　　处理器: Intel Core i3</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《孤独的麦克洛尼根 Lone McLonegan : A Western Adventure》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">dafeix</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/38746/](https://lad.sfcrom.cn/2024/03/38746/)

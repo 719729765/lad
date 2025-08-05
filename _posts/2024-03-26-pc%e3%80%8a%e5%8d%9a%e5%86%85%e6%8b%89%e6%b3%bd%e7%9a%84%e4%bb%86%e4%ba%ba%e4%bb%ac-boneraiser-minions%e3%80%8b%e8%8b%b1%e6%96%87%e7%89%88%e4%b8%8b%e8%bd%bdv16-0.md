@@ -1,0 +1,13 @@
+---
+title: "PC《博内拉泽的仆人们 Boneraiser Minions》英文版下载v16.0"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《博内拉泽的仆人们 Boneraiser Minions》英文版下载，这是一款动作冒险游戏，像素画风，玩法类似吸血鬼幸存者，玩家要应对的是不停涌过来的敌人，感兴趣的玩家不要错过。 　　作为一名受人唾骂的博内莱塞人，你必须集结一支由骷髅和执事组成的军队，与无穷无尽的英雄们战斗，以结束你的亡灵之&hellip;"
+layout: post
+---
+
+ <p>　　PC《博内拉泽的仆人们 Boneraiser Minions》英文版下载，这是一款动作冒险游戏，像素画风，玩法类似吸血鬼幸存者，玩家要应对的是不停涌过来的敌人，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=215109865&amp;bvid=BV1Qa411s7kS&amp;cid=747864923&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034af86ea2b.jpg" alt="PC《博内拉泽的仆人们 Boneraiser Minions》英文版下载v16.0" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034af8e72c6.jpg" alt="PC《博内拉泽的仆人们 Boneraiser Minions》英文版下载v16.0" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034af9ecc0d.jpg" alt="PC《博内拉泽的仆人们 Boneraiser Minions》英文版下载v16.0" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034afa6b50f.jpg" alt="PC《博内拉泽的仆人们 Boneraiser Minions》英文版下载v16.0" /></td> </tr> </tbody> </table> <p>　　作为一名受人唾骂的博内莱塞人，你必须集结一支由骷髅和执事组成的军队，与无穷无尽的英雄们战斗，以结束你的亡灵之路。在这部哥特式恐怖自动战斗机器人roguelite中，使用被杀英雄的骨骼和灵魂来提升亡灵仆从，并收集强大的遗物和法术来扭转战争的潮流。解锁元升级以提高你的骨化能力，但至关重要的是，你还必须支持神圣英雄的力量，以收集足够的资源来击败你的敌人吉戈尔德国王的十字军东征!</p> <p>　　游戏特色</p> <p>　　骨化自动战斗者行动：冲向周围，躲避敌人，收集他们的骨头，以提高和升级为你战斗的仆从!每种仆从类型都有自己的战斗风格，从近战粉碎机到炸弹发射器和魔法导弹发射器。</p> <p>　　多种游戏模式：有几种游戏模式可以保持游戏新鲜。从《觉醒陵墓》开始，你必须保护你的墓穴免受吉戈尔德国王及其军队的攻击，充分利用你在演出前放置的陷阱和装置。这里有无休止的小冲突，目的只是看看你能在不断增长的卑鄙部落面前坚持多久。然后是碰撞牌，一款可收藏的对抗性纸牌游戏，从无休止的拼凑中得到一点喘息!</p> <p>　　遗迹和咒语：在战斗中，不仅仅是骨头可以吮吸。你会发现奇怪的文物，有奇怪的提升和能力，或者有强大攻击或增益的魔法卷轴，可以在完美的时间使用!</p> <p>　　博纳瑞斯传说元：在游戏之间，使用收集到的硬币来提高你的能力和博纳瑞兹能力，例如学习如何提升博恩瑞斯巨人和被附身的迪蒙。元也可以升级和退款，鼓励您四处玩，找到您的完美元加载!</p> <p>　　英雄原力元：如果你想活过吉戈尔德国王，你也必须加强对抗你的力量。为什么不激起一个乞丐的反抗，地精抢劫者，或雇佣独眼巨人，并用他们的骨头来建立一支更强大的死亡大军!</p> <p>　　职业传承元：通过盗取英雄的灵魂，你还可以学习特定职业的新技能和特长。每个班级都有自己的游戏风格!</p> <p>　　最低配置:</p> <p>　　操作系统: Microsoft Windows 10</p> <p>　　处理器: 1.4 GHz</p> <p>　　内存: 512 MB RAM</p> <p>　　显卡: 512 MB RAM</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 100 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《博内拉泽的仆人们 Boneraiser Minions》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">温涟</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40565/](https://lad.sfcrom.cn/2024/03/40565/)

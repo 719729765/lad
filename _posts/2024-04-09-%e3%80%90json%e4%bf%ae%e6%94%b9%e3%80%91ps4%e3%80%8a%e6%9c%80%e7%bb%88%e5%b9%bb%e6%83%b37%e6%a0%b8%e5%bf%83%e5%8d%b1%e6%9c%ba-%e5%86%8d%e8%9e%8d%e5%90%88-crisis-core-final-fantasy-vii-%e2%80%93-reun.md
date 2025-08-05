@@ -1,0 +1,13 @@
+---
+title: "【JSON修改】PS4《最终幻想7:核心危机 再融合 Crisis Core: Final Fantasy VII – Reunion》中文版pkg下载【含v1.04版本+JSON金手指】"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "　　【5.05】PS4《最终幻想7:核心危机 再融合 Crisis Core: Final Fantasy VII &ndash; Reunion》中文版pkg下载v1.03!万众期待的最终幻想7:核心危机 再融合终于发售了!无论在画面，剧情还是可玩性都很不错!喜欢的话千万不要错过! 　　使用方法：&hellip;"
+layout: post
+---
+
+ <p>　　【5.05】PS4《最终幻想7:核心危机 再融合 Crisis Core: Final Fantasy VII &ndash; Reunion》中文版pkg下载v1.03!万众期待的最终幻想7:核心危机 再融合终于发售了!无论在画面，剧情还是可玩性都很不错!喜欢的话千万不要错过!</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614e99391f76.webp" width="700" alt="【JSON修改】PS4《最终幻想7:核心危机 再融合 Crisis Core: Final Fantasy VII – Reunion》中文版pkg下载【含v1.04版本+JSON金手指】" /></p></div> <p>　　使用方法：</p> <p>　　1、确保 PS4 为 5.05 以上破解，并确保为 GoldHEN 2.2 及以上版本，推荐：http://karo218.ir或https://wrozen.com</p> <p>　　2、依次安装：&ldquo;V1.04 整合版 5.05 降级&rdquo; --&gt; &ldquo;V1.04 修改补丁 5.05 降级 (CHEAT-JSONBASE.pkg)&rdquo; --&gt; &ldquo;1 DLC (可选)&rdquo;</p> <p>　　3、使用 FTP 或文件管理器 (PS4-Xplorer) 将 CUSA37321_01.12.json 文件导入到机器内置 /user/data/GoldHEN/cheats/json 目录里</p> <p>　　4、运行游戏，长按 SHARE 键呼出 GoldHEN Cheat Menu，根据喜好勾选修改项</p> <p>　　5、若要还原原版效果，安装 &ldquo;V1.04 还原补丁 5.05 降级&rdquo; 即可</p> <p>　　6、使用修改前建议事先备份重要进度存档，相关软件可论坛搜索 Save Mounter 或 Apollo</p> <p>　　注意：个人只有 5.05 系统环境并测试有效，6.72 以上自行测试，基本 95% 以上都是 OK 的</p> <p>　　修改效果：</p> <p>　　Invincible Mode | 无敌模式</p> <p>　　Infinite HP in Combat | 战斗中无限 HP</p> <p>　　Infinite MP in Combat | 战斗中无限 MP</p> <p>　　Infinite AP in Combat | 战斗中无限 AP</p> <p>　　SP 99999999 in Combat | 战斗中 SP 99999999</p> <p>　　One Hit Kill | 一击必杀</p> <p>　　Infinite Items Use | 道具使用不减</p> <p>　　D.M.W EMOTIONmax| D.M.W 情绪最大化</p> <p>　　D.M.W Limit HEAVENLY | D.M.W 极限计量表最高等级</p> <p>　　Max Buster Sword Proficiency | 毁灭剑熟练度最大</p> <p>　　Unlock Materia Fusion | 开启魔晶石合成</p> <p>　　Unlock 6 Materia Slots | 可装备 6 个魔晶石</p> <p>　　Materia Level 5 | 魔晶石等级最高</p> <p>　　Materia Value + 999 | 魔晶石附加值 + 999</p> <p>　　EXP Multi 100 on Gain | 经验值 100 倍获得</p> <p>　　EXP Max on Gain | 经验值获得后最大</p> <p>　　Gil 99,999,999 | 金钱 99,999,999</p> <p>　　Reset Play Time | 重置游戏时间</p> <p>　　Unlock D.M.W Characters | 解锁 D.M.W 人物</p> <p>　　Unlock All Missions | 解锁全部任务</p> <p>　　Complete All Missions | 完成全部任务</p> <p><h4>下载地址(由网友<font color="red">z644204137</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139306/](https://lad.sfcrom.cn/2024/04/139306/)

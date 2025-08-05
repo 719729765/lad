@@ -1,0 +1,13 @@
+---
+title: "3DS《世嘉3D档案集 Sega 3D Classics Collection》欧版3ds下载"
+date: 2024-03-29
+tags: []
+categories: ["3DS英日游戏"]
+excerpt: "　　3DS《世嘉3D档案集 Sega 3D Classics Collection》欧版3ds下载，《世嘉3D复刻档案集》是由M2制作SEGA发行的一款游戏合集，《世嘉3D复刻档案集》是SEGA公司将旗下的6款经典名作3D化复刻登陆3DS平台，然后推出一款全新的3DS游戏。 　　本作中包含了世嘉以前&hellip;"
+layout: post
+---
+
+ <p>　　3DS《世嘉3D档案集 Sega 3D Classics Collection》欧版3ds下载，《世嘉3D复刻档案集》是由M2制作SEGA发行的一款游戏合集，《世嘉3D复刻档案集》是SEGA公司将旗下的6款经典名作3D化复刻登陆3DS平台，然后推出一款全新的3DS游戏。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660630eec750d.png" width="598" alt="3DS《世嘉3D档案集 Sega 3D Classics Collection》欧版3ds下载" /></p> <p>　　本作中包含了世嘉以前在MD和街机上推出的六款经典作品，它们的名字分别为《超级太空哈利》、《OUT RUN》、《幻想领域》、《超级忍2》、《怒之铁拳》、《海豚历险记》。</p> <p>　　之前曾做为怀旧游戏推出的《超级太空哈利3D》和未发售的《OUT RUN 3D》也将做为隐藏要素收录于本作之中。再加上在网店预约时赠送的怀旧味满满的《超级太空哈利》与《幻想领域》的街机版设计资料夹，可以说本作就是一份满足了怀旧派玩家的收藏欲的大餐。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660630efc7e0e.png" width="596" alt="3DS《世嘉3D档案集 Sega 3D Classics Collection》欧版3ds下载" /></p> <p><h4>下载地址(由网友<font color="red">15755351857</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/74166/](https://lad.sfcrom.cn/2024/03/74166/)

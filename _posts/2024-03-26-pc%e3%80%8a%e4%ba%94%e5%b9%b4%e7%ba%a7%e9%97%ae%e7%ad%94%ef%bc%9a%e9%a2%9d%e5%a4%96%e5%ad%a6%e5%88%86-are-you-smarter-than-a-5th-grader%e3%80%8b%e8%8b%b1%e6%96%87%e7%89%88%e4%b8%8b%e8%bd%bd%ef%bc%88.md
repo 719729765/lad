@@ -1,0 +1,13 @@
+---
+title: "PC《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版下载（含DLC）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版下载，这是根据一个电视综艺节目改编的益智答题类型的游戏，题目涵盖了各个领域，感兴趣的玩家可以关注一下。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Massive Miniteam 　&hellip;"
+layout: post
+---
+
+ <p>　　PC《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版下载，这是根据一个电视综艺节目改编的益智答题类型的游戏，题目涵盖了各个领域，感兴趣的玩家可以关注一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=514847201&amp;bvid=BV1dg411r7xs&amp;cid=812304055&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034c9d4ada2.jpg" alt="PC《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版下载（含DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034c9f9c0e5.jpg" alt="PC《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版下载（含DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034ca01360b.jpg" alt="PC《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版下载（含DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034ca1068e4.jpg" alt="PC《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版下载（含DLC）" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Massive Miniteam</p> <p>　　游戏发行：HandyGames</p> <p>　　《Are You Smarter Than A 5th Grader?》是一款基于流行电视特许系列的引人入胜的幽默问答游戏。多项选择题、真假判断题和小游戏将测试您对 24 个不同科目的熟练程度。面对一个棘手的问题，您总是可以依靠您的同学获得帮助。</p> <p>　　超过 6800 个关于动物科学、词汇、数学等主题的问题由多样化、完整配音的动画角色提供。在激动人心的聚会多人游戏中单独或与家人和朋友一起完成每个挑战，以证明您实际上比五年级学生更聪明!</p> <p>　　特点</p> <p>　　1-8 人聚会问答游戏</p> <p>　　24 个不同主题的 6800 多道独特问题</p> <p>　　表演秀般的体验</p> <p>　　全英语配音的版主和同学</p> <p>　　精美呈现的 3D 工作室</p> <p>　　长期参与</p> <p>　　可解锁的化妆品</p> <p>　　可定制玩家桌面和摇头娃娃</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10 64bit</p> <p>　　处理器: Intel Core i5 / AMD FX-6300</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: GTX 760 2GB/ Radeon R9 270X 2GB or better</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《五年级问答：额外学分 Are You Smarter Than A 5th Grader》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">wwx3220770</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41363/](https://lad.sfcrom.cn/2024/03/41363/)

@@ -1,0 +1,13 @@
+---
+title: "switch《魔女之泉3 Re:Fine WitchSpring3 [Re:Fine] 》中文版2DLC修啊在"
+date: 2024-04-09
+tags: []
+categories: ["最新DLC"]
+excerpt: "　　switch《魔女之泉3 Re:Fine 玩偶小魔女艾露迪的故事 WitchSpring3 [Re:Fine] 》中文版下载，下面为介绍的是角色扮演游戏魔女之泉系列的一部作品，喜欢的玩家不要错过。 　　通往抉择的一次邂逅与故事── 　　魔女「艾露迪」为了逃避狩猎魔女行动，独自隐居在雾之森林当中。&hellip;"
+layout: post
+---
+
+ <p>　　switch《魔女之泉3 Re:Fine 玩偶小魔女艾露迪的故事 WitchSpring3 [Re:Fine] 》中文版下载，下面为介绍的是角色扮演游戏魔女之泉系列的一部作品，喜欢的玩家不要错过。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=330385520&amp;bvid=BV1bA411x787&amp;cid=262043077&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-25/158bfd7ef35d51570e60230853ad27c4.jpg" alt="switch《魔女之泉3 Re:Fine WitchSpring3 [Re:Fine] 》中文版2DLC修啊在" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-25/79ad251a271a8ac12e5f8b7539c63524.jpg" alt="switch《魔女之泉3 Re:Fine WitchSpring3 [Re:Fine] 》中文版2DLC修啊在" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-25/196921e58da92d973913f9ab9e1e78cb.jpg" alt="switch《魔女之泉3 Re:Fine WitchSpring3 [Re:Fine] 》中文版2DLC修啊在" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-25/3b24e3aec0c64e1c02c35081763b0935.jpg" alt="switch《魔女之泉3 Re:Fine WitchSpring3 [Re:Fine] 》中文版2DLC修啊在" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-25/99b4e64414fcfd44d92c3cf39101b3eb.jpg" alt="switch《魔女之泉3 Re:Fine WitchSpring3 [Re:Fine] 》中文版2DLC修啊在" /></td> </tr> </tbody> </table> <p>　　通往抉择的一次邂逅与故事──</p> <p>　　魔女「艾露迪」为了逃避狩猎魔女行动，独自隐居在雾之森林当中。对这位孤独的魔女而言，只有不会说话的玩偶是她的朋友。然而，以遇见青年冒险家艾德里安为契机，终究使她被捲入了左右许多人未来的命运。</p> <p>　　■玩家只需操作主角「艾露迪」</p> <p>　　由于只需操作主角艾露迪，可以专心体验故事情节。</p> <p>　　■无须战斗的成长系统</p> <p>　　角色不是透过战斗，而是透过锻鍊、研究和道具来成长，就算是不喜欢反覆战斗的玩家也能享受本作乐趣。</p> <p>　　■好上手的回合制战斗</p> <p>　　战斗并非即时进行，可以好整以暇地思考该在剑术、魔法、玩偶、道具等多样化行动中做出何种选择。</p> <p>　　■可靠的伙伴「玩偶」</p> <p>　　艾露迪能够赋予玩偶生命并加以召唤。被召唤而来的玩偶将可在原野上或战斗时等各种场合提供支援。</p> <p>　　■从本作开始玩也不必担心会衔接不上剧情!</p> <p>　　和过去系列作相比，主要登场角色阵容大幅翻新，可以抱持轻鬆的心情从本作开始游玩。</p> <p>　　■魔女之泉系列是怎麽样的作品?</p> <p>　　自2015年起持续以智慧型手机应用程式的形式推出的RPG作品。本系列以被称为魔女而备受恐惧的神族少女为主角，是以魔女育成为卖点的PRG系列作。每款作品的主角都不相同，让玩家可以无须在意顺序，直接选择喜欢的作品开始游玩。</p> <p>&nbsp; &nbsp; &nbsp;&nbsp;以上内容就是小编为大家带来的《魔女之泉3 Re:Fine》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">xjya</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/142529/](https://lad.sfcrom.cn/2024/04/142529/)

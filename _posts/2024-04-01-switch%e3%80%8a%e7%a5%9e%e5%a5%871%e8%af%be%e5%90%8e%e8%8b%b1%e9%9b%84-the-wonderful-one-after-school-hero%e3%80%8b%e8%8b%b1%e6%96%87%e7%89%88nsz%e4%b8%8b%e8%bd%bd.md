@@ -1,0 +1,13 @@
+---
+title: "switch《神奇1课后英雄 The Wonderful One: After School Hero》英文版nsz下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《神奇1课后英雄 The Wonderful One: After School Hero》英文版nsz下载!新手英雄 Luka 开始放学后的绝密VR任务! 爽快的横版激光射击动作游戏 ※未拥有《The Wonderful 101: Remastered》的玩家也可以游玩本商品。 　&hellip;"
+layout: post
+---
+
+ <p>　　switch《神奇1课后英雄 The Wonderful One: After School Hero》英文版nsz下载!新手英雄 Luka 开始放学后的绝密VR任务! 爽快的横版激光射击动作游戏 ※未拥有《The Wonderful 101: Remastered》的玩家也可以游玩本商品。</p> <p>　　关于这款游戏</p> <p>　　新手英雄 Luka 开始放学后的绝密VR任务! 爽快的横版激光射击动作游戏</p> <p>　　※此商品的内容与免费提供给购买《The Wonderful 101: Remastered》的玩家的追加内容《The Wonderful One: After School Hero》(Part 1/Part2)相同。注意请勿重复购买。</p> <div> <p align="center">&nbsp;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a50905aa1d.webp" width="700" alt="switch《神奇1课后英雄 The Wonderful One: After School Hero》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a5090c1b6c.webp" width="700" alt="switch《神奇1课后英雄 The Wonderful One: After School Hero》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a5091487b2.webp" width="700" alt="switch《神奇1课后英雄 The Wonderful One: After School Hero》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a5091c2665.webp" width="700" alt="switch《神奇1课后英雄 The Wonderful One: After School Hero》英文版nsz下载" /></p></div> <p>　　※未拥有《The Wonderful 101: Remastered》的玩家也可以游玩本商品。</p> <p>　　少年Luka立志成为守护地球的秘密组织&ldquo;哨兵团(CENTINELS)&rdquo;的英雄Wonderful 100的一员。</p> <p>　　为了尽早成为能够独当一面的正式队员，今天，他也要在放学后参加哨兵团(CENTINELS)的秘密训练。</p> <p>　　这是一位少年成长为英雄的成长故事，故事里有恋情，也有战斗。</p> <p>　　■爽快破敌的横版射击动作游戏</p> <p>　　在正统横版射击动作游戏中融入白金工作室独具匠心的元素。</p> <p>　　连射激光，接连解决拦路的敌人，享受爽快的射击动作游戏!</p> <p>　　■享受直觉操作的激光射击动作</p> <p>　　使用Luka的专用武器&ldquo;尖刺之眼(Stingy Eye)&rdquo;，从头上的护目镜射出激光，突破重重难关!</p> <p>　　享受简单直观的操作，朝右侧摇杆所指的方向发射激光，指哪打哪，360&deg;无死角。</p> <p>　　视情况切换普通激光、扩散激光、反射激光这三种类型的攻击方式，攻克难关吧!</p> <p>　　■吸引人反复挑战的游戏模式</p> <p>　　可选模式有三种!!有讲述Luka成长成&ldquo;神奇护目镜(Wonder Goggles)&rdquo;的故事的&ldquo;街机模式(Arcade Mode)&rdquo;，</p> <p>　　可以选择任意训练(关卡)的&ldquo;挑战模式(Challenge Mode)&rdquo;，</p> <p>　　另外在通关&ldquo;街机模式(Arcade Mode)&rdquo;后，还将增加&ldquo;竞分模式(Caravan Mode)&rdquo;，在该模式中将比拼在关卡前5分钟内的得分!</p> <p>　　可以挑战各训练的专用任务，有时还能发现秘密通道!?反复游玩，探索每一个角落吧!</p> <p>　　将自己引以为傲的得分上传至在线排行榜!和全世界的玩家比拼最高得分吧!</p> <p><h4>下载地址(由网友<font color="red">shuaige</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/107932/](https://lad.sfcrom.cn/2024/04/107932/)

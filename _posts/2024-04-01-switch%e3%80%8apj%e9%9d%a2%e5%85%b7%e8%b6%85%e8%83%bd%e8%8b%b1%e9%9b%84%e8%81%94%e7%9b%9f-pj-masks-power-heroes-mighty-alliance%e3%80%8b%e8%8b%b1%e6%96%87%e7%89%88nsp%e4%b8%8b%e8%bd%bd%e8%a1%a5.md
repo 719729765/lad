@@ -1,0 +1,13 @@
+---
+title: "switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁!使用独特的能力、收集宝石、发现秘密、解锁隐藏的面具等等。 　　与 Power Heroes 组队并重建 PJ Power 总部。 　　猫仔、猫头鹰和壁虎正在与&hellip;"
+layout: post
+---
+
+ <p>　　switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁!使用独特的能力、收集宝石、发现秘密、解锁隐藏的面具等等。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=1551216168&amp;bvid=BV1Ky421B7Rc&amp;cid=1450975200&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a418d9beab.webp" width="700" alt="switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a418e026a7.webp" width="700" alt="switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a418e58d5b.webp" width="700" alt="switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a418eb03f0.webp" width="700" alt="switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a418f11942.webp" width="700" alt="switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a418f80be8.webp" width="700" alt="switch《PJ面具超能英雄联盟 PJ Masks Power Heroes: Mighty Alliance》英文版nsp下载+补丁" /></p></div> <p>　　与 Power Heroes 组队并重建 PJ Power 总部。</p> <p>　　猫仔、猫头鹰和壁虎正在与安宇、牛顿星、冰崽、莉莉菲和巴斯特联手组成强大的联盟。</p> <p>　　在 PJ 发生重大事故后，Power Q 将技术和宝石散布在地球上，这些 Power Heroes 必须重建它。</p> <p>　　跳进爆炸骑士，在城市、神秘山和冰雪世界寻找丢失的零件。但要快点!在罗密欧、月神少女和暗夜忍者到达他们之前。</p> <p>　　这些普通的孩子在一起，变得更大更好。使用他们独特的能力来战斗、发现秘密等等。</p> <p>　　要知道，晚上是打击犯罪的好时机!</p> <p>　　组队 - 加入猫仔、猫头鹰、壁虎、安宇、牛顿之星、冰崽、莉莉菲和巴斯特。</p> <p>　　驾驶和发现 - 陆地、天空或海洋，爆炸骑士会让你的 Power Heroes 到达那里。</p> <p>　　非凡 &ndash; 使用独特的能力、收集宝石、发现秘密、解锁隐藏的面具等等。</p> <p>　　每个英雄的乐趣 - 可访问的功能：简单的控制和轻松的交互。</p> <p><h4>下载地址(由网友<font color="red">houqindui001</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109571/](https://lad.sfcrom.cn/2024/04/109571/)

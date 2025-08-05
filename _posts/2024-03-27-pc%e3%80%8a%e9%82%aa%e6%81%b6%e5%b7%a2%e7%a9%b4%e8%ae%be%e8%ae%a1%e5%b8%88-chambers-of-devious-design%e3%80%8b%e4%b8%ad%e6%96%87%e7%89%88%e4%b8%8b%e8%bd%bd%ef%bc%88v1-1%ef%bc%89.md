@@ -1,0 +1,13 @@
+---
+title: "PC《邪恶巢穴设计师 Chambers of Devious Design》中文版下载（v1.1）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《邪恶巢穴设计师 Chambers of Devious Design》中文版下载，这是一款有趣的策略游戏，主角是一名反派，你的任务是建造一个充满陷阱的邪恶的巢穴，喜欢策略游戏的玩家不要错过。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：Redbeak Games 　　游戏发行：Red&hellip;"
+layout: post
+---
+
+ <p>　　PC《邪恶巢穴设计师 Chambers of Devious Design》中文版下载，这是一款有趣的策略游戏，主角是一名反派，你的任务是建造一个充满陷阱的邪恶的巢穴，喜欢策略游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=508506719&amp;bvid=BV1Ku41127iz&amp;cid=495289294&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e7b7377a.jpg" alt="PC《邪恶巢穴设计师 Chambers of Devious Design》中文版下载（v1.1）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e7bdc1d3.jpg" alt="PC《邪恶巢穴设计师 Chambers of Devious Design》中文版下载（v1.1）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e7c45e5e.jpg" alt="PC《邪恶巢穴设计师 Chambers of Devious Design》中文版下载（v1.1）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039e7cb97a1.jpg" alt="PC《邪恶巢穴设计师 Chambers of Devious Design》中文版下载（v1.1）" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Redbeak Games</p> <p>　　游戏发行：Redbeak Games</p> <p>　　《邪恶巢穴设计师》是一款充满战术性的基地建设类游戏，你被指派为一位邪恶首脑建造一座邪恶巢穴，但是要小心!并不是只有你一个人在试图夺得老大的青睐，想出充满创意的设计、给你的竞争者们下套吧!</p> <p>　　游戏介绍</p> <p>　　给竞争对手搞破坏</p> <p>　　谁让你的对手在离你这么近的地方建造基地&hellip;&hellip;你为什么不在他们的主控制室旁边放一个装满炸药的房间，给他们一个教训!或者，你可以在他们身上放一门大炮吗?</p> <p>　　&ldquo;不不不!这设计太离谱了，我们需要一个狗窝!你说的&lsquo;为什么&rsquo;是什么意思?因为我们是邪恶的反派，白痴!&rdquo;</p> <p>　　房间位置非常重要</p> <p>　　每种房间类型都有独特的效果，如果相邻房间是支撑类型，这种效果会得到增强。尝试提出最佳设计，以最大限度地发挥每个房间的潜力!</p> <p>　　好的，BOSS，如今所愿!</p> <p>　　邪恶之首对自己想要什么有着清晰的认识&hellip;&hellip;通常情况下，这与他5分钟前想要的完全相反。如果你的老板想要在他的卧室旁边有一个蛇坑，你最好马上去做。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows XP/Vista/7/8/8.1/10</p> <p>　　处理器: 1 GHz</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: 256mb Video Memory, capable of OpenGL 2.0+ support</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《邪恶巢穴设计师 Chambers of Devious Design》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">斌双全</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53734/](https://lad.sfcrom.cn/2024/03/53734/)

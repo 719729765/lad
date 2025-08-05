@@ -1,0 +1,13 @@
+---
+title: "PC《深海远航 From the Depths》中文版下载v3.7.3"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《深海远航 From the Depths》中文版下载v3.6.4，这是一款海战主题的策略游戏，玩家在游戏中可以利用游戏中的系统自己设计和建造战舰，玩家可以尽情的发挥自己的创造力，赶快来体验一下吧。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：Brilliant Skies Ltd. 　　&hellip;"
+layout: post
+---
+
+ <p>PC《深海远航 From the Depths》中文版下载v3.6.4，这是一款海战主题的策略游戏，玩家在游戏中可以利用游戏中的系统自己设计和建造战舰，玩家可以尽情的发挥自己的创造力，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=64618198&amp;bvid=BV1P4411d7dD&amp;cid=112178446&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a7e367c23.webp" alt="PC《深海远航 From the Depths》中文版下载v3.7.3" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a7e40372a.webp" alt="PC《深海远航 From the Depths》中文版下载v3.7.3" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a7e46a089.webp" alt="PC《深海远航 From the Depths》中文版下载v3.7.3" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Brilliant Skies Ltd.</p> <p>　　游戏发行：Brilliant Skies Ltd.</p> <p>　　《深海远航》是一款Brilliant Skies Ltd.制作发行的一款自由度很高的海战题材策略游戏，玩家们可以设计并操纵自己的舰船与飞机与敌人战斗，喜欢海战的玩家不妨一试。</p> <p>　　游戏特色</p> <p>　　发挥您的想象力，设计并建设舰队，堡垒和其他建筑物。游戏中有1000多种独特的组件块可供使用。此外，还有用于制造导弹、鱼雷、深水炸药和炸弹的38中不同组件和用于制造终极炮弹的34种特殊组件!</p> <p>　　苍穹无极限。您可以用大炮、激光、地雷、炸弹、导弹、鱼雷、螺旋桨、舵、喷气发动机、机翼、水翼艇、热气球、锚、蓝图生成器、维修机器人、气泵、自动控制块以及其他多种装备来武装您的载具。</p> <p>　　物理特效 -添加组件，或组件被毁都会影响载具的性能、物理特性及操控性。阻力、惯性张量、浮力和密封舱室都会因为您的载具的设计和所受伤害随时发生变化。</p> <p>　　打造最棒的社区。和玩家竞赛，分享设计图。让茫茫星空变成每个玩家温馨的家园。</p> <p>　　您可以在各种单机和联机模式 (征战，合作征战，任务，冒险)中使用您的设计。</p> <p>　　使用星球编辑器设计您自己的星球/征战/任务/联机游戏地图，或使用功能强大的MOD界面轻松添加您自制的MOD。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows7</p> <p>　　处理器: Intel Core2 Duo 2.0 GHz (or AMD equivalent)</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: NVIDIA GeForce 8800GT / ATI Radeon HD 3870 / Intel HD Graphics 4000</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　声卡: DirectX&reg; compatible on-board</p> <p>　　附注事项: Steam connection required to play the game</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《深海远航 From the Depths》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">qq8110822181</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53542/](https://lad.sfcrom.cn/2024/03/53542/)

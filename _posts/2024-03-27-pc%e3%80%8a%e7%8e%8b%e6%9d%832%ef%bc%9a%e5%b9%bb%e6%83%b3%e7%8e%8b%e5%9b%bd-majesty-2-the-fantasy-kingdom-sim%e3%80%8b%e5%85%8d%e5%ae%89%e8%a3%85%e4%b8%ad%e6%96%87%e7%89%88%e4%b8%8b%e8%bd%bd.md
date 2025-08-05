@@ -1,0 +1,13 @@
+---
+title: "PC《王权2：幻想王国 Majesty 2: The Fantasy Kingdom Sim》免安装中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《王权2：幻想王国 Majesty 2: The Fantasy Kingdom Sim》免安装中文版下载，这是一款模拟经营类游戏，玩家要在以中世界为原型的幻想世界中建立自己的王国，赶快来体验一下吧。 　　类型:模拟,策略 　　开发商:1C:InoCo 　　发行商:Paradox Inter&hellip;"
+layout: post
+---
+
+ <p>　　PC《王权2：幻想王国 Majesty 2: The Fantasy Kingdom Sim》免安装中文版下载，这是一款模拟经营类游戏，玩家要在以中世界为原型的幻想世界中建立自己的王国，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=845978928&amp;bvid=BV1954y137o2&amp;cid=348928025&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603930a06822.jpg" alt="PC《王权2：幻想王国 Majesty 2: The Fantasy Kingdom Sim》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603930a76246.jpg" alt="PC《王权2：幻想王国 Majesty 2: The Fantasy Kingdom Sim》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603930af0064.jpg" alt="PC《王权2：幻想王国 Majesty 2: The Fantasy Kingdom Sim》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603930b778fa.jpg" alt="PC《王权2：幻想王国 Majesty 2: The Fantasy Kingdom Sim》免安装中文版下载" /></td> </tr> </tbody> </table> <p>　　类型:模拟,策略</p> <p>　　开发商:1C:InoCo</p> <p>　　发行商:Paradox Interactive</p> <p>　　以中世界魔幻世界为游戏背景的战略类游戏，玩家将会在游戏扮演一个国家的主人，你可以下令去修建各种建筑，但是需要去地狱各种怪物的袭击以及市民纳税等问题，逐渐的让自己的城堡成为大城市并向大都市发展。</p> <p>　　王权2幻想王国游戏中的每一个任务都会有一个属于关卡的巨大地图，而且都可以选择新手、高手或专家三种级别的难度方便了一些新手的玩家们，游戏除了那些特殊的隐藏任务以外，所有的任务可以按玩家自己喜欢的任意顺序进行完成。游戏中内置总共有19个任务，而每个任务相互之间只有很小的差别。</p> <p>　　游戏性既新奇又独特，这一因素也使得游戏的整体水平提升到了一个新的高度。它与其他即时战略游戏最大的区别在于其操作方式，在以往的游戏中玩家可以随意控制自己所有的作战单位，但是在这个游戏中你必须命令你的英雄去完成任务。看上去似乎剥夺了玩家的自由性，提高了游戏难度，其实设计者的意图恰恰是要减轻玩家的负担。玩家只需考虑战略部署，具体的战斗都交由超强的电脑人工智能去处理。因为操控方式变得简单了，游戏性就增强了，当然一开始在操作方面可能不太适应，但你很快就会发现其中的妙处。</p> <p>　　控制英雄的方法不止一种，只要你指定了目标，你的英雄自然会用适当的方式去&ldquo;解决&rdquo;。有时候你会发现仅仅是自己的一个念头，还没有发出指令，你的英雄就会领会你的意图，不仅让人怀疑它们时候通了灵性。说是英雄，其实也挺没有义气的，因为能够调动其积极性的往往是金钱。在你想要攻击的目标附近插上一面旗帜，然后撒下一些金币，那些英雄就会被吸引过来。久而久之，英雄就如同被驯服的动物一般去重复做同样的事，而它们的动力就是每个人都喜爱的金钱。切记，英雄也是讲价钱的，如果要他去和一个长着50条腿的石头怪物面对面肉搏的话，你得付出更多的代价。</p> <p><h4>下载地址(由网友<font color="red">v326665906v</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51561/](https://lad.sfcrom.cn/2024/03/51561/)

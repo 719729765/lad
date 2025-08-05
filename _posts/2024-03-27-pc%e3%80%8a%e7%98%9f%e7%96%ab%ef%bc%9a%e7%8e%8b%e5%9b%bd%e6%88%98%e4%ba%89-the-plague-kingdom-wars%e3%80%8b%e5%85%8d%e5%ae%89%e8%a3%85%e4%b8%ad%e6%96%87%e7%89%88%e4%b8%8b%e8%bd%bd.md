@@ -1,0 +1,13 @@
+---
+title: "PC《瘟疫：王国战争 The Plague: Kingdom Wars》免安装中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《瘟疫：王国战争 The Plague: Kingdom Wars》免安装中文版下载，这是一款以策略为重点的即时战略类游戏，以欧洲的中世纪为背景，玩家要带领自己的臣民扛过战争和瘟疫的威胁。 　　游戏发生在1347年的黑死病瘟疫和百年战争时期。在200个小领主与君主之中，选择一个角色进行游戏。&hellip;"
+layout: post
+---
+
+ <p>　　PC《瘟疫：王国战争 The Plague: Kingdom Wars》免安装中文版下载，这是一款以策略为重点的即时战略类游戏，以欧洲的中世纪为背景，玩家要带领自己的臣民扛过战争和瘟疫的威胁。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=289605529&amp;bvid=BV1uf4y1t7hg&amp;cid=310039629&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391eeed832.jpg" alt="PC《瘟疫：王国战争 The Plague: Kingdom Wars》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391ef7784c.jpg" alt="PC《瘟疫：王国战争 The Plague: Kingdom Wars》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391f00542f.jpg" alt="PC《瘟疫：王国战争 The Plague: Kingdom Wars》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391f0818aa.jpg" alt="PC《瘟疫：王国战争 The Plague: Kingdom Wars》免安装中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏发生在1347年的黑死病瘟疫和百年战争时期。在200个小领主与君主之中，选择一个角色进行游戏。你可以成为奥斯曼宫廷中的小贵族、爱尔兰的伯爵，亦或是拜占庭的皇帝。通过战斗来维护你的帝国，防止黑死病在欧洲蔓延，然后改写历史。</p> <p>　　你肩负着领导的重任，子民的安全都掌握在你的手中。使用外交或军事力量，迅速行动。切勿犹豫，否则后果严重。历史已经向我们证明，即使我们现在正面临着危险，在重大危机时期，正确的领导至关重要。</p> <p>　　游戏特色</p> <p>　　建立帝国</p> <p>　　建立您的城市和小村庄，参与贸易，经济和外交，在这个欧洲大冲突的时代&mdash;&mdash;参加几乎不间断的战争&mdash;&mdash;从史诗般的围攻到海战和血腥的野战。</p> <p>　　对抗瘟疫</p> <p>　　黑死病就在这里，随着它席卷整个帝国，您的注意力将迅速从征服对手转变为在瘟疫大流行中生存。利用原始的中世纪医学，隔离你的城市，切断与遥远之地的贸易，不惜一切代价阻止死亡的浪潮。欧洲各地数百万人将被感染并死亡，很快将会是人力资源而不是银币成为最稀缺的资源。</p> <p>　　亡灵模式</p> <p>　　在可选的亡灵模式下，数百万受感染者很快将变成更加致命的瘟疫，成群结队的不死人漫无目的地游荡于欧洲，摧毁阻挡在他们道路上的一切。您是要在一个岛屿上隔离自己，还是想通过外交手段团结欧洲，以制止成千上万的不死人攻占你的城墙</p> <p>　　野蛮且史诗般的战斗</p> <p>　　战斗确实是史诗般的-战斗的各方都有数千个单位。血腥的围城战，激烈的野战和海战，以残酷的历史现实主义和生存要素展开。战斗胜利后，通过掠夺尸体或拆散城镇以补充您急需的资源。</p> <p>　　巨大的世界地图</p> <p>　　从北非的苏丹国到拜占庭，从俄罗斯区域到金帐汗国，以及西欧和中欧的所有王国，整个欧洲乃至整个世界都是您的游戏场所。您可以以小贵族和小领地开始游戏，也可以以国王统治大国的情况开始游戏。有几十个王国300多个领主和国王供您选择扮演。</p> <p><h4>下载地址(由网友<font color="red">393641926@qq.com</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53054/](https://lad.sfcrom.cn/2024/03/53054/)

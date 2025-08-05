@@ -1,0 +1,13 @@
+---
+title: "switch《小小高尔夫之旅 A Little Golf Journey》中文版nsp/xci下载【含1.0.1补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《小小高尔夫之旅 A Little Golf Journey》中文版下载，这是一款休闲风格的高尔夫游戏，主打益智解密类型的玩法，玩家将在各种风景秀丽的地图上展开冒险。 　　这是一款拥有着各种各样美丽的场景休闲冒险高尔夫游戏。解开谜题、发现宝物、直面挑战，这一切都在高尔夫之旅中等待你的&hellip;"
+layout: post
+---
+
+ <p>　　switch《小小高尔夫之旅 A Little Golf Journey》中文版下载，这是一款休闲风格的高尔夫游戏，主打益智解密类型的玩法，玩家将在各种风景秀丽的地图上展开冒险。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=806057880&amp;bvid=BV1J34y1S7ac&amp;cid=425114803&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fb24ddaf1.jpg" alt="switch《小小高尔夫之旅 A Little Golf Journey》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fb257dd8b.jpg" alt="switch《小小高尔夫之旅 A Little Golf Journey》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fb262b5ab.jpg" alt="switch《小小高尔夫之旅 A Little Golf Journey》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fb26c7609.jpg" alt="switch《小小高尔夫之旅 A Little Golf Journey》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fb2762edb.jpg" alt="switch《小小高尔夫之旅 A Little Golf Journey》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> </tbody> </table> <p>　　这是一款拥有着各种各样美丽的场景休闲冒险高尔夫游戏。解开谜题、发现宝物、直面挑战，这一切都在高尔夫之旅中等待你的到来。玩家收到了一个神秘的邀请，将你指向到了一个失去色彩的小岛上，只有你利用高尔夫球才能够让小岛回到本来的色彩，小岛上最终等待着你的究竟是是什么。</p> <p>　　游戏介绍</p> <p>　　开启你的冒险</p> <p>　　通过完成多种高尔夫的挑战，来将色彩带回你的世界中。游戏拥有10条绝妙的线路以及超过100个球洞，你将在旅途中发现并解开其中的奥秘。谁也不知道在这场旅途中，等待你的究竟会是什么。</p> <p>　　解开奥秘</p> <p>　　一封邀请函将你带到了这，充满了各种暗示，你能发现谁才是神秘的X吗?</p> <p>　　无需球童</p> <p>　　高尔夫球和舒缓禅意的配乐将是你最佳的同伴。快速的游玩一局，又或是休息一段时间。你可以尽情沉浸在这个美丽的世界中。</p> <p>　　特别的挑战</p> <p>　　游戏拥有着大量的秘密和宝石，等待你去探寻。当然，你需要去持之以恒的完成一系列挑战才能达成你的目标。</p> <p>　　游戏特色</p> <p>　　探索广阔无垠的世界地图以及超过100个的球洞，并在10种地方尽情游玩。</p> <p>　　完成挑战，带回色彩。</p> <p>　　发现秘洞以及之中的奥秘，并收集物品。</p> <p>　　揭开神秘X的真实身份。</p> <p>　　原声配乐。</p> <p>　　易于上手，难于精通。通过简单的操作方式，进行瞄准、蓄力与释放动作，并在不断的尝试中找到最佳的进球路线。</p> <p><h4>下载地址(由网友<font color="red">40741232s</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100688/](https://lad.sfcrom.cn/2024/04/100688/)

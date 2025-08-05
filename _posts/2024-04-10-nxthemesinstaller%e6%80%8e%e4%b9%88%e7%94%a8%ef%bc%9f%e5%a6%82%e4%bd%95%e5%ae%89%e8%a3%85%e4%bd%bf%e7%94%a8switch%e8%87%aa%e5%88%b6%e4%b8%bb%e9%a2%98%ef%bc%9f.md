@@ -1,0 +1,13 @@
+---
+title: "NxThemesInstaller怎么用？如何安装使用Switch自制主题？"
+date: 2024-04-10
+tags: []
+categories: ["switch教程"]
+excerpt: "　　【含软件下载】NxThemesInstaller怎么用?如何安装使用Switch自制主题?!NxThemesInstaller是一款安装switch游戏机自制主题的软件!下面游戏星辰小编就为大家介绍下使用方法! 　　本人系统大气层16.0.2 　　一，注意事项 　　重要：离线升级前一定要卸载主题&hellip;"
+layout: post
+---
+
+ <p>　　【含软件下载】NxThemesInstaller怎么用?如何安装使用Switch自制主题?!NxThemesInstaller是一款安装switch游戏机自制主题的软件!下面游戏星辰小编就为大家介绍下使用方法!</p> <p>　　本人系统大气层16.0.2</p> <p>　　一，注意事项</p> <p>　　重要：离线升级前一定要卸载主题，不然会造成无法进入系统!!</p> <p>　　重要：离线升级前一定要卸载主题，不然会造成无法进入系统!!</p> <p>　　重要：离线升级前一定要卸载主题，不然会造成无法进入系统!!</p> <p>　　如果不小心安装主题布局,导致无法开机或死机!!</p> <p>　　找寻SD卡里面的如下的文件夹删除即可!!(主题文件即全部删除)</p> <p>　　大气层路径 /atmosphere/contents</p> <p>　　0100000000001000</p> <p>　　0100000000001013</p> <p>　　0100000000001007</p> <p>　　找到以上3个文件夹删除即可。</p> <p>　　一，主题结构</p> <p>　　一般下载的*.nxtheme主题都会有如下这些文件</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_661632bb750da.webp" width="700" alt="NxThemesInstaller怎么用？如何安装使用Switch自制主题？" /></p> <p>　　将这些文件放入一个自己命名的文件夹，然后将这个文件夹，放入TF根目录的themes文件夹，如没有可以自行创建。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_661632bbdc69d.webp" width="1178" alt="NxThemesInstaller怎么用？如何安装使用Switch自制主题？" /></p> <p>　　将这些文件放入一个自己命名的文件夹，然后将这个文件夹，放入TF根目录的themes文件夹，如没有可以自行创建。</p> <p>　　1.进入相册打开NXThemesInstaller 主题安装工具NXThemesInstaller</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_661632bc47b1a.webp" width="601" alt="NxThemesInstaller怎么用？如何安装使用Switch自制主题？" /></p> <p>　　4.进入主题目录后，会出现如下画面，分别对应7个不同的画面主题布局：</p> <p>　　All apps menu = 所有软件</p> <p>　　Home menu = 主画面</p> <p>　　Lock screen = 解锁画面</p> <p>　　News applet = 新闻频道</p> <p>　　Player select = 用户页面</p> <p>　　Settings applet = 设定选单</p> <p>　　User page = 用户选单</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_661632bcbeb15.webp" width="1285" alt="NxThemesInstaller怎么用？如何安装使用Switch自制主题？" /></p> <p>　　5.选择第一个主题文件，按A，开始安装这个主题文件，安装的很快，瞬间就完成了。安装完成后会弹出提示，按A跳过即可。</p> <p>　　6.重复操作，将7个布局都安装完成.</p> <p>　　至此安装结束，重启你的switch即可让主题生效!</p> <p>　　三，卸载主题</p> <p>　　直接在NXThemes Installer主界面左侧选择，按A，然后在右侧选择Uninstall the current theme，按A，即可卸载主题。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_661632bd28160.webp" width="700" alt="NxThemesInstaller怎么用？如何安装使用Switch自制主题？" /></p> <p>　　重要：离线升级前一定要卸载主题，不然会造成无法进入系统!!</p> <p><h4>下载地址(由网友<font color="red">545823951</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/156700/](https://lad.sfcrom.cn/2024/04/156700/)

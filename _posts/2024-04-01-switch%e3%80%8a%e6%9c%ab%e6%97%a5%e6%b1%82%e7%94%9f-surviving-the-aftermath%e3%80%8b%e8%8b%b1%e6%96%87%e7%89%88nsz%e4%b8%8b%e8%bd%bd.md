@@ -1,0 +1,13 @@
+---
+title: "switch《末日求生 Surviving the Aftermath》英文版nsz下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《末日求生 Surviving the Aftermath》英文版下载，这是一款开放世界的生存游戏，玩家要在末日后搜集资源、建立基地，找到你的伙伴并在这个危险的世界活下去。 　　在大灾变后的未来世界存活下来并蓬勃发展。资源稀少，但机遇犹存。建造能抵御终极灾难的殖民地，保护你的殖民者，&hellip;"
+layout: post
+---
+
+ <p>　　switch《末日求生 Surviving the Aftermath》英文版下载，这是一款开放世界的生存游戏，玩家要在末日后搜集资源、建立基地，找到你的伙伴并在这个危险的世界活下去。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=209142341&amp;bvid=BV1Kh411b73M&amp;cid=443654188&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8788162ff.jpg" alt="switch《末日求生 Surviving the Aftermath》英文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8788dd146.jpg" alt="switch《末日求生 Surviving the Aftermath》英文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8789a672b.jpg" alt="switch《末日求生 Surviving the Aftermath》英文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a878a656ab.jpg" alt="switch《末日求生 Surviving the Aftermath》英文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a878b10101.jpg" alt="switch《末日求生 Surviving the Aftermath》英文版nsz下载" /></td> </tr> </tbody> </table> <p>　　在大灾变后的未来世界存活下来并蓬勃发展。资源稀少，但机遇犹存。建造能抵御终极灾难的殖民地，保护你的殖民者，并在满目疮痍的世界中修复文明。请谨记：世界末日正是新的开始。</p> <p>　　游戏介绍</p> <p>　　家是最好的地方</p> <p>　　在末日后建立并管理聚居地的幸存者。建造超过 61 种独特建筑，以因应资源收集、耕种、探索和安保措施等各式需求。</p> <p>　　劫后余生的地球</p> <p>　　探索因你的行动而一步步生成的辽阔世界，其上有六种不同的生态环境，包含丰富资源、野生动物、竞争聚落等等。每个环境中都有会影响聚居地生存情况的不同条件。保持警觉：自然灾害、危险动物和土匪都会带给你的幸存者考验。</p> <p>　　生存是我的专长</p> <p>　　招募超过 80 种别具特色的专家，每种专家都有各自的技能和动机，以管理你聚居地的资源与生产状况。派他们踏出聚居地大门，执行科学任务、寻找有用物资，并与土匪对战。</p> <p>　　准备处理出乎意料的状况</p> <p>　　灾后重建的生活必须做出道德上的抉择。聚居地中的大小事可能难以一一掌控，但你遭遇不同情况和紧急事件时所采取的决策，将会塑造出新文明的特性。</p> <p>　　声望管理</p> <p>　　每一次抉择都可能攸关聚居地的存亡。你在其他聚落的声望将影响你与该聚落交易的能力，甚至会影响你与对方领袖之间的关系。每位聚居地居民都具有自己的思维模式，并会随你的抉择作出反应。</p> <p>　　守卫门户</p> <p>　　筑起大门来保护你的聚居地，抵御凶暴的动物肆虐及致命的土匪来犯。敌人一旦破坏大门便会涌入你的聚居地，在其所到之处肆意破坏。这时要指挥你的专家，将这些不速之客驱之别院。</p> <p><h4>下载地址(由网友<font color="red">evenmore</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111660/](https://lad.sfcrom.cn/2024/04/111660/)

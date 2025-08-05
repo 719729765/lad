@@ -1,0 +1,13 @@
+---
+title: "switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版nsz下载【含1.0.1补丁】"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版下载，这是一款2D的动作格斗游戏，非常二次元的画风，为玩家准备了16名可以使用的角色，感兴趣的玩家可以关注一下。 　　格斗游戏《混沌代码》最新强化版本《混沌代码：新生浩劫》登场!充满&hellip;"
+layout: post
+---
+
+ <p>　　switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版下载，这是一款2D的动作格斗游戏，非常二次元的画风，为玩家准备了16名可以使用的角色，感兴趣的玩家可以关注一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=755086746&amp;bvid=BV1Hr4y1w7Vy&amp;cid=249988240&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7209c2a97.jpg" alt="switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d720a5af03.jpg" alt="switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d720b04472.jpg" alt="switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d720b90afe.jpg" alt="switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d720c14b64.jpg" alt="switch《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版nsz下载【含1.0.1补丁】" /></td> </tr> </tbody> </table> <p>　　格斗游戏《混沌代码》最新强化版本《混沌代码：新生浩劫》登场!充满个性的16名角色以及更多的惊喜!更丰富多元的单机游戏模式，即使是新手也能轻松上手的战斗系统。</p> <p>　　以及期待已久的网络对战!挑战全世界的对手!闪耀于混沌代码的舞台上吧!</p> <p>　　游戏特色</p> <p>　　-可自定义对决风格</p> <p>　　在选择角色时，可以在「冲刺(RUN)」和「突进(STEP)」中选择进攻性能的「移动风格」和普通技能之外，在4种技能中选择一种的「追加必杀技」。另外，如果达到条件，还可以选择「混沌(CHAOS)模式」或「头目(BOSS)模式」等特殊性能。进行更自由的对决吧!</p> <p>　　-个性鲜明的角色们</p> <p>　　玩家可以选择16位个性鲜明的角色，如狂热军人、漫画家、中华料理主厨等。每个角色都有固有的动作和必杀技，展现华丽的演出。另外，还可以透过「自定义色盘」来更改角色头发、皮肤等颜色并能在其他模式中使用，可塑造出属于自己的角色。</p> <p>　　-多样的游戏模式</p> <p>　　玩家可以选择包括「街机模式」、「生存模式」、「练习模式」等的各种游戏模式，无论是初学者还是熟悉游戏的玩家，皆可以满足其需求。另外，利用在各游戏模式中可获得的「CHAOS币」，可以欣赏角色插图、获得追加自定义色彩以及游玩迷你游戏等其他的内容。</p> <p>　　以上内容就是小编为大家带来的《混沌代码：新生浩劫 CHAOS CODE -NEW SIGN OF CATASTROPHE-》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">虫叔叔0089</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124401/](https://lad.sfcrom.cn/2024/04/124401/)

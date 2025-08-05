@@ -1,0 +1,13 @@
+---
+title: "switch《终极时代 Ultra Age》中文版DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["最新DLC"]
+excerpt: "switch《终极时代 Ultra Age》中文版DLC下载，这是一款动作冒险类游戏，背景设在了未来世界，玩家将在资源枯竭的地球展开冒险，感兴趣的玩家可以来试试。 　　《UltraAge》讲述的故事是，在遥远的未来，地球的资源开始枯竭，生态系统因为过去陨石的经过，发生了无法挽回的变化。人类分成了两派&hellip;"
+layout: post
+---
+
+ <p>switch《终极时代 Ultra Age》中文版DLC下载，这是一款动作冒险类游戏，背景设在了未来世界，玩家将在资源枯竭的地球展开冒险，感兴趣的玩家可以来试试。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=504766022&amp;bvid=BV1jg411j7uX&amp;cid=389773504&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a92a9ea2.webp" style="border-width: 0px; border-style: solid;" alt="switch《终极时代 Ultra Age》中文版DLC下载" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a9309fb9.webp" style="border-width: 0px; border-style: solid;" alt="switch《终极时代 Ultra Age》中文版DLC下载" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a9360b51.webp" style="border-width: 0px; border-style: solid;" alt="switch《终极时代 Ultra Age》中文版DLC下载" /></td> </tr> </tbody> </table> <p>　　《UltraAge》讲述的故事是，在遥远的未来，地球的资源开始枯竭，生态系统因为过去陨石的经过，发生了无法挽回的变化。人类分成了两派：有的逃离地球，移居到太空殖民地，还有留在地球，住在被称为&ldquo;避难所&rdquo;的设施。</p> <p>　　太空殖民地的人们为了寻找资源而向地球派遣了探索队，另一方面，留在避难所的人们被认为是人类最后希望的实验失败了。为了寻找生命反应，年轻的战士艾奇来到了地球。必须和智能机器人一起，找出人类生存不可或缺的关键。</p> <p>&nbsp; &nbsp; &nbsp; &nbsp;以上内容就是小编为大家带来的《Ultra Age》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">cksw</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/142335/](https://lad.sfcrom.cn/2024/04/142335/)

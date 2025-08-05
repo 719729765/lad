@@ -1,0 +1,13 @@
+---
+title: "switch《无主之地：前传 Borderlands: The Pre-Sequel》英文版xci整合版下载【含1.01补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　switch《无主之地：前传 Borderlands: The Pre-Sequel》英文版下载。《无主之地：前传》故事将发生在《无主之地1》和《无主之地2》之间的5年时间内，设定在潘朵多拉星球的Elpis月球(Pandora&#039;s moon Elpis)以及月球附近H形状的轨道空间站。 &hellip;"
+layout: post
+---
+
+ <p>　　switch《无主之地：前传 Borderlands: The Pre-Sequel》英文版下载。《无主之地：前传》故事将发生在《无主之地1》和《无主之地2》之间的5年时间内，设定在潘朵多拉星球的Elpis月球(Pandora&#39;s moon Elpis)以及月球附近H形状的轨道空间站。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=43717526&amp;bvid=BV1Tb411m7kW&amp;cid=76596170&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be1d6486a3.webp" alt="switch《无主之地：前传 Borderlands: The Pre-Sequel》英文版xci整合版下载【含1.01补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be1d6b1603.webp" alt="switch《无主之地：前传 Borderlands: The Pre-Sequel》英文版xci整合版下载【含1.01补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be1d72cfcf.webp" alt="switch《无主之地：前传 Borderlands: The Pre-Sequel》英文版xci整合版下载【含1.01补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be1d793046.webp" alt="switch《无主之地：前传 Borderlands: The Pre-Sequel》英文版xci整合版下载【含1.01补丁】" /></td> </tr> </tbody> </table> <p>　　游戏内容</p> <p>　　1.剧情围绕&ldquo;帅哥杰克(Handsome Jack)&rdquo;展开</p> <p>　　《前传》发生在《无主之地》初代和二代之间，主要描述了杰克是如何掌权并变成一个坏蛋的。</p> <p>　　2.终于可以选择&ldquo;小吵闹(Claptrap)&rdquo;进行游戏</p> <p>　　和前两作一样，《前传》也有4为角色可以选择，都是玩家们已经见过的角色。其中最让玩家们欣喜的应该就是&ldquo;小吵闹&rdquo;了，GearBox老总Randy Pitchford此前表示过，当玩家们用&ldquo;小吵闹&rdquo;进行游戏的时候，画面的视角会比其他角色要低很多，不过&ldquo;小吵闹&rdquo;会拥有其他方面的长处。</p> <p>　　其他三位角色分别是雅典娜(Athena，《无主之地1》某DLC中的主角)，Wilhelm(《无主之地2》机械Boss之一，变为机器人之前的形态)和Nisha。</p> <p>　　3.本作不是GearBox本社作品，由2K澳大利亚开发</p> <p>　　这是由2K澳大利亚领衔开发的首款独立作品，该工作室此前曾和Irrational协作开发过《生化奇兵》系列，本次开发《无主之地2：前传》也将会时刻和GearBox保持沟通。</p> <p>　　4.有月球场景和喷气背包(Jetpack)元素</p> <p>　　杰克的4人小组在月球(不是我们的月球，是潘多拉的月球Elpis)上面战斗，每一个人都装备了一个喷气背包。喷气背包允许玩家们执行二段跳的动作，在空中按下下蹲键还可以做出向下踩踏的攻击动作，对付成堆的敌人时很有效。</p> <p>　　5.新武器和新的元素效果</p> <p>　　游戏中出现了一种全新的激光武器，武器的伤害将由激光的能量强度决定。游戏中还有一种可以吸收伤害的护盾，并可以将吸收的伤害反弹至敌人身上。另外，一种新的元素伤害也将会被添加进游戏当中，低温(Cryo)效果。顾名思义，就是可以减缓敌人行动速度兵冻结他们的效果。</p> <p><h4>下载地址(由网友<font color="red">hitomi__</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/121878/](https://lad.sfcrom.cn/2024/04/121878/)

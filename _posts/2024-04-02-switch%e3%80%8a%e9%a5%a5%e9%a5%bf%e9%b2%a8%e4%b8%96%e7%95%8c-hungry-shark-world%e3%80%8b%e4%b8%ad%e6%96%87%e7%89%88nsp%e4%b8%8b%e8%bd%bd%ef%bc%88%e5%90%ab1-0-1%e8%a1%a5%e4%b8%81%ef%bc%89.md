@@ -1,0 +1,13 @@
+---
+title: "switch《饥饿鲨世界 Hungry Shark World》中文版nsp下载（含1.0.1补丁）"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　switch《饥饿鲨世界》中文版下载，这是饥饿鲨系列游戏的最新作品，喜欢这个系列的玩家朋友们不要错过它哦。 　　虽然《饥饿鲨：世界》原版是手机游戏，不过这一次育碧针对家用机版进行了增强，游戏经过完全重新设计，并且提供了家用机级别的画面。玩家可以操作的鲨鱼共有20多种，游戏关卡250多个。供鲨鱼们&hellip;"
+layout: post
+---
+
+ <p>　　switch《饥饿鲨世界》中文版下载，这是饥饿鲨系列游戏的最新作品，喜欢这个系列的玩家朋友们不要错过它哦。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=4436198&amp;bvid=BV1gs4116723&amp;cid=7187668&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be2897bd27.webp" width="540" alt="switch《饥饿鲨世界 Hungry Shark World》中文版nsp下载（含1.0.1补丁）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be289d235c.webp" width="533" alt="switch《饥饿鲨世界 Hungry Shark World》中文版nsp下载（含1.0.1补丁）" /></p> <p>　　虽然《饥饿鲨：世界》原版是手机游戏，不过这一次育碧针对家用机版进行了增强，游戏经过完全重新设计，并且提供了家用机级别的画面。玩家可以操作的鲨鱼共有20多种，游戏关卡250多个。供鲨鱼们饱腹的敌人从小鱼小虾到大型直升机，一共100多种。</p> <p>　　《饥饿鲨世界》是款由育碧推出的饥饿鲨新作，继承了系列前作的核心玩法，加入了全新游戏玩法，更有开放式的海洋世界等你来探索，操控不同的鲨鱼进行战斗生存。</p> <p>　　这款游戏就为大家介绍到这里了，喜欢的朋友们不要错过哦。相信这款游戏会为大家带去很多欢乐的。</p> <p><h4>下载地址(由网友<font color="red">云飛龍</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/122125/](https://lad.sfcrom.cn/2024/04/122125/)

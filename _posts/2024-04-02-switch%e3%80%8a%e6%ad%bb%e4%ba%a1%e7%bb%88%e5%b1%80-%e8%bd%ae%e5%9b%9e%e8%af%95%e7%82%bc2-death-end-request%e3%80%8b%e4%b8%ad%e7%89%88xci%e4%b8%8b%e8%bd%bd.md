@@ -1,0 +1,13 @@
+---
+title: "switch《死亡终局 轮回试炼2 Death end re;Quest》中版xci下载"
+date: 2024-04-02
+tags: []
+categories: ["xci中文游戏"]
+excerpt: "switch《死亡终局 轮回试炼 Death end re;Quest》中版xci下载。这是一款角色扮演类游戏，在游戏世界的RPG动作和现实世界的视觉新奇片段之间切换。在游戏开发领域，似乎一切都很有趣，直到幻想和现实之间的界限开始模糊。 　　故事介绍 　　电子游戏程序员Arata Mizunashi&hellip;"
+layout: post
+---
+
+ <p>switch《死亡终局 轮回试炼 Death end re;Quest》中版xci下载。这是一款角色扮演类游戏，在游戏世界的RPG动作和现实世界的视觉新奇片段之间切换。在游戏开发领域，似乎一切都很有趣，直到幻想和现实之间的界限开始模糊。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=82644004&amp;bvid=BV1hJ411G7Xk&amp;cid=141400696&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b48372aa0f.jpg" alt="switch《死亡终局 轮回试炼2 Death end re;Quest》中版xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4837aa8d4.jpg" alt="switch《死亡终局 轮回试炼2 Death end re;Quest》中版xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b483993cbe.jpg" alt="switch《死亡终局 轮回试炼2 Death end re;Quest》中版xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b483a274fa.jpg" alt="switch《死亡终局 轮回试炼2 Death end re;Quest》中版xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b483b4b430.jpg" alt="switch《死亡终局 轮回试炼2 Death end re;Quest》中版xci下载" /></td> </tr> </tbody> </table> <p>　　故事介绍</p> <p>　　电子游戏程序员Arata Mizunashi收到了一封电子邮件，是他的同事Shina Ninomiya发给他的。Shina Ninomiya一年前失踪了。他们一起努力创造了世界奥德赛(World&rsquo;s Odyssey, W.O.D.)，一个以惊人的、最先进的技术为动力的沉浸式虚拟景观。也就是说，直到Shina的突然消失使项目迅速停止。Arata有了一个惊人的发现，Shina Ninomiya一直被困在&ldquo;W.O.D.&rdquo;里&ldquo;。当Arata匆忙地回到困扰他被抛弃的项目的代码行时，他意识到他的游戏现在被一大堆bug所破坏，而Shina是唯一活跃的玩家。</p> <p>　　Arata很快意识到一股邪恶的力量阻止他把Shina从游戏中拉出来。她唯一的出路是什么?她必须完成游戏才能解锁完美结局&mdash;&mdash;成功率为1%。在他们的旅程中，他们遇到了许多NPC角色，这些角色模糊了人类和人工智能的概念，这是一个激动人心的故事，它对虚拟世界和我们的世界之间的差异提出了质疑。</p> <p>　　他们几乎不知道屏幕两边等待他们的是什么恐怖的事实&hellip;&hellip;</p> <p>　　游戏特色</p> <p>　　《死亡终局：轮回试炼》采用魔幻风格，玩家可以穿梭于游戏和真实世界</p> <p>　　整个游戏的流程也将从&ldquo;游戏&rdquo;与&ldquo;现实&rdquo;两条线展开，玩家需要攻略一个充满Bug的游戏世界。</p> <p>　　引人入胜的游戏剧情，错综复杂的众多谜团穿插其中，你需要找到隐藏的线索</p> <p>　　精致美观的人物设定，由可爱美型的小姐姐担任主角，给你良好视觉享受</p> <p>　　紧张刺激的冒险历程，你将遭遇不同类型的敌人，还有强力的boss，你能否顺利击败他们</p> <p>　　高质量游戏音乐配合多种音效，让游戏代入感大大提升，给你完美音乐享受</p> <p><h4>下载地址(由网友<font color="red">qweasd8888</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/119713/](https://lad.sfcrom.cn/2024/04/119713/)

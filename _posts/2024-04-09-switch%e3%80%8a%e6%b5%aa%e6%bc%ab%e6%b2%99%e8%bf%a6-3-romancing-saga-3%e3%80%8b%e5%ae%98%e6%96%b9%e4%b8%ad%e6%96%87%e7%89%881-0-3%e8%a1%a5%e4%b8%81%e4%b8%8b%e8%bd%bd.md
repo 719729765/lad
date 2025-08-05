@@ -1,0 +1,13 @@
+---
+title: "switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版1.0.3补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　【内含原版+TX专用魔改版】switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版下载，浪漫沙迦 3是一款非常经典的角色扮演游戏，下面为大家带来的是它的官方中文版。 　　故事背景 　　每隔300年，暗星遮挡太阳的天文现象&mdash;&mdash;&ldquo;死蚀&amp;rdquo&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用魔改版】switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版下载，浪漫沙迦 3是一款非常经典的角色扮演游戏，下面为大家带来的是它的官方中文版。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=761467433&amp;bvid=BV1v64y1b7VM&amp;cid=362695137&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615387a283e8.jpg" alt="switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615387b1fb4e.jpg" alt="switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615387c0abda.jpg" alt="switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615387cb8c88.jpg" alt="switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615387d59542.jpg" alt="switch《浪漫沙迦 3 Romancing SaGa 3》官方中文版1.0.3补丁下载" /></td> </tr> </tbody> </table> <p>　　故事背景</p> <p>　　每隔300年，暗星遮挡太阳的天文现象&mdash;&mdash;&ldquo;死蚀&rdquo;就会威胁着我们这个世界的存在。</p> <p>　　那一年出生的人注定会在当年结束前被夺走生命。无论是人类还是野兽，无一能够幸免。</p> <p>　　然而，有一次，一个孩子确实活了下来。他为死亡的力量所吸引，并使用它征服了世界。他被人们称为了&ldquo;魔王&rdquo;。可有一天，他突然就消失了。</p> <p>　　又过了300年，又一个孩子再次挑战命运。她并未屈服于曾经控制住魔王的那股力量;而她后来被称为了圣王。</p> <p>　　距离上一次死蚀已经过去了20年;而自圣王出现到现在已有300余年了。人类现在站在了希望和绝望之间的支点上。</p> <p>　　会有另一个宿命之子出现吗? 这个孩子会是正义的还是邪恶的，抑或会带来无法为世人所理解的另一种力量?</p> <p>　　游戏介绍</p> <p>　　这款传奇角色扮演游戏杰作的高清重制版引入了优化的图形、新的可探索地牢、新的剧情和新游戏+功能。从8个独特的主角中选择一个，开启你自己选择的史诗冒险之旅!</p> <p>　　本游戏与同时期其他RPG大不相同，特别之处如角色没有等级，且故事属于开放性路线，可自由选择触发或随时间经过而消失。</p> <p>　　可选主角达8人之多，可加入队伍的伙伴多达二十余人，可自由邀请与踢出队伍。</p> <p>　　高清重制版则会收录原作中没有的新地牢和新剧情。</p> <p><h4>下载地址(由网友<font color="red">stevenhjx</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145089/](https://lad.sfcrom.cn/2024/04/145089/)

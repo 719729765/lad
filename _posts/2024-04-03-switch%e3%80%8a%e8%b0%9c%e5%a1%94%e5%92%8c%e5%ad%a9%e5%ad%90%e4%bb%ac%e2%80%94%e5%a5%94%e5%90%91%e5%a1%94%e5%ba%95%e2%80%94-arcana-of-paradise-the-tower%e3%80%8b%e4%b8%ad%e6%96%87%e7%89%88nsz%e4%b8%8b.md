@@ -1,0 +1,13 @@
+---
+title: "switch《谜塔和孩子们—奔向塔底— Arcana of Paradise The Tower》中文版nsz下载+1.2.0补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《谜塔和孩子们&mdash;奔向塔底&mdash; Arcana of Paradise The Tower》中文版nsz下载+1.2.0补丁!从20个孩子的编队中选出合适的组合，与谜塔中的神秘住民们进行即时对战。在途中建立最强的防御，使出强力的连环攻击，注入强大的魔法力量，一边寻找食物&hellip;"
+layout: post
+---
+
+ <p>switch《谜塔和孩子们&mdash;奔向塔底&mdash; Arcana of Paradise The Tower》中文版nsz下载+1.2.0补丁!从20个孩子的编队中选出合适的组合，与谜塔中的神秘住民们进行即时对战。在途中建立最强的防御，使出强力的连环攻击，注入强大的魔法力量，一边寻找食物，一边收集传说中的遗物，引导孩子们走向塔底。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=263836589&amp;bvid=BV11e411w7AZ&amp;cid=925937608&amp;page=1" width="410"></iframe></p> <p>　　关于这款游戏</p> <p align="center"><img align="" border="0" src="https://cdn.cloudflare.steamstatic.com/steam/apps/2089500/extras/PerfectGuard_Cinemscope.gif?t=1681693278" width="600" alt="switch《谜塔和孩子们—奔向塔底— Arcana of Paradise The Tower》中文版nsz下载+1.2.0补丁" /></p> <p>　　从20个孩子的编队中选出合适的组合，与谜塔中的神秘住民们进行即时对战。在途中建立最强的防御，使出强力的连环攻击，注入强大的魔法力量，一边寻找食物，一边收集传说中的遗物，引导孩子们走向塔底。</p> <p align="center"><img align="" border="0" src="https://cdn.cloudflare.steamstatic.com/steam/apps/2089500/extras/Reward_Cinemascope.gif?t=1681693278" width="600" alt="switch《谜塔和孩子们—奔向塔底— Arcana of Paradise The Tower》中文版nsz下载+1.2.0补丁" /></p> <p>　　Features</p> <p>　　即时类的卡片对战游戏：迅速进行判断选择!谜塔的住民们不会给予等待的空隙，瞬间进行思考，给予敌人攻击。可以将所持的卡片(和一部分的敌人)倒转，若没有需要的卡片可以要求重新发卡片，从而控制战局。</p> <p>　　没有尽头的谜塔：谜塔一直向下无尽延伸。在每一层的冒险中都会遇到新的挑战。选择前进的路线，遇到各种各样的敌人，收集多种卡片和遗物，是在得到面包后返回，还是向着塔底选择继续前进，将面临重重困难的选择。</p> <p>　　个性丰富的角色们：谜塔的孩子们分别属于3种职业属性其中的一种。 有各自固有的被动技能并且持有初始编队的卡片。进入谜塔中，提高与孩子们的亲密度，从而开放更多种类的技能和卡片。</p> <p>　　充满魅力的故事和气势磅礴的音乐原声：随着将孩子们引向塔底，隐藏在谜塔的秘密也会被逐渐揭开。触发新的事件，得到新的卡片，救出新的孩子，解开故事的谜题等。一边解锁各种新要素，一边聆听时而忧郁时而奇妙的音乐原声。</p> <p align="center"><img align="" border="0" src="https://cdn.cloudflare.steamstatic.com/steam/apps/2089500/extras/Mage_Cinemascope.gif?t=1681693278" width="600" alt="switch《谜塔和孩子们—奔向塔底— Arcana of Paradise The Tower》中文版nsz下载+1.2.0补丁" /></p> <p>　　谜塔和孩子们-奔向塔底-预计在2023年4月20日发售，游戏包含以下内容：</p> <p>　　20个可供操作的拥有独特初始编队和被动技能的角色</p> <p>　　3种具有各自特殊战斗方式的职业属性</p> <p>　　70种以上由塔罗牌联想出的卡片</p> <p>　　20首以上忧郁且奇妙的音乐原声</p> <p>　　多种源于塔罗牌的神秘敌人</p> <p>　　多种可开放的家和村落的升级</p> <p>　　多种必须通过的挑战难关</p> <p>　　通关结束后可继续进行游戏</p> <p align="center"><img align="" border="0" src="https://cdn.cloudflare.steamstatic.com/steam/apps/2089500/extras/Sustainable_Cinemascope.gif?t=1681693278" width="600" alt="switch《谜塔和孩子们—奔向塔底— Arcana of Paradise The Tower》中文版nsz下载+1.2.0补丁" /></p> <p><h4>下载地址(由网友<font color="red">kido172201684</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124869/](https://lad.sfcrom.cn/2024/04/124869/)

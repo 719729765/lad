@@ -1,0 +1,13 @@
+---
+title: "switch《神圣之心2  Asdivine Hearts II》英文版1.0.3补丁+7DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《神圣之心2》下载，这是一款回合制角色扮演游戏，是神圣之心的续作，游戏是幻想风格的，感兴趣的玩家们不妨来了解一下吧。 　　神圣之心2是KEMCO开发制作的《神圣之心》的全新续作。游戏延续了前作的世界观设定，但在故事剧情方面，采用了全新的发展走向，因此即使没玩过前作的玩家，也能够毫无障&hellip;"
+layout: post
+---
+
+ <p>　　switch《神圣之心2》下载，这是一款回合制角色扮演游戏，是神圣之心的续作，游戏是幻想风格的，感兴趣的玩家们不妨来了解一下吧。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=38082057&amp;bvid=BV1dt411v7uS&amp;cid=66944940&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661545513c340.webp" alt="switch《神圣之心2  Asdivine Hearts II》英文版1.0.3补丁+7DLC下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661545519991e.webp" alt="switch《神圣之心2  Asdivine Hearts II》英文版1.0.3补丁+7DLC下载" /></p> <p>　　神圣之心2是KEMCO开发制作的《神圣之心》的全新续作。游戏延续了前作的世界观设定，但在故事剧情方面，采用了全新的发展走向，因此即使没玩过前作的玩家，也能够毫无障碍的体验该作游戏乐趣。</p> <p>　　本作故事设定在前作的2年后，异世界突然遭到了寒冷化的气象，集结同伴重新展开冒险吧。</p> <p>　　经过两年的成长，女主角们围绕着男主的争斗更加激烈!玩家可以通过和她们的对话来提高信任度，最终成功攻略她们!战斗方面，包含有1个帮助角色实际共6人的组队战斗更加白热化，前作的各种玩法要素也有保留。而故事情节方面，并不会涉及前作，所以就算没玩过的玩家也能享受该作的乐趣!</p> <p>　　同时比起前作，今作还能享受到和成长起来的女主角们的恋爱事件。</p> <p>　　1、是《神圣之心》后一续作，并延续前作世界观;</p> <p>　　2、继承了前作的各种玩法，新增后续剧情及恋爱元素;</p> <p>　　3、玩家需操控着你的勇士与同伴对抗入侵者;</p> <p>　　4、简单的滑屏即可释放出超强威力攻击敌人!</p> <p>&nbsp;</p> <p>　　喜欢的玩家朋友们，可以通过上面的链接来获取游戏哦!</p> <p><h4>下载地址(由网友<font color="red">biner009</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145501/](https://lad.sfcrom.cn/2024/04/145501/)

@@ -1,0 +1,13 @@
+---
+title: "PC《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版下载，这是一个故事导向的冒险解谜游戏，讲述了一个上世纪初发生在欧洲的故事，一起来看看吧。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Iskonsko Stud&hellip;"
+layout: post
+---
+
+ <p>　　PC《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版下载，这是一个故事导向的冒险解谜游戏，讲述了一个上世纪初发生在欧洲的故事，一起来看看吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=796480901&amp;bvid=BV1bC4y1b7pE&amp;cid=214065371&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f4e0f2f8.jpg" alt="PC《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f4e86f8d.jpg" alt="PC《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f4f1277b.jpg" alt="PC《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f4fa879f.jpg" alt="PC《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Iskonsko Studio</p> <p>　　游戏发行：Iskonsko Studio</p> <p>　　一款点击式推理类冒险解谜游戏，探索20世纪中叶的欧洲作为一个前OSS操作使用快速的机智，解决问题的能力和坚韧的魅力，以回避和编织他的方式之间的邪教，疯狂的法国人和危险的杀手!</p> <p>　　游戏介绍</p> <p>　　沉浸在一个深沉而复杂的故事中，充满了阴谋。探索独特的位置，与古怪的人物接触，并巧妙地利用物品。</p> <p>　　使用你的日记来跟踪新的发现，位置，有时令人费解的人物，是时候戴上你的思维帽子，解决难题。</p> <p>　　游戏特色</p> <p>　　老派经典和点击冒险。</p> <p>　　有趣，有趣的角色演员互动。</p> <p>　　美丽，手绘艺术风格。</p> <p>　　随着你的进步，深入而复杂的故事写进你的日记里。</p> <p>　　没有像素狩猎!交互式对象在悬停时会发光。</p> <p>　　身临其境的第一人称视图。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows XP or later</p> <p>　　处理器: 2.0 GHz Core 2 Duo</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: OpenGL 2.0 or DirectX 9.0c</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《麻烦猎人编年史：被盗的信条 Trouble Hunter Chronicles The Stolen Creed》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">KyrieL</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39806/](https://lad.sfcrom.cn/2024/03/39806/)

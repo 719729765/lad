@@ -1,0 +1,13 @@
+---
+title: "switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁!《荧幕判官》来自台湾的真实故事改编集成，搭配以解谜、匿踪等多样化游戏玩法，是一款操作上简单游玩的游戏;而引人深思的剧情，在思维上亦是款不简单的小品游戏。总游玩时数不长，但真正的思维挑战在游戏通关后才开始&hellip;"
+layout: post
+---
+
+ <p>　　switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁!《荧幕判官》来自台湾的真实故事改编集成，搭配以解谜、匿踪等多样化游戏玩法，是一款操作上简单游玩的游戏;而引人深思的剧情，在思维上亦是款不简单的小品游戏。总游玩时数不长，但真正的思维挑战在游戏通关后才开始。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=26784787&amp;bvid=BV1Hs411J7KF&amp;cid=46099723&amp;page=1" width="410"></iframe></p> <p>　　关于这款游戏</p> <p>　　《萤幕判官》来自台湾的真实故事改编集成，搭配以解谜、匿踪等多样化游戏玩法，是一款操作上简单游玩的游戏;而引人深思的剧情，在思维上亦是款不简单的小品游戏。总游玩时数不长，但真正的思维挑战在游戏通关后才开始。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f507a3085.webp" width="600" alt="switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁" /></p> <p>　　在《萤幕判官》中，玩家操控主角在记忆与现实的交错世界中寻找有关真相的蛛丝马迹。故事背景设立在七零年代解严后的台湾社会，那是一个网路尚未盛行的年代，藉由主角的人生故事，玩家能从中探究媒体是如何在诸位「萤幕判官」的帮助下将一个人抹杀在社会中。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f5080861f.webp" width="600" alt="switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f50850acf.webp" width="600" alt="switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁" /></p> <p>　　美术风格</p> <p>　　美术风格灵感来自于古早的彩色手绘广告、海报。在那个印刷以及影像处理技术尚未电脑化的年代，画家们在拟真与幻想之间摆荡，因此既有相片一般的写实风格，但又不同于传统人物绘画，其诞生出来的绘本风格具有独特魅力。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f508be03f.webp" width="600" alt="switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁" /></p> <p>　　游戏特色</p> <p>　　*耗时将近一年多的时间制作，游戏剧情与画面中皆蕴藏了大量隐喻等待玩家发现。*本游戏就是社会的缩影，不仅探讨舆论杀人的现象，更与诸多社会现实议题环环相扣。</p> <p>　　*除了主线外，游戏当中有许多真实故事改编的彩蛋，找寻其中隐藏的小篇章也是乐趣之一!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f50942a34.webp" width="600" alt="switch《荧幕判官 Behind the Screen》中文版nsp下载+1.0.2补丁" /></p> <p>　　开发团队</p> <p>　　光穹游戏 (18Light Game) 起源于 2012 年，一群拥有游戏梦想的台湾学生从 18 楼合租宿舍中创立。 「用一杯咖啡的时间，让人们换取一段不平凡的旅程。」是光穹游戏开发游戏的初衷。光穹游戏开发的游戏都与冒险有关，秉持创作出让玩家「一起分享乐趣」、「一同讨论剧情」的游戏。在剧情当中融合社会议题，让玩家在享受娱乐之余，还能思索深刻的故事。未来，我们期许以资讯搭载娱乐，透过游戏改变人们的生活。</p> <p><h4>下载地址(由网友<font color="red">aodeog</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101455/](https://lad.sfcrom.cn/2024/04/101455/)

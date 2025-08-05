@@ -1,0 +1,13 @@
+---
+title: "PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4!《Laika: Aged Through Blood》是一款以末世废土为背景的西部风格摩托冒险游戏。它讲述了一个饱受占领军压迫的部落的故事，同时也是一位土狼母亲无尽的复仇之旅，作为战士，她要夺回族人&hellip;"
+layout: post
+---
+
+ <p>　　PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4!《Laika: Aged Through Blood》是一款以末世废土为背景的西部风格摩托冒险游戏。它讲述了一个饱受占领军压迫的部落的故事，同时也是一位土狼母亲无尽的复仇之旅，作为战士，她要夺回族人失去的一切。</p> <div> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=277469658&amp;bvid=BV1pw411F7At&amp;cid=1305312199&amp;p=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ba4c1dda1.webp" width="700" alt="PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ba4c78652.webp" width="700" alt="PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ba4cd7148.webp" width="700" alt="PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ba4d3ca0c.webp" width="700" alt="PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ba4da9653.webp" width="700" alt="PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ba4e0c5d0.webp" width="700" alt="PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ba4e6262d.webp" width="700" alt="PC《莱卡：岁月之血 Laika: Aged Through Blood》中文版下载v1.0.4" /></p></div> <p>　　《Laika: Aged Through Blood》是一款以末世废土为背景的西部风格摩托冒险游戏。它讲述了一个饱受占领军压迫的部落的故事，同时也是一位土狼母亲无尽的复仇之旅，作为战士，她要夺回族人失去的一切。</p> <p>　　骑上心爱的小摩托，驾驶、跳跃、战斗，穿越广袤的手绘世界。在废土飞驰，完成危险的跳跃，以子弹时间向敌人射击，再来个后空翻子弹上膛!使用基于技能的强化道具，不断挑战强大的头目!</p> <p>　　驾驶快速灵活的摩托进行战斗。</p> <p>　　极具风格的手绘末世废土。</p> <p>　　关于母女关系、复仇与失去的深刻故事。</p> <p>　　丰富多姿的世界、史诗级头目战以及超多任务。</p> <p>　　首款摩托大冒险!</p> <p><h4>下载地址(由网友<font color="red">18032292362</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50979/](https://lad.sfcrom.cn/2024/03/50979/)

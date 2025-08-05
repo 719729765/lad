@@ -1,0 +1,13 @@
+---
+title: "【GB】《Teenage Mutant Ninja Turtles 2》日版下载"
+date: 2024-03-26
+tags: []
+categories: ["GB/GBC"]
+excerpt: "　　【GB】《Teenage Mutant Ninja Turtles 2》日版下载，本作是根据电影《忍者神龟》改编而成的一款动作冒险类型的游戏，玩家可以任意选择一名角色进行冒险。喜欢的玩家快来下载吧! 　　银河创世纪2联盟(Imperium Galactica II: Alliances)是Dig&hellip;"
+layout: post
+---
+
+ <p>　　【GB】《Teenage Mutant Ninja Turtles 2》日版下载，本作是根据电影《忍者神龟》改编而成的一款动作冒险类型的游戏，玩家可以任意选择一名角色进行冒险。喜欢的玩家快来下载吧!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660285269bc56.png" width="594" alt="【GB】《Teenage Mutant Ninja Turtles 2》日版下载" /></p> <p>　　银河创世纪2联盟(Imperium Galactica II: Alliances)是Digital Reality, Gyroscope Games制作的一款策略游戏。银河创世纪2联盟的单人模式分为战役模式和场景模式。</p> <p>　　游戏信息</p> <p>　　游戏名称：银河创世纪2：联盟</p> <p>　　英文名称：Imperium Galactica II: Alliances</p> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Digital Reality, Gyroscope Games</p> <p>　　游戏发行：THQ Nordic</p> <p>　　游戏平台：PC</p> <p>　　发售时间：1999年12月1日</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6602852811229.png" width="595" alt="【GB】《Teenage Mutant Ninja Turtles 2》日版下载" /></p> <p>　　在战役模式中，你可以选择三个种族：太阳帝国(Solarian Empire)、施那利帝国(Shinari)和卡拉肯帝国(Kra&#39;Han)。在这种模式中，你唯一要做的就是征服其他的种族，成为银河霸主。而三个种族的情况又各有优劣。</p> <p>　　建立一个庞大的银河帝国当然不是一件容易的事，你必须解决许多问题。良好的开局非常重要，在游戏初期，注意将钱用在刀刃上，殖民地扩张必不可少。不要建造不必要的建筑物与战船，发展重点一方面应放在行星扩张船(colozation ship)，在星球的选择上，生产能力与人口增长率高的新行星当然是首选。另一方面还要注重陆地改造船(Terrafoamship)，因为行星陆面的改造能够使你的移民更加适应星球的环境，从而提高新移民星球的潜在人口增长率。</p> <p>　　大家都知道哥伦布发现新大陆对人类历史的发展产生了多么大的影响，而在《银河创世纪Ⅱ》中发现新星就简单多了。你只要按住shift键不动，定义一条路线，在红色雷达周围巡视一周，如果新行星在舰队雷达范围内，就会被发现。需要注意的是，舰队离红色雷达区域越远，本身的雷达可见范围就会缩小，发现新行星的机会便减小了。你可以增强雷达，这便涉及了游戏的另外一个方面&mdash;&mdash;技术研究。</p> <p>　　游戏中的战斗分为空战和地面战。在太空战中，阵形的重要性自不用多说，同时当你的飞船携带了多种武器后，战斗画面的右边会出现武器选项，有时需要关掉一些威力大、射速慢的武器，因为敌人在这些武器到来之前，可能已经被威力小，但射速快的激光所摧毁，白白浪费了弹药。另外飞行高度也同样很重要，你可以通过按住鼠标右键不动往上提做到这一点 。而在地面战中，战斗开始时先看敌人的防御设施在哪些地方，然后将坦克降落在敌人力量薄弱的地点，再来一场坦克大战。同时需要注意的是有的武器不能攻击建筑物，武器的配置要选取好。</p> <p>　　随着你的帝国日益强大，各种各样的特殊事件也会发生，游戏初期就骚扰你的海盗会变本加厉，竟然会抢你的运钞船，这时一般会有两种情况发生，一种就是清剿海盗，到后来你能找到一种能够毁灭整整一个星球的武器。另外，运气好的话，和海盗交战一段时期，海盗头子会要求停战，并愿意将女儿嫁给你，答应的话，其女会向你挑战，击败她，她会成为你的妻子或你的手下，这样你就控制了整个星系的海盗体系，并可在不伤害外交关系的情况下利用海盗攻击别人。另外还有一个叫BROTHERHOOD OF TEARS的组织，早期会不断制造叛乱，到后来他会告诉你在四块神奇的水晶中，隐藏着一个巨大的秘密。你的首要任务就是找到这些水晶，至于是什么秘密，就留给你自己去发掘吧。你还可以雇佣特种兵，他们可以提高你部队的防御力和攻击力。你的星球还会受地震、火山喷发、陨石雨的威胁， 诸如此类&ldquo;好玩&rdquo;的事情会贯穿整个游戏过程。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66028529566e7.png" width="595" alt="【GB】《Teenage Mutant Ninja Turtles 2》日版下载" /></p> <p><h4>下载地址(由网友<font color="red">qqqsaddqwdqwdqwedq</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/37358/](https://lad.sfcrom.cn/2024/03/37358/)

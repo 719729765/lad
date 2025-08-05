@@ -1,0 +1,13 @@
+---
+title: "【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "　　【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】!将永恒的战术角色扮演游戏类型与世界探索和创新的战斗系统相结合，以标志性的香草风格带来独特的史诗奇幻体验。 　　修改效果： 　　maxHP 最大HP 　&hellip;"
+layout: post
+---
+
+ <p>　　【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】!将永恒的战术角色扮演游戏类型与世界探索和创新的战斗系统相结合，以标志性的香草风格带来独特的史诗奇幻体验。</p> <p>　　修改效果：</p> <p>　　maxHP 最大HP</p> <p>　　Max Defence 最高防御力</p> <p>　　Max Hit Rate 最高命中</p> <p>　　Max Evade 最高回避</p> <p>　　Max Critical Rate 最高暴击率</p> <p>　　Max Parry Rate 最高格挡率</p> <p>　　Max Action Speed 最高行动速度</p> <p>　　One Hit Kill 一击必杀</p> <p>　　Infinite Stamina 无限耐力</p> <p>　　Max EXP 最大经验值</p> <p>　　Freeze Time Limit 锁定时间限制</p> <p>　　Money 9999999 on Gain 持有金额获得时9999999</p> <p>　　Infinite Brave 无限英勇值</p> <p>　　使用方法：</p> <p>　　1. 确保 Playstation4 5.05 以上破解(GoldHEN 2.2.2 及以上)</p> <p>　　2. 下载游戏 1.01&nbsp;</p> <p>　　3. 安装对应版本的特定PKG补丁：</p> <p>　　HP0177-CUSA36381_00-UNICORNOVERLORD0-A0101-V0100-FAKE-JSONBASE-505-900.pkg</p> <p>　　4. 使用 FTP 或文件管理器(PS4 Xplorer)导入 CUSA36381_01.01.json 文件到机器内置 /user/data/GoldHEN/cheats/json 目录</p> <p>　　5. 运行游戏，按 SHARE 键呼出 GoldHEN Cheat Menu，根据喜好勾选修改项</p> <p>　　6. 注意：每次使用修改PKG或者json，建议事先使用save mounter/Apollo备份重要进度存档!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec9a84daa.webp" width="700" alt="【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec9b2c67b.webp" width="700" alt="【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec9bd221d.webp" width="700" alt="【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec9c61748.webp" width="700" alt="【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec9d15e49.webp" width="700" alt="【JSON金手指】PS4《圣兽之王君主版 Unicorn Overlord Monarch Edition》港版中文PKG下载【1.01整合版】" /></p> <p>　　这是一部与命运抗争，以爱和羁绊撰写的幻想战记</p> <p>　　ATLUS&times;VANILLAWARE挑战制作，全新的模拟RPG游戏。 作为亡国王子幸存的你将率领解放军， 手持独角兽的戒指举起军旗，拯救落入邪恶手里的世界。</p> <p><h4>下载地址(由网友<font color="red">淘气的包子</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139169/](https://lad.sfcrom.cn/2024/04/139169/)

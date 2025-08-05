@@ -1,0 +1,13 @@
+---
+title: "switch《神之迪欧斯 Asdivine Dios》英文版1.0.1补丁+DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《神之迪欧斯 Asdivine Dios》英文版下载。《神之迪欧斯(Asdivine Dios)》是由Exe Create Inc.制作的一款魔幻复古风的冒险RPG，游戏中玩家将要召集自己的队友，在魔幻背景的游戏世界开始自己的冒险。 实机视频 　　在众神创造的众多世界中，有一个世界充&hellip;"
+layout: post
+---
+
+ <p>　　switch《神之迪欧斯 Asdivine Dios》英文版下载。《神之迪欧斯(Asdivine Dios)》是由Exe Create Inc.制作的一款魔幻复古风的冒险RPG，游戏中玩家将要召集自己的队友，在魔幻背景的游戏世界开始自己的冒险。</p> <p style="text-align: center;"><strong><span style="font-size:20px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=5796395&amp;cid=9410718&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615378885839.webp" width="600" alt="switch《神之迪欧斯 Asdivine Dios》英文版1.0.1补丁+DLC下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615378913ec1.webp" width="600" alt="switch《神之迪欧斯 Asdivine Dios》英文版1.0.1补丁+DLC下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615378988c53.webp" width="563" alt="switch《神之迪欧斯 Asdivine Dios》英文版1.0.1补丁+DLC下载" /></p> <p>　　在众神创造的众多世界中，有一个世界充满了被称为神性的生命。但是，当世界各地爆发了一连串的骚乱，不断蔓延的黑暗威胁着要摧毁它时，弥生，这位神的化身，开始了他的事业，用他自己的双手拯救他创造的世界。他不幸地丧失了自己的神力，他还有成功的希望吗?随着这一神圣的冒险的帷幕拉开，请找出答案!</p> <p>　　拥有一个丰富的故事，一个广阔的世界，充满宝藏的地下城，令人兴奋的回合制战斗，武器的创造，以及更多，包罗万象的RPG体验在这里!此外，无限的敌人和战利品，大量的子任务，甚至是BOSS，将考验你的意志!</p> <p><h4>下载地址(由网友<font color="red">kenlim01</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144515/](https://lad.sfcrom.cn/2024/04/144515/)

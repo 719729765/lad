@@ -1,0 +1,13 @@
+---
+title: "PC《温泉物语 Hot Springs Story》中文版下载（v2.71）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《温泉物语 Hot Springs Story》中文版下载，这是开罗游戏系列的一部作，大家熟悉的模拟经营玩法，这一次大家要经营一家温泉旅馆，吸引更多的游客入住，对这款游戏感兴趣的玩家不要错过哦。 　　游戏类型：模拟经营类(SIM)游戏 　　游戏制作：Kairosoft Co.,Ltd 　　游&hellip;"
+layout: post
+---
+
+ <p>　　PC《温泉物语 Hot Springs Story》中文版下载，这是开罗游戏系列的一部作，大家熟悉的模拟经营玩法，这一次大家要经营一家温泉旅馆，吸引更多的游客入住，对这款游戏感兴趣的玩家不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=681949554&amp;bvid=BV13U4y1f76L&amp;cid=541233552&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a80287cf4.webp" alt="PC《温泉物语 Hot Springs Story》中文版下载（v2.71）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a8035a2c4.webp" alt="PC《温泉物语 Hot Springs Story》中文版下载（v2.71）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a80421c76.webp" alt="PC《温泉物语 Hot Springs Story》中文版下载（v2.71）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a804eb87a.webp" alt="PC《温泉物语 Hot Springs Story》中文版下载（v2.71）" /></td> </tr> </tbody> </table> <p>　　游戏类型：模拟经营类(SIM)游戏</p> <p>　　游戏制作：Kairosoft Co.,Ltd</p> <p>　　游戏发行：Kairosoft Co.,Ltd</p> <p>　　这是一款像素风格的模拟经营游戏，在游戏中玩家将经营一家温泉度假村，你需要合理安排各种设施的布局，为客人们提供完整的服务，还要提高员工的服务质量，让每个客人都能给你满分的评价。</p> <p>　　你需要为你的客户提供各种客房、餐厅、商场和洗澡等各项服务。当然为了顾客的满意度，玩家可以用各种花式来装扮你的旅馆，比如挂上灯笼、种植松树、杜鹃花等。偶尔还可以吸引一些流行歌星之类的贵宾来提高你的旅馆的品味。</p> <p>　　游戏进行一段时间之后会出现购买选项，可以通过购买来获取各种提升类物品，景观，和新增功能(比如扩建，新建筑)。在游戏系统选项中可以选择旋屏或者锁定，可自由选择使用横屏或者竖屏。</p> <p>　　游戏中有相性系统，可以通过菜单查看，相性相合的两个建筑物会有加成效果，具体效果可以通过相性介绍查看。景观是一个十分重要的建筑，可以对建筑提供加成，具体辐射效果在选择安放地点时能够看到。</p> <p>　　游戏内各种各样的游客层，同样可以在菜单中查看和选择，每次能选择三种作为宣传，可以提高此游客层的数量。每种游客层所携带的现金和对旅店带来的效果也各有不同，比如 OL 会触发连住效果，小职员会有拣到东西效果。</p> <p>　　游戏中还有各种事件，通过杂志的投票，也会增加大量金钱获得物品和带来新的东西。投资功能也会有各种各样的效果，随着游戏的推进也会有各种新的投资项目出现，虽然耗资巨大，不过好处同样也是巨大的，不但可以吸引客源，带来新的客层，还有有新的建筑等等。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10 64bit</p> <p>　　处理器: Intel Atom&reg; x7-Z8750</p> <p>　　内存: 1 GB RAM</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 250 MB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《温泉物语 Hot Springs Story》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">33112255</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53647/](https://lad.sfcrom.cn/2024/03/53647/)

@@ -1,0 +1,13 @@
+---
+title: "switch《天使耳语  ANGEL WHISPER》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《天使耳语 ANGEL WHISPER》英文版nsp下载!这是某位神秘失踪的游戏创作者的最后一部作品。交叉现实ADV，以其令人震惊的结论而闻名。 　　1999年由Child-Dream发行的&ldquo;ANGEL WHISPER&rdquo;成为其浏览实际网站时玩死后游戏的系统的主&hellip;"
+layout: post
+---
+
+ <p>　　switch《天使耳语 ANGEL WHISPER》英文版nsp下载!这是某位神秘失踪的游戏创作者的最后一部作品。交叉现实ADV，以其令人震惊的结论而闻名。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4bb10e38b.webp" width="700" alt="switch《天使耳语  ANGEL WHISPER》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4bb18cc43.webp" width="700" alt="switch《天使耳语  ANGEL WHISPER》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4bb20ca94.webp" width="700" alt="switch《天使耳语  ANGEL WHISPER》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4bb297271.webp" width="700" alt="switch《天使耳语  ANGEL WHISPER》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4bb34828b.webp" width="700" alt="switch《天使耳语  ANGEL WHISPER》英文版nsp下载" /></p></div> <p>　　1999年由Child-Dream发行的&ldquo;ANGEL WHISPER&rdquo;成为其浏览实际网站时玩死后游戏的系统的主要话题，提出了一个问题，&ldquo;这真的发生了吗?</p> <p>　　[来自未来的视频信](配音演员：清水爱)</p> <p>　　这不仅仅是一个电子游戏预告片;这是对你的个人请求。</p> <p>　　由于情况，我在游戏发布的同时提出此请求。</p> <p>　　你会玩这个视频游戏到最后吗?</p> <p>　　1999年，我的父亲，游戏设计师汤岛弘明突然从我们的生活中消失了，只留下了一款电子游戏。</p> <p>　　&ldquo;天使耳语&rdquo;...这就是那个电子游戏。</p> <p>　　拜托，我需要你的帮助。</p> <p>　　你会揭开真相吗...代表我?</p> <p>　　[任天堂Switch&trade;重制]</p> <p>　　・完全刷新的图形，包括角色和静止图像。</p> <p>　　・添加了 2023 年的尾声和提示。专为任何人玩到最后而设计。</p> <p>　　・作曲家H.Oshima的&ldquo;墓志铭&rdquo;提供的音乐。此外，重新制作了原版的流行BGM。</p> <p>　　・增加了原作人气角色算命先生莱莎的算命系统。</p> <p>　　[来自创作者]</p> <p>　　这款游戏在 2023 年应我朋友的女儿汤岛美濑的要求进行了改进。</p> <p>　　原创作者汤岛弘明失踪背后的真相至今仍不明朗。没有遗书和线索留下，只有这个游戏，&ldquo;天使耳语&rdquo;。</p> <p>　　创作者不对因玩此视频游戏而可能发生的任何事件负责。</p> <p>　　[故事]</p> <p>　　&ldquo;他为什么会离开这个游戏而消失?</p> <p>　　游戏创作者汤岛突然从这个世界上消失了，唯一留下的只有一款游戏，&ldquo;天使耳语&rdquo;。</p> <p>　　遗作中描绘的内容是汤岛在1998年经历的事件。他加入了一家游戏公司，开始制作基于诺查丹玛斯关于世界末日的预言的游戏。然而，在制作过程中，发生了一件神秘的事情，他失去了同事。</p> <p>　　在游戏中，主角汤岛在推进游戏公司开发的同时，追逐事件的谜团。很快，汤岛面对了一个莫名其妙的实体。</p> <p>　　汤岛在追求什么，他卷入了什么样的事件?他为什么留下这项工作?玩到最后，发现他的最终意图。</p> <p>　　[童梦/故事先生公司]</p> <p>　　自 1997 年以来，他们一直在制作专注于 RPG 和冒险游戏的 PC 游戏，并强调叙事。在他们成功之后，他们成为了一家公司。他们为Nintendo Switch开发的两款冒险游戏都获得了好评如潮，许多人称赞他们的辛酸戏剧。</p> <p>　　《娃娃的伤痕：关于姐姐之谜的心理恐怖故事》《千里之纪夫》</p> <p>　　：日本象棋悬疑视觉小说</p> <p><h4>下载地址(由网友<font color="red">13622464965</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/107450/](https://lad.sfcrom.cn/2024/04/107450/)

@@ -1,0 +1,13 @@
+---
+title: "switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载，这是索尼克系列推出的一部合集，包含了四部作品，都是索尼克系列早期的精品，游戏在原作基础上也加入了一下新内容，西索尼克系列的玩家不要错过。 　　将经典索尼克系列作品浓缩到一起的杰作 　　《索尼克 起源》登场! &hellip;"
+layout: post
+---
+
+ <p>switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载，这是索尼克系列推出的一部合集，包含了四部作品，都是索尼克系列早期的精品，游戏在原作基础上也加入了一下新内容，西索尼克系列的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=426040167&amp;bvid=BV1A3411K7Ug&amp;cid=588315336&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154bbb2d4dc.webp" alt="switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154bbb9a598.webp" alt="switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154bbc15251.webp" alt="switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154bbc8d47c.webp" alt="switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154bbcdc060.webp" alt="switch《索尼克 起源 Sonic Origins》中文版2.0.1补丁+4DLC下载" /></td> </tr> </tbody> </table> <p>　　将经典索尼克系列作品浓缩到一起的杰作</p> <p>　　《索尼克 起源》登场!</p> <p>　　本作包含作为索尼克系列原点的《刺猬索尼克》，《索尼克CD》《刺猬索尼克2》以及《刺猬索尼克3与纳克鲁斯》。</p> <p>　　保持怀旧的点阵画面，适配最新硬件平台，带来更优秀的画面表现与60fps高帧率，带给各位玩家魄力十足的高速动作游戏体验。</p> <p>　　&ldquo;周年庆模式&rdquo;取消了耗尽挑战次数后游戏结束的设定，更易上手，并且除了索尼克之外，还可以使用塔尔斯和纳克鲁斯进行游戏!</p> <p>　　除此之外，本作还包含了游戏体验原汁原味的&ldquo;经典模式&rdquo;，富有挑战性的各种&ldquo;任务&rdquo;，以及记录全世界玩家成绩的&ldquo;排行&rdquo;。</p> <p>　　并且，本作还有许多新增内容。可按剧情顺序游玩的&ldquo;故事模式&rdquo;，以及能使用完成任务获得的金币解锁的&ldquo;博物馆&rdquo;等内容，索尼克粉丝绝对不能错过!</p> <p>　　以上内容就是小编为大家带来的《索尼克 起源 Sonic Origins》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">452910996@qq.com</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143713/](https://lad.sfcrom.cn/2024/04/143713/)

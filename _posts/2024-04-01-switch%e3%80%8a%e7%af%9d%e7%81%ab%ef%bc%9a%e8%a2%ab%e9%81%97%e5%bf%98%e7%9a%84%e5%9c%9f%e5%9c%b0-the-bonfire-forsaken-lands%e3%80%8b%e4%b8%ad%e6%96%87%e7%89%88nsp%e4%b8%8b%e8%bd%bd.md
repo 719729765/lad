@@ -1,0 +1,13 @@
+---
+title: "switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版下载，这是一款生存类型的策略模拟游戏，玩家要在末日后的世界重新建立一个可以生存的基地，感兴趣的玩家不要错过。 　　《篝火：被遗忘的土地(The Bonfire：Forsaken Lands)》是一款带有&hellip;"
+layout: post
+---
+
+ <p>　　switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版下载，这是一款生存类型的策略模拟游戏，玩家要在末日后的世界重新建立一个可以生存的基地，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=53959834&amp;bvid=BV1B4411W7jR&amp;cid=94394165&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9f7d9804.jpg" alt="switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9f84f6ed.jpg" alt="switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9f8c1cfd.jpg" alt="switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9f94106a.jpg" alt="switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9f9a9ddd.jpg" alt="switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版nsp下载" /></td> </tr> </tbody> </table> <p>　　《篝火：被遗忘的土地(The Bonfire：Forsaken Lands)》是一款带有生存要素的模拟类游戏。</p> <p>　　游戏的场景是一个白雪皑皑的营地，其昼夜交替的循环为5分钟，玩家必须在这段时间内收集支援品、修造建筑、管理工人以及制作工具，目的就是在这个夜晚猛兽出没的世界中存活下来。跟该类型游戏可谓是大同小异。</p> <p>　　游戏一开始与环境的互动都非常少，随着游戏的推进，玩家会发现更丰富的游戏内容：比如修建更高级的建筑，与新文明体系展开交易，对抗奇异的怪兽。</p> <p>　　游戏介绍</p> <p>　　建造，发现，制作，生存。</p> <p>　　在积雪的营地建造村落，并通过管理工人和资源以在怪物来袭的夜晚生存下来。慢慢地你会接触到高级建筑和先进工艺，发现新的文明，与他们往来交易，发现古老的秘密。</p> <p>　　游戏特色</p> <p>　　建造你的专属村落，并管理深度模拟</p> <p>　　在猛兽攻击和严酷天气下存活</p> <p>　　极具简约美感的雪景</p> <p>　　每天都有新发现</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9fa0d20c.png" width="354" alt="switch《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版nsp下载" /></p> <p>　　以上内容就是小编为大家带来的《篝火：被遗忘的土地 The Bonfire Forsaken Lands》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">好人短命</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101699/](https://lad.sfcrom.cn/2024/04/101699/)

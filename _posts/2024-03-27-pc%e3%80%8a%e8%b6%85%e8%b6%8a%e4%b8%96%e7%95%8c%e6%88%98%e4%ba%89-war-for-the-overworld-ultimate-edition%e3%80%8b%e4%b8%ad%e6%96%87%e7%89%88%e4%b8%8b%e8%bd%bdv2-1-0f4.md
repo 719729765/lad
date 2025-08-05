@@ -1,0 +1,13 @@
+---
+title: "PC《超越世界战争 War for the Overworld Ultimate Edition》中文版下载v2.1.0f4"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《超越世界战争 War for the Overworld Ultimate Edition》中文版下载v2.1.0f4!对入侵地下城感到烦厌了吗?是时候建立你的了!地下城争夺战是一个地下城管理游戏，包含了你最喜欢的RTS和神模式题材。塑造你的地下城并反攻地面世界吧! 　　对入侵地下城感到疲&hellip;"
+layout: post
+---
+
+ <p>　　PC《超越世界战争 War for the Overworld Ultimate Edition》中文版下载v2.1.0f4!对入侵地下城感到烦厌了吗?是时候建立你的了!地下城争夺战是一个地下城管理游戏，包含了你最喜欢的RTS和神模式题材。塑造你的地下城并反攻地面世界吧!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=3309223&amp;bvid=BV1ks411d7A4&amp;cid=5231279&amp;page=1" width="410"></iframe></p> <p>　　对入侵地下城感到疲倦了吗?是时候建造你自己的了!</p> <p>　　你是否觉得自己在大倒退呢? 觉得在永无止境的任务中，单调地重复将邪恶的家伙开膛破肚，不过都是为了黄金和一对不过好一点点的靴子?你开始想&hellip;&hellip;当英雄是否真的是你的召命呢?那么欢迎来到地下城争夺战!</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3a9729b5.webp" width="700" alt="PC《超越世界战争 War for the Overworld Ultimate Edition》中文版下载v2.1.0f4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3a9cb18a.webp" width="700" alt="PC《超越世界战争 War for the Overworld Ultimate Edition》中文版下载v2.1.0f4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3aa1b64d.webp" width="700" alt="PC《超越世界战争 War for the Overworld Ultimate Edition》中文版下载v2.1.0f4" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3aa8085c.webp" width="700" alt="PC《超越世界战争 War for the Overworld Ultimate Edition》中文版下载v2.1.0f4" /></p></div> <p>　　重塑地下城管理游戏</p> <p>　　在地面世界之下，挖掘并建立你的地下城&mdash;&mdash;这是现代地下城管理游戏的本质精髓。维护你的地下城，扇你的仆人巴掌，任由你建造充满机关的房间和邪恶的仆人的地下城堡垒。这些都将在你的导师&mdash;&mdash;拥有最原始最邪恶的声音的地下城解说员Richard Ridings 的亲自带领下进行!</p> <p>　　使用各种充满邪恶力量的武器</p> <p>　　邪恶力量喜欢有多种选择，那么在邪恶血脉里就够你选的了!你可以在60种房间，咒语，魔药，仪式，防卫与建筑中选择，这些都会随着你游戏内的进度解锁。部署你邪恶的工具来对抗地面上那些所谓正义的英雄，让他们知道入侵地下城要付出的沉重代价。</p> <p>　　征服多种战役模式</p> <p>　　从六种不同的战役模式中，你可以用自己独特的方式来征服你的敌人。在战役模式、小型对战模式、情景模式，多人模式、生存模式以及宠物地下城拓展包(本体中包含宠物地下城中的2关)中选择你想要的，你将体验到什么叫真正的坏人。</p> <p>　　自己设置，创造并和你的敌人分享</p> <p>　　用直观又强大的地图编辑器来建你自己的地图与战役，那可是有编码支持的功能，然后在Steam创意工坊里跟上千张自制地图比个高下。 另外提一点，我们有几十样改动器让你随意调整成你喜欢的游戏规则。做坏人从来没这么有创意吧!</p> <p>　　由疯狂的粉丝为疯狂的粉丝制造</p> <p>　　《地下城争夺战》由一个充满狂热的开发者的独立游戏团队开发，我们的每一个成员都对地下城管理游戏怀着最真挚的情感。自从发布游戏以后，我们一直不断地更新游戏，包括发布补丁，调整游戏数值，提升画面质量以及更多的更新。我们的社区是我们成功的源泉，没有你们的支持，我们也不可能走到今天! 我们衷心感谢广大的玩家。</p> <p><h4>下载地址(由网友<font color="red">wc2293941</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52960/](https://lad.sfcrom.cn/2024/03/52960/)

@@ -1,0 +1,13 @@
+---
+title: "switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版下载，这是一款冒险解密玩法的游戏，玩家要帮助女主角穿过一个被女巫诅咒的森林，一路上你要解决很多有趣的谜题关卡。 　　这是一款由故事驱动的冒险解谜游戏，在游戏中玩家将扮演Scarlet，经过一个被女巫诅&hellip;"
+layout: post
+---
+
+ <p>　　switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版下载，这是一款冒险解密玩法的游戏，玩家要帮助女主角穿过一个被女巫诅咒的森林，一路上你要解决很多有趣的谜题关卡。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=845033254&amp;bvid=BV1Y54y1b76T&amp;cid=321918701&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd592edcd.jpg" alt="switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd59bd26c.jpg" alt="switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd5a5607c.jpg" alt="switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd5ae2822.jpg" alt="switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd5b6b097.jpg" alt="switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　这是一款由故事驱动的冒险解谜游戏，在游戏中玩家将扮演Scarlet，经过一个被女巫诅咒过的森林时不幸被烧死，但是却因为一个神秘魔咒而穿越回了进入森林之前，你能够找到这里面的秘密而顺利穿过女巫森林吗?</p> <p>　　故事介绍</p> <p>　　红被一阵龙卷风扔到了这片陌生的土地。经过一系列意外之后，她需要负责带领一个倒霉的矮人族剧团安全穿过邪恶森林。问题是，坏脾气的黑女巫莱法巴有个习惯，她会把那些想要从她的森林里穿过的游客们烧成灰烬。红被不幸地打败了，但一个法术让她得以重新开始这一天。我们刚刚上路的新手能否继承红女巫的衣袍，鼓起勇气战胜等待着她的每个灾难?</p> <p>　　游戏特色</p> <p>　　解开刺激的谜题。</p> <p>　　在时间循环中活下来。</p> <p><strong>你</strong></p> <p align="center">做出关键决定永久影响的故事走向。</p> <p>　　躲避饥肠辘辘的恶狼。</p> <p>　　欣赏精美的手绘插图。</p> <p>　　用女巫技能躲过侦查。</p> <p>　　根据你的游戏方式解锁多个结局。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd5bbab67.png" width="526" alt="switch《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《红帽仙踪 Scarlet Hood and the Wicked Wood》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">newshiji</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100579/](https://lad.sfcrom.cn/2024/04/100579/)

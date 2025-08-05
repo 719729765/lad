@@ -1,0 +1,13 @@
+---
+title: "switch《终端：灭亡永恒 Endling – Extinction is Forever》中文版1.3.0补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《Endling &ndash; Extinction is Forever》中文版下载，这是一款画风唯美的冒险游戏，游戏的内容很有独立风格，主角是一位狐狸，你要在这个危险的自然界中保护好自己的孩子们。 　　这是一款很有美感的3D横向卷轴游戏，你扮演的是星球上最后一群狐狸中的母狐，你&hellip;"
+layout: post
+---
+
+ <p>　　switch《Endling &ndash; Extinction is Forever》中文版下载，这是一款画风唯美的冒险游戏，游戏的内容很有独立风格，主角是一位狐狸，你要在这个危险的自然界中保护好自己的孩子们。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=727429361&amp;bvid=BV1uS4y1q7Mp&amp;cid=746416108&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615457b582c2.jpg" alt="switch《终端：灭亡永恒 Endling – Extinction is Forever》中文版1.3.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615457bce7c1.jpg" alt="switch《终端：灭亡永恒 Endling – Extinction is Forever》中文版1.3.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615457c36a02.jpg" alt="switch《终端：灭亡永恒 Endling – Extinction is Forever》中文版1.3.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615457ca7c97.jpg" alt="switch《终端：灭亡永恒 Endling – Extinction is Forever》中文版1.3.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615457d14bc9.jpg" alt="switch《终端：灭亡永恒 Endling – Extinction is Forever》中文版1.3.0补丁下载" /></td> </tr> </tbody> </table> <p>　　这是一款很有美感的3D横向卷轴游戏，你扮演的是星球上最后一群狐狸中的母狐，你必须与这无情的世界努力周旋才能让你的幼崽们活下去。你需要猎取食物，喂养你毫无防备的孩子，建造临时避难所，并利用环境躲避星球上最危险的造物：人类。</p> <p>　　游戏介绍</p> <p>　　在这个具有生态意识的冒险中，透过地球上最后一只狐狸的眼睛，体验被人类蹂躏的世界。</p> <p>　　发现人类的破坏力，因为它日复一日地腐蚀、污染和利用自然环境中最珍贵、最有价值的资源。</p> <p>　　探索各种3D横向滚动区域，保护毛茸茸的小动物，喂养它们，看着它们长大，注意它们独特的个性和恐惧，最重要的是，帮助它们生存。</p> <p>　　利用夜晚的掩护悄悄地将小动物引导到更安全的地方。花一天在临时搭建的庇护所中休息，仔细计划下一步行动，因为这可能是你和幼崽的最后一步。</p> <p>　　游戏特色</p> <p>　　基于当前实际问题探索被破坏的环境。</p> <p>　　狩猎其他动物来喂养幼崽，避免成为猎物。</p> <p>　　考验你的生存本能，并参与到情绪化的决定中。</p> <p>　　寻找新巢穴，以免受自然和非自然威胁。</p> <p>　　照顾幼崽，喂养它们并教它们新技能，减少它们的脆弱性。</p> <p>　　存活下去!</p> <p>　　以上内容就是小编为大家带来的《Endling &ndash; Extinction is Forever》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">z112300z</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145657/](https://lad.sfcrom.cn/2024/04/145657/)

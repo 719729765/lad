@@ -1,0 +1,13 @@
+---
+title: "3DS《牧场物语 – 三个村庄的重要伙伴 Bokujou Monogatari – 3-tsu no Sato no Taisetsu na Tomodachi》日版3ds下载"
+date: 2024-03-29
+tags: []
+categories: ["3DS英日游戏"]
+excerpt: "　　3DS《牧场物语 &ndash; 三个村庄的重要伙伴 Bokujou Monogatari &ndash; 3-tsu no Sato no Taisetsu na Tomodachi》日版3ds下载。本作是牧场物语20年的经典纪念作，怀旧的人物主人公，温馨的游戏画面，以及新的人物及功能加入，给&hellip;"
+layout: post
+---
+
+ <p>　　3DS《牧场物语 &ndash; 三个村庄的重要伙伴 Bokujou Monogatari &ndash; 3-tsu no Sato no Taisetsu na Tomodachi》日版3ds下载。本作是牧场物语20年的经典纪念作，怀旧的人物主人公，温馨的游戏画面，以及新的人物及功能加入，给玩家带来的更多的乐趣。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_6606306fd7b74.jpg" width="360" alt="3DS《牧场物语 – 三个村庄的重要伙伴 Bokujou Monogatari – 3-tsu no Sato no Taisetsu na Tomodachi》日版3ds下载" /></p> <p>　　在玩家所生活的牧场周围，存在着文化和生活方式各不相同的三个村子。玩家们可以在这些地方自由出入，和那里的居民们进行交流。</p> <p>　　牧场物语传统的欧式小镇，但是融合了美国西部沙漠的情趣。主人公最初访问的地方，是一个充满野性奔放和自由梦想气氛的地方。这里排列着大量整齐的木制建筑物、豪放排列的石地砖、萌萌的仙人掌，还存在着以前作为矿山小镇而繁荣的各种火车工业遗迹、以及欧洲传统的花卉装饰。此外，这里的居民大多比较开朗外向、擅长社交和与邻为乐。</p> <p>　　『里』是中国和日本古代的乡村、乡镇的意思。很有怀旧的、日本和式风情的村庄、与牧场物语:双子村的此花村略同、并非是纯粹的日本风格，还添加了诸如兼具日式和中式的瓦屋根的建筑物、具有浓厚东亚风格跨过河川的太鼓桥、从南亚印度到东亚韩国都会使用的水田与稻田，都是这里的特点。这里的居民们穿着有汉服的纹样的改良版和服，村子全体都给人一种宁静、仙灵的感觉。</p> <p>　　这是一个拥有着海洋渔猎民族、丛林原住民双重特色的可爱小村子。而它坐落于海边，存在具有神秘气氛的遗迹、充满浓厚异国情调的村庄;在这里可以采集丰富的南国色彩鲜艳的水果、种类繁多海鲜、神秘远古的深水世界。居民们总是穿着绚丽缤纷的民族服装、皮肤是健康的小麦黑，整体气氛与世隔绝、是个充满欢笑活泼的天堂。这种类型的村子在牧场物语的世界观中是首见的。</p> <p>　　经过接近60周的漫长路程，《牧场物语：三个村子的重要伙伴们》的汉化终于迎来了发布的日子!撒花!</p> <p>　　这一路走来，非常感谢汉化组里的每一位成员，更感谢一直在进度贴里支持鼓励我们的诸位小伙伴们。谢谢大家!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_6606307051b5e.jpg" width="600" alt="3DS《牧场物语 – 三个村庄的重要伙伴 Bokujou Monogatari – 3-tsu no Sato no Taisetsu na Tomodachi》日版3ds下载" /></p> <p><h4>下载地址(由网友<font color="red">servant002</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/73816/](https://lad.sfcrom.cn/2024/03/73816/)

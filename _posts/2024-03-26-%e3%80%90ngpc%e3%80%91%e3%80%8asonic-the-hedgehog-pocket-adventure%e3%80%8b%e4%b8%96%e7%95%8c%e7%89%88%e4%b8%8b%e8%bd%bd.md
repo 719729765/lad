@@ -1,0 +1,13 @@
+---
+title: "【ngpc】《Sonic The Hedgehog &#8211; Pocket Adventure》世界版下载"
+date: 2024-03-26
+tags: []
+categories: ["Ngpc游戏"]
+excerpt: "　　【ngpc】《Sonic The Hedgehog - Pocket Adventure》世界版下载，经典的音速索尼克系列，玩家将要在游戏中扮演一个刺猬小子索尼克进行冒险，感兴趣的玩家快来下载吧! 　　《索尼克世代》是由SEGA制作发行的一款动作游戏，《索尼克世代》利用了全新的技术和索尼克系列二&hellip;"
+layout: post
+---
+
+ <p>　　【ngpc】《Sonic The Hedgehog - Pocket Adventure》世界版下载，经典的音速索尼克系列，玩家将要在游戏中扮演一个刺猬小子索尼克进行冒险，感兴趣的玩家快来下载吧!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6602bc7a24056.png" width="652" alt="【ngpc】《Sonic The Hedgehog - Pocket Adventure》世界版下载" /></p> <p>　　《索尼克世代》是由SEGA制作发行的一款动作游戏，《索尼克世代》利用了全新的技术和索尼克系列二十年的精华，玩家们可以在游戏中同时体验到全新的索尼克和经典的索尼克的魅力。游戏中还包括需要解锁才能够游玩的&ldquo;特别舞台&rdquo;，玩家们通过联机联机对战和擦身通信等要素，可以解锁更多的游戏内容。</p> <p>　　本作仍然是讲两个索尼克被紫色怪物偷走，因此它不得不穿越过去的关卡，但是这两个索尼克并不完全相同。掌机上的现代版索尼克与过去16位机时代的索尼克一样，所以两者的区别仅仅在于冲刺速度，攻击方式和海拔高度的不同。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6602bc7adc7a3.png" width="652" alt="【ngpc】《Sonic The Hedgehog - Pocket Adventure》世界版下载" /></p> <p>　　游戏特色</p> <p>　　游戏总共分为三大区域，九个关卡以及4段BOSS战(包含Last)。每一区域都包含两个不同的关卡，需要切换现代、经典两种不同的索尼克来完成。此外，游戏还将包括每关10个总计90个不同的挑战，以及收集散落在关卡各处的红环，作为游戏的主要隐藏要素。完成挑战和收集红环可以解锁音乐和原画集，解锁出来的音乐可以应用于任何一个关卡。同时，完成所有挑战和红环，可以在二周目中使用超级索尼克，并且可以让两名索尼克互相学习对方的技能。</p> <p>　　本作的过关方式于过去的索尼克游戏不大相同，玩家除了完成关卡外，还必须收集散落在游戏各个角落的混沌翡翠，翡翠可以通过剧情获得，也可通过击败特殊BOSS来取得。为了进入下一个区域，玩家必须完成每个关卡至少一个以上的挑战，才能获得该区域的三把&ldquo;时空钥匙&rdquo;，从而解开该区域的BOSS战。LAST战需要玩家收集所有七颗混沌翡翠，并且装入时空齿轮中方可进入。</p> <p>　　本作囊括了自Sonic 1以来20年间的大部分作品中的经典音乐，关卡的背景音乐是对原关卡的音乐进行REMIX。其他音乐则为无改动的原声版，可以解锁。在游戏的Hub World中，玩家可以通过商店购买新的技能，完成关卡所获得的点数可用于购买这些技能。此外玩家还可以在Hub World中与其他人物进行互动，查看记录，欣赏游戏原画和音乐。</p> <p>　　游戏包含在线模式，可以让多名玩家对比关卡成绩，并进行排名，但玩家间彼此不可见。此外还有30秒挑战，让玩家进入任意关卡，在30秒时间内尽可能跑得最远。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6602bc7b9abf6.png" width="654" alt="【ngpc】《Sonic The Hedgehog - Pocket Adventure》世界版下载" /></p> <p><h4>下载地址(由网友<font color="red">kajs</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/38181/](https://lad.sfcrom.cn/2024/03/38181/)

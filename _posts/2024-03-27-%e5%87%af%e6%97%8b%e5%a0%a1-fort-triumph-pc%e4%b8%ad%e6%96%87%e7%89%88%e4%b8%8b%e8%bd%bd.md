@@ -1,0 +1,13 @@
+---
+title: "凯旋堡 Fort Triumph PC中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　凯旋堡 Fort Triumph PC中文版下载。这是一款策略回合制独立游戏，游戏讲述的是一个被神明弃管的魔法世界，这里的山脉全都在魔法核心的推动下飘在空中，魔法渗入土地，世界失去平衡，龙、怪兽与死灵生物全都想统治世界。 　　《凯旋堡(Fort Triumph)》是由以色列特拉维夫开发者制作的一&hellip;"
+layout: post
+---
+
+ <p>　　凯旋堡 Fort Triumph PC中文版下载。这是一款策略回合制独立游戏，游戏讲述的是一个被神明弃管的魔法世界，这里的山脉全都在魔法核心的推动下飘在空中，魔法渗入土地，世界失去平衡，龙、怪兽与死灵生物全都想统治世界。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603811909b1f.webp" width="600" alt="凯旋堡 Fort Triumph PC中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603811979946.webp" width="600" alt="凯旋堡 Fort Triumph PC中文版下载" /></p> <p>　　《凯旋堡(Fort Triumph)》是由以色列特拉维夫开发者制作的一款策略战术游戏。游戏以奇幻世界为背景，战术操作和《幽浮》类似，玩家可以选择野蛮人、圣骑士、游侠、法师四个职业，使用点燃、冷冻、颠覆等能力消灭敌人。游戏还加入大量的互动环境要素，借助树木砸死敌人还是挺有趣的。</p> <p>　　游戏背景</p> <p>　　游戏讲述的是一个被神明弃管的魔法世界，这里的山脉全都在魔法核心的推动下飘在空中，魔法渗入土地，世界失去平衡，龙、怪兽与死灵生物全都想统治世界。</p> <p>　　凯旋堡坐落在魔法能量的顶尖，在这里，大地上的英雄将出发维护世界的秩序。凯旋堡既是志同道合的英雄的根据地，也是对抗怪兽大军的最后据点。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 SP1+ (64bit)</p> <p>　　处理器: Intel I3 4160 processor or equivalent</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: NVIDIA GeForce GT 630 or Equivalent</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制CODEX文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">立日心</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/48926/](https://lad.sfcrom.cn/2024/03/48926/)

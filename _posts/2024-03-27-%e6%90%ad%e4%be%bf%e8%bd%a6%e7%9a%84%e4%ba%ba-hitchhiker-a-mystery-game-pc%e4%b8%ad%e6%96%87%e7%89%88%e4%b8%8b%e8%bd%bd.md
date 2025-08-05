@@ -1,0 +1,13 @@
+---
+title: "搭便车的人 Hitchhiker &#8211; A Mystery Game PC中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　搭便车的人 Hitchhiker - A Mystery Game PC中文版下载。这是一款解谜游戏，背景设在迷失的高速公路上，而你的目标是解开你自己幕后故事的谜题。 　　《搭便车者》是一款解谜游戏，背景设在迷失的高速公路上，而你的目标是解开你自己幕后故事的谜题。你是一名丧失记忆、不知自己去往何&hellip;"
+layout: post
+---
+
+ <p>　　搭便车的人 Hitchhiker - A Mystery Game PC中文版下载。这是一款解谜游戏，背景设在迷失的高速公路上，而你的目标是解开你自己幕后故事的谜题。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=802600772&amp;bvid=BV1Gy4y147Ae&amp;cid=323579193&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66038dba2c653.jpg" width="600" alt="搭便车的人 Hitchhiker - A Mystery Game PC中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66038dbaac146.jpg" width="600" alt="搭便车的人 Hitchhiker - A Mystery Game PC中文版下载" /></p> <p>　　《搭便车者》是一款解谜游戏，背景设在迷失的高速公路上，而你的目标是解开你自己幕后故事的谜题。你是一名丧失记忆、不知自己去往何处的搭便车者，你将多次搭乘便车，横跨奇异又美丽的大地，追查与你亲近的某个人神秘失踪的情况。载你的司机既有坚忍克己的农民，也有下班的女服务员，每个人都有一段故事要讲述。线索浮现，盟友形成，一切都不像看上去那么简单。</p> <p>　　在继续旅途的过程中，你必须解开自己过去的谜团，同时要面对即将到来的危险。《搭便车者》是一段公路历险之旅，通过探索未知世界来找回自我。</p> <p>　　在五段搭便车的旅程中，《搭便车者》横跨奇异又美丽的大地，五个完全不同的陌生人会挑战你对现实的把控能力&hellip;&hellip;甚至可能还有你的人生哲学。</p> <p>　　解开与周边环境相关的谜题，留意线索，以发现你神秘的过去。</p> <p>　　你在与司机对话过程中所做出的选择，会揭示自己的黑暗过去。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 SP1</p> <p>　　处理器: Intel Core i3 2.00 GHz or AMD equivalent</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: NVIDIA GeForce 450 or higher with 1GB Memory</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 8 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制SKIDROW文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">51283206555</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/49888/](https://lad.sfcrom.cn/2024/03/49888/)

@@ -1,0 +1,13 @@
+---
+title: "switch《恋爱少女与守护之盾：Reboot The SHIELD-9》日文版nsp/xci下载【1.04补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci英日游戏"]
+excerpt: "　　switch《恋爱少女与守护之盾：Reboot The SHIELD-9》日文版下载。游戏是恋爱少女与守护之盾完全重制版，追加新剧本 cg和立绘全换。 　　传说アイギス是可以除去世间所有恶的存在。 　　主人公&middot;如月修史所属的组织「アイギス」有着两种不同的面孔。 　　表面是受雇于普通&hellip;"
+layout: post
+---
+
+ <p>　　switch《恋爱少女与守护之盾：Reboot The SHIELD-9》日文版下载。游戏是恋爱少女与守护之盾完全重制版，追加新剧本 cg和立绘全换。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=927024963&amp;bvid=BV1ST4y1w7Tv&amp;cid=236203077&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd555e6913.jpg" alt="switch《恋爱少女与守护之盾：Reboot The SHIELD-9》日文版nsp/xci下载【1.04补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5565d722.jpg" alt="switch《恋爱少女与守护之盾：Reboot The SHIELD-9》日文版nsp/xci下载【1.04补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd556c5fbe.jpg" alt="switch《恋爱少女与守护之盾：Reboot The SHIELD-9》日文版nsp/xci下载【1.04补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5574cc5d.jpg" alt="switch《恋爱少女与守护之盾：Reboot The SHIELD-9》日文版nsp/xci下载【1.04补丁】" /></td> </tr> </tbody> </table> <p>　　传说アイギス是可以除去世间所有恶的存在。</p> <p>　　主人公&middot;如月修史所属的组织「アイギス」有着两种不同的面孔。</p> <p>　　表面是受雇于普通家庭至一流企业的保安公司。</p> <p>　　背面是非常时刻使用非法手段保护重要对象的保护屋。</p> <p>　　所属于特殊对象护卫课的新人特工&middot;如月修史，有着从那小小身体里难以想象的运动神经，曾经多次成功保护过重要对象，是未来可期的新人。</p> <p>　　对于这样的修史，新下达的命令是&hellip;&hellip;。</p> <p>　　「女装潜入全宿制女子学园，以女**身份生活并保护对象。」</p> <p>　　&mdash;&mdash;怎么想，都是不合理的命令啊。</p> <p>　　「办不到!怎么可能办得到啊!我可是男人啊!」</p> <p>　　上司温柔地拍拍他的肩膀说道。</p> <p>　　「别担心，你长得这么可爱，肯定没问题!」</p> <p>　　没错。修史不仅身材娇小，还拥有中性的相貌，说话声调也很高。</p> <p>　　一眼看去完全是男孩子气的女孩。</p> <p>　　アイギス完全不顾修史的抗议，将他投入进现场。</p> <p>　　于是修史遇见了。</p> <p>　　作为保护对象的女孩子们&hellip;&hellip;。</p> <p>　　决不能，暴露真实身份。</p> <p>　　决不能，把自己当成男性。</p> <p>　　最后，要把对象保护到底。</p> <p>　　禁断的花园正向以女**&middot;『山田妙子』身份潜入女学园的修史招手。</p> <p>　　所有的一切都被女**们包裹住的美丽的空间。</p> <p>　　已经潜入学园的同行、乱入的敌方特工，整座学园里，每天都充斥着惊心动魄。</p> <p>　　修史努力的女装，像个普通女**般，时而享受学园祭，时而练习料理，并暗中守护着保护对象们。</p> <p>　　最终，修史能否保护住她们呢?</p> <p>　　如月修史和女孩子们奇妙学园生活正式开幕啦。</p> <p><h4>下载地址(由网友<font color="red">sinoai</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/120869/](https://lad.sfcrom.cn/2024/04/120869/)

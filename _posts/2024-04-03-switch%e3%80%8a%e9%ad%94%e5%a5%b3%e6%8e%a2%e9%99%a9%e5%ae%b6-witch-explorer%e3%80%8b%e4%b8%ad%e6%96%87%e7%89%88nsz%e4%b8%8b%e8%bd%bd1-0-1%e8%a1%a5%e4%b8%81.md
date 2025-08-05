@@ -1,0 +1,13 @@
+---
+title: "switch《魔女探险家 Witch Explorer》中文版nsz下载+1.0.1补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《魔女探险家 Witch Explorer》中文版nsz下载，这是一款俯视视角的动作射击游戏，在玩法上海加入了塔防元素，丰富的关卡内容等你来探索，感兴趣的玩家一定不要错过哦。 　　类型:休闲,独立,策略 　　开发商:Pico Games 　　发行商:Pico Games 　　魔女探险家混&hellip;"
+layout: post
+---
+
+ <p>switch《魔女探险家 Witch Explorer》中文版nsz下载，这是一款俯视视角的动作射击游戏，在玩法上海加入了塔防元素，丰富的关卡内容等你来探索，感兴趣的玩家一定不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=977454689&amp;bvid=BV1u44y1J7oM&amp;cid=465243010&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d63acda6.webp" alt="switch《魔女探险家 Witch Explorer》中文版nsz下载+1.0.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d641f00a.webp" alt="switch《魔女探险家 Witch Explorer》中文版nsz下载+1.0.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d64864d3.webp" alt="switch《魔女探险家 Witch Explorer》中文版nsz下载+1.0.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d658a28f.webp" alt="switch《魔女探险家 Witch Explorer》中文版nsz下载+1.0.1补丁" /></td> </tr> </tbody> </table> <p>　　类型:休闲,独立,策略</p> <p>　　开发商:Pico Games</p> <p>　　发行商:Pico Games</p> <p>　　魔女探险家混合了弹幕射击与塔防要素，于关卡中打倒敌人，蒐集素材与金币来强化角色吧!</p> <p>　　简单的规则与操作，却有着多样的战略可能性!</p> <p>　　世界观：</p> <p>　　媞亚的魔法道具店背负了高额的负债，就连房子的一部分与贵重的魔导书都因此被拿去作为抵押&hellip;</p> <p>　　在遥远的土地上有着一处栖息着危险的魔物、被称为「不归洞窟」的秘境，传说埋藏了大量的宝藏。</p> <p>　　「去探索秘境、获得宝藏，我们就可以把家买回来了!」</p> <p>　　媞亚与魔法生命体朵露的寻宝冒险就要开始了!</p> <p>　　游戏特色</p> <p>　　融合了弹幕射击与塔防战略的游戏体验</p> <p>　　7种可升级的精灵(防御塔)</p> <p>　　8种各有特色的魔王战</p> <p>　　一起见证两人的故事吧</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 or later</p> <p>　　处理器: Intel Core i5 or higher</p> <p>　　内存: 4 GB RAM</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d65d5739.webp" width="672" alt="switch《魔女探险家 Witch Explorer》中文版nsz下载+1.0.1补丁" /></p> <p>　　关于这款游戏就为大家介绍到这里了，喜欢这个类型的话可以来试试哦。</p> <p><h4>下载地址(由网友<font color="red">wearoom</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124635/](https://lad.sfcrom.cn/2024/04/124635/)

@@ -1,0 +1,13 @@
+---
+title: "PC《堕落军团：复仇者 Fallen Legion Revenants》英文版下载（v1.15.5）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《堕落军团：复仇者 Fallen Legion Revenants》英文版下载，这是一款角色扮演游戏，讲述了一个奇幻风格的故事，双主角的剧情模式，玩家通过选择可以体验到不同的结局，感兴趣的玩家不要错过。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Yummy Yummy Tummy&hellip;"
+layout: post
+---
+
+ <p>　　PC《堕落军团：复仇者 Fallen Legion Revenants》英文版下载，这是一款角色扮演游戏，讲述了一个奇幻风格的故事，双主角的剧情模式，玩家通过选择可以体验到不同的结局，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=855699968&amp;bvid=BV1gV4y1n7VD&amp;cid=767863274&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035343722ee.jpg" alt="PC《堕落军团：复仇者 Fallen Legion Revenants》英文版下载（v1.15.5）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035343e8624.jpg" alt="PC《堕落军团：复仇者 Fallen Legion Revenants》英文版下载（v1.15.5）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035344696ab.jpg" alt="PC《堕落军团：复仇者 Fallen Legion Revenants》英文版下载（v1.15.5）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035344d4551.jpg" alt="PC《堕落军团：复仇者 Fallen Legion Revenants》英文版下载（v1.15.5）" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Yummy Yummy Tummy, Inc.</p> <p>　　游戏发行：NIS America, Inc.</p> <p>　　你的选择将决定许多人的命运!世界被瘴气笼罩，残余的人类在一个由疯子统治的浮空城堡中避难。</p> <p>　　在这款实时动作 RPG 游戏中，你可以作为狡猾的卢西恩在威尔金城堡内操纵事件，也可以作为复仇的罗薇娜在下面的荒地中对抗怪物。</p> <p>　　故事介绍</p> <p>　　在一个被瘴气笼罩的世界里，漂浮的城堡是人类最后的避难所。地球上布满了因瘟疫而变异的野兽，而维尔金城堡则与下面的恐怖隔离开来。卢西恩，一个魅力四射的政治家，被保护在城堡的墙壁里，发现了一本古书，在那里他学到了榜样，可以变成有意识的士兵的武器。他加入了冰雪睿的队伍，一个决心想办法复活来抚养她活着的儿子的亡魂，两人不情愿地达成协议，推翻控制韦尔金的疯狂暴君。</p> <p>　　游戏特色</p> <p>　　1、新作《堕落军团：复仇者》和前作一样采用双主角系统，玩家可以操作在荒野中复仇的Rowena。</p> <p>　　2、这款游戏加入了新颖的2.5D的精美画质，配合了不同的华丽的武器烦一起来挑战自我。</p> <p>　　3、多种不同的新鲜的无比沁入人心的格局，一起来掌握最极致的恶魔的格局，就是这么带感。</p> <p>　　4、丰富的画面感，一起来挑战最有力量感的玩法，加入了最新颖刺激的玩法，无比的酸爽。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 64bit or later</p> <p>　　处理器: Intel Core i3-4170</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 460</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《堕落军团：复仇者 Fallen Legion Revenants》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">daldiongaz</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40696/](https://lad.sfcrom.cn/2024/03/40696/)

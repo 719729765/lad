@@ -1,0 +1,13 @@
+---
+title: "switch《Pixel Game Maker 系列：狼姬辉夜》英文版nsp+xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《Pixel Game Maker 系列：狼姬辉夜 Pixel Game Maker Series Werewolf Princess Kaguya》!这是一款类似于街机的高紧张度的垂直卷轴动作游戏。 　　每个阶段10分钟! 竖版卷轴动作游戏来了! 『狼姬辉夜』是对平安时代的怀旧点式&hellip;"
+layout: post
+---
+
+ <p>　　switch《Pixel Game Maker 系列：狼姬辉夜 Pixel Game Maker Series Werewolf Princess Kaguya》!这是一款类似于街机的高紧张度的垂直卷轴动作游戏。</p> <p>　　每个阶段10分钟! 竖版卷轴动作游戏来了! 『狼姬辉夜』是对平安时代的怀旧点式描写。你可以同时使用辉夜和狼姬来战略性地征服舞台。这是一款类似于街机的高紧张度的垂直卷轴动作游戏。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a77519ef00.jpg" alt="switch《Pixel Game Maker 系列：狼姬辉夜》英文版nsp+xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a775227461.jpg" alt="switch《Pixel Game Maker 系列：狼姬辉夜》英文版nsp+xci下载" /></td> </tr> </tbody> </table> <p>　　关于这款游戏</p> <p>　　■故事</p> <p>　　为了阻止月之女王辉夜母亲入侵地球的行为</p> <p>　　被诅咒成狼姬的辉夜，站了起来。</p> <p>　　以平安时代为背景，母女俩展开了一场跨越宇宙的惨烈战斗!</p> <p>　　■辉夜和狼姬</p> <p>　　辉夜可以进行两种攻击：砍杀(近战)和射击(远程)。当你打败敌人时，张力表就会充满，你可以 你可以变成一只狼。 狼只允许攻击近战。它的攻击力非常高，击败敌人就可以恢复自己的HP。当你被敌人包围的时候，你可以反过来对付他们。</p> <p>　　■技巧</p> <p>　　击败敌人获得经验，当舞台被清空或游戏结束时获得等级。 当你等级达到一定程度时，可以获得SKILL POINT。</p> <p>　　通过设置 &quot;减伤&quot;、&quot;增加火力伤害 &quot;等技能来强化辉夜。</p> <p>　　■武器</p> <p>　　当你清除一定的条件后，就可以解锁武器。</p> <p>　　不同的武器根据阶段的不同，有不同的攻击力和范围。有策略地使用它。 你也可以使用GOLD来提升等级。种植自己喜欢的武器。</p> <p>　　■阶段</p> <p>　　每个阶段的时间约为10分钟，所以你可以轻松地玩。地图上有一些门和开关，在击败敌人之前是无法打开的。</p> <p>　　有花招的地方，可以让你进入下一关，这样你就可以避开攻击了。</p> <p>　　我们进攻吧 舞台上有一些隐藏的地方，可以进入旁门左道，比如GOLD。</p> <p>　　有宝物，就去寻找，去获取。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7752938d7.jpg" alt="switch《Pixel Game Maker 系列：狼姬辉夜》英文版nsp+xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a77530d931.jpg" alt="switch《Pixel Game Maker 系列：狼姬辉夜》英文版nsp+xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a775380571.jpg" alt="switch《Pixel Game Maker 系列：狼姬辉夜》英文版nsp+xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a775408d09.jpg" alt="switch《Pixel Game Maker 系列：狼姬辉夜》英文版nsp+xci下载" /></td> </tr> </tbody> </table> <p><h4>下载地址(由网友<font color="red">CbY394321456</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110660/](https://lad.sfcrom.cn/2024/04/110660/)

@@ -1,0 +1,13 @@
+---
+title: "PC《太空机械模拟器 Space Mechanic Simulator》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《太空机械模拟器 Space Mechanic Simulator》中文版下载！成为一名太空机械师! 把你的手弄脏，探索太空深处，修理损坏的机器。使用图表和工具诊断问题，进行维修，管理你的资源，看着模拟的机器活起来。或者只是凝视着太阳系的美丽 《太空机械模拟器》不是另一款机械游戏，你的工作只是修&hellip;"
+layout: post
+---
+
+ <p>PC《太空机械模拟器 Space Mechanic Simulator》中文版下载！成为一名太空机械师! 把你的手弄脏，探索太空深处，修理损坏的机器。使用图表和工具诊断问题，进行维修，管理你的资源，看着模拟的机器活起来。或者只是凝视着太阳系的美丽</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=824960009&amp;bvid=BV1yg4y1u7g4&amp;cid=1095740343&amp;page=1" width="410"></iframe></p> <p>《太空机械模拟器》不是另一款机械游戏，你的工作只是修理一些零件。游戏中的所有部件都是模拟的，这使得游戏更加身临其境、栩栩如生。在关闭阀门之前，你不能简单地断开管道，有时你甚至不知道什么地方坏了，直到你查看原理图并使用工具诊断出问题所在。所有这一切都发生在你漂浮在零重力或完全黑暗的环境中，在行星的黑暗面上运行的时候。</p> <div> <p align="center">&nbsp;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b63797a24.webp" width="700" alt="PC《太空机械模拟器 Space Mechanic Simulator》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b637f1826.webp" width="700" alt="PC《太空机械模拟器 Space Mechanic Simulator》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b63862fde.webp" width="700" alt="PC《太空机械模拟器 Space Mechanic Simulator》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b638c96fb.webp" width="700" alt="PC《太空机械模拟器 Space Mechanic Simulator》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b639304b9.webp" width="700" alt="PC《太空机械模拟器 Space Mechanic Simulator》中文版下载" /></p></div> <p>幸运的是，你已经为此做好了充分准备。你的宇航服有一个强大的手电筒和自动推进器，可以在需要时帮助你稳定下来。只要小心不要让氧气、燃料或能量耗尽，因为你必须飞回穿梭机补充一切。当然，你也可以冒点险，把时间花在刀刃上，毕竟时间就是金钱。</p> <p>当然，如果没有经过适当的培训就把一名新宇航员扔到这些工作中，那是非常不专业的。随着游戏的进行，你会解锁一些教程，这些教程可以为你提供新工具和新活动的许可证。你将从简单的机械维修和使用红外摄像机和设备中内置的传感器进行诊断开始，最终逐步升级到电气维修，甚至是设备编程。您还可以通过学习如何开采资源来赚取额外的现金，而不必购买资源。</p> <p>是现实与斗争，还是趣味与虚构？<br />这款游戏的目标是在复杂、压倒性的现实主义和简单、熟悉的乐趣之间取得平衡。你不会修理任何暗物质反应堆或曲速驱动器。相反，你会遇到的许多设备都是基于地球上实际工业中使用的真实设备。你将使用特定的工具测量电信号、温度和压力，将信息与图表进行比较，并根据链接找到问题的根源。</p> <p>太空之美<br />由于游戏发生在太阳系，在《太空机械模拟器》中你看不到五彩斑斓的星云、双星或黑洞。在我们的社区中制作太空游戏时，你不能胡编乱造。幸运的是，你不必这样做。游戏的画面着重强调了天体的巨大规模，而你，一个渺小的人类，正绕着它们在不同的轨道上飞行。你会看到地球表面反射的光线照亮了你的航天飞机，也会看到月球在地球表面投下的阴影，你会从不同于地球表面其他人类的角度观看日食。</p> <p><h4>下载地址(由网友<font color="red">mineservise</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51009/](https://lad.sfcrom.cn/2024/03/51009/)

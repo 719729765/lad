@@ -1,0 +1,13 @@
+---
+title: "PC《韦诺之战 Battle for Wesnoth》中文版下载（v1.16.3）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《韦诺之战 Battle for Wesnoth》中文版下载，这是一款策略战棋类型的游戏，背景设定是一个奇幻的世界。游戏的画风很像经典的英雄无敌系列，关卡的内容也很丰富，感兴趣的玩家可以来试试。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：The Battle for Wesnoth &hellip;"
+layout: post
+---
+
+ <p>　　PC《韦诺之战 Battle for Wesnoth》中文版下载，这是一款策略战棋类型的游戏，背景设定是一个奇幻的世界。游戏的画风很像经典的英雄无敌系列，关卡的内容也很丰富，感兴趣的玩家可以来试试。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=23125212&amp;bvid=BV17p411f7WB&amp;cid=38478330&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a78f209a.jpg" alt="PC《韦诺之战 Battle for Wesnoth》中文版下载（v1.16.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a79765df.jpg" alt="PC《韦诺之战 Battle for Wesnoth》中文版下载（v1.16.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a79ed504.jpg" alt="PC《韦诺之战 Battle for Wesnoth》中文版下载（v1.16.3）" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：The Battle for Wesnoth Project</p> <p>　　游戏发行：Wesnoth Inc.</p> <p>　　韦诺之战是一款以高奇幻为主题的开源回合制策略游戏。从韦尔帝平原，到韦弥尔森林，从纳尔迦矿洞，到高耸入云的心之山脉，参与到跨越数个世纪的十多场冒险中来吧!扮演年轻的王子，逃离步步进逼的巫妖领主的手下，前往海对岸的新家园&hellip;&hellip;钻入最黑暗的地底，铸造火焰之宝石&hellip;&hellip;历遍大陆四方，踏上从篡权的女王手中夺回合法王位的勇敢征途&hellip;&hellip;扮演村庄正被兽人入侵的年轻法师，探求复仇与永生之法&hellip;&hellip;当邪恶死灵法师的亡灵大军开往您的首都之时，与之奋勇作战&hellip;&hellip;率领一群无畏的幸存者，穿越酷热的沙漠，最终面对不可见的邪恶&hellip;&hellip;如何选择，由您决定。</p> <p>　　而后，参与到在线战斗中来吧!从七个完全平衡的派系中选择一个，与您的朋友们在超过50张适合各种玩家人数的多人地图上对战!</p> <p>　　探索几百个由社区制作的充满创造力的单人与多人战役、地图及派系，并试试看制作自己的自定义内容!韦诺拥有内建的地图编辑器、对模组支持良好的引擎、简单而直观的脚本语言，以及友好而投入的模组社区。我们可无法预知您将带来怎样的冒险故事!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 SP1 或更高</p> <p>　　处理器: 双核 2.0 GHz 或更好</p> <p>　　内存: 2 GB RAM</p> <p>　　存储空间: 需要 800 MB 可用空间</p> <p>　　附注事项: 仅支持64位系统</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: 双核 3.2GHz 或更好</p> <p>　　内存: 4 GB RAM</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　附注事项: 仅支持64位系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《韦诺之战 Battle for Wesnoth》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">applepp1105</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51959/](https://lad.sfcrom.cn/2024/03/51959/)

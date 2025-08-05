@@ -1,0 +1,13 @@
+---
+title: "PC《凤凰点：周年版 Phoenix Point Year One Edition》免安装中文版下载（v1.14.3整合DLC）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《凤凰点：周年版 Phoenix Point Year One Edition》免安装中文版下载，这是一款十分出色的策略游戏，非常考验玩家的战术安排，喜欢这个类型游戏的玩家赶快来试试吧。 　　故事介绍 　　地球已经沦陷，一种变异外星威胁即将吞噬人类的最后残余。只有凤凰计划&mdash;&amp;md&hellip;"
+layout: post
+---
+
+ <p>　　PC《凤凰点：周年版 Phoenix Point Year One Edition》免安装中文版下载，这是一款十分出色的策略游戏，非常考验玩家的战术安排，喜欢这个类型游戏的玩家赶快来试试吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=458103198&amp;bvid=BV165411G7Sk&amp;cid=263232126&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660399aca5cf8.jpg" alt="PC《凤凰点：周年版 Phoenix Point Year One Edition》免安装中文版下载（v1.14.3整合DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660399ad0f9c8.jpg" alt="PC《凤凰点：周年版 Phoenix Point Year One Edition》免安装中文版下载（v1.14.3整合DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660399ad83b04.jpg" alt="PC《凤凰点：周年版 Phoenix Point Year One Edition》免安装中文版下载（v1.14.3整合DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660399ae074bb.jpg" alt="PC《凤凰点：周年版 Phoenix Point Year One Edition》免安装中文版下载（v1.14.3整合DLC）" /></td> </tr> </tbody> </table> <p>　　故事介绍</p> <p>　　地球已经沦陷，一种变异外星威胁即将吞噬人类的最后残余。只有凤凰计划&mdash;&mdash;由地球上最聪明的智囊和最勇敢的战士组成的秘密组织&mdash;&mdash;才能击退外星威胁，扭转看似无法挽回的局面。率领凤凰计划研究和开发新的科技与技巧，探索支离破碎的星球，管理资源并与外星生物展开艰苦的战斗，这一切都由你自己决定。</p> <p>　　不过，你并非孤身一人在战斗。人类内部派系林立&mdash;&mdash;新耶利哥、平衡议会、安努门徒教会以及他们的分支旁系，都对潘多拉体有着自己的价值观和看法。你可以通过凤凰点的外交系统与各个派系合作，也可以直接用武力摧毁周围的一切。无论你的选择是什么，这都不是一场轻松的胜利。</p> <p>　　游戏特色</p> <p>　　海量内容- Phoenix Point 的最终版包含 3 个 DLC 内容包(&ldquo;鲜血与钛金&rdquo;、&ldquo;远古遗产&rdquo;和&ldquo;活体武器&rdquo;内容包)，以及大量更新、升级、修正与社区提议制作的新内容。</p> <p>　　变异外星威胁- 与千变万化的外星生物威胁正面对抗，它们甚至会适应你的战术。即使你的小队实力逐渐增强且技术不断进步，战斗中也没有任何喘息之机。</p> <p>　　揭开潘多拉病毒的秘密- Phoenix Point 包含一段错综复杂的故事，具有多种结局，玩家只能通过多次通关游戏才能完全探索故事的全貌。通过探索、外交和研究，揭开一段尘封的历史，了解变异体、潘多拉病毒和凤凰点本身的起源。</p> <p>　　管理外交关系- 凤凰计划并不是唯一试图拯救地球的组织。军国主义的新耶利哥，谜团重重的安努门徒教会，还有痴迷技术的平衡议会，都为玩家的合作准备了独特的回报，当然也为遭到反对准备了应对之计。如何处理与他们的关系，甚至是否要与他们打交道，都由你来决定。</p> <p>　　战场瞄准- 除了指挥单位作战和为单位穿戴装备之外，Phoenix Point 还可让玩家在战斗中直接以士兵的视角进行射击，体验一套独特的自由瞄准系统。瞄准敌人的弱点、武器、贵重物品，或者直接射击敌人的关键部位。</p> <p><h4>下载地址(由网友<font color="red">tomabc1</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51689/](https://lad.sfcrom.cn/2024/03/51689/)

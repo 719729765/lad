@@ -1,0 +1,13 @@
+---
+title: "switch《鳄鱼侦探布罗格 BROK the InvestiGator》中文版nsz下载+1.0.6补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《鳄鱼侦探布罗格 BROK the InvestiGator》中文版nsz下载+1.0.6补丁，这是一款漫画一般的冒险游戏，主角是一只鳄鱼侦探，游戏中的角色也都是各种动物，精彩的剧情可以体验，赶快加入进来吧。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：COWCAT 　　游戏发&hellip;"
+layout: post
+---
+
+ <p>switch《鳄鱼侦探布罗格 BROK the InvestiGator》中文版nsz下载+1.0.6补丁，这是一款漫画一般的冒险游戏，主角是一只鳄鱼侦探，游戏中的角色也都是各种动物，精彩的剧情可以体验，赶快加入进来吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=461230367&amp;bvid=BV1P5411T7uQ&amp;cid=356737393&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d480c8db.webp" alt="switch《鳄鱼侦探布罗格 BROK the InvestiGator》中文版nsz下载+1.0.6补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d487413a.webp" alt="switch《鳄鱼侦探布罗格 BROK the InvestiGator》中文版nsz下载+1.0.6补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d48e0ea4.webp" alt="switch《鳄鱼侦探布罗格 BROK the InvestiGator》中文版nsz下载+1.0.6补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d495a417.webp" alt="switch《鳄鱼侦探布罗格 BROK the InvestiGator》中文版nsz下载+1.0.6补丁" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：COWCAT</p> <p>　　游戏发行：COWCAT</p> <p>　　这是一款剧情向的冒险游戏，完美地混合了动作格斗和案件推理元素。你会选择通过智力去破案&hellip;&hellip;亦或是蛮力呢?</p> <p>　　在这个&ldquo;近赛博朋克&rdquo;背景的未来世界中，动物取代了人类延续了文明的发展。社会顶层的公民都居住在安全的圆顶市区中，而其他底层人士则居住在环境污染严重的郊区。</p> <p>　　布罗格是一名私家侦探(兼职拳击手)，他与亡妻的独子格拉夫相依为命。虽然布罗格对妻子所遭遇的意外事故的记忆已经模糊，但最近发生的一系列事件逐渐让惨剧的真相付出水面&hellip;&hellip;甚至影响到了父子俩的人生。</p> <p>　　他们究竟能否从这个颓废的社会中逆流而上，挑战自己的命运呢?</p> <p>　　游戏特色</p> <p>　　富含深意和饱含情感的剧情故事，角色致敬 80 年代与 90 年代的漫画角色。</p> <p>　　此游戏首开先河混合了经典的&ldquo;冒险游戏&rdquo;元素和&ldquo;砍杀游戏&rdquo;的 RPG 元素!</p> <p>　　完美支持简体中文文本!</p> <p>　　可以通过智力&hellip;&hellip;或者蛮力去解谜!</p> <p>　　你的每个选择都会影响剧情走向!</p> <p>　　提供简单模式：适合只注重剧情的玩家!(可省略战斗)</p> <p>　　升级角色以对抗更强大的敌人和 BOSS!</p> <p>　　合成所搜集到的各个线索以揭开真相!</p> <p>　　游戏内提供各种提示</p> <p>　　支持所有操作模式(鼠标、键盘及游戏手柄)</p> <p>　　两个可游玩角色，可以在游戏中随时切换</p> <p>　　游戏时长高达 15 到 20 个小时</p> <p>　　可以游玩多个周目以解锁多个不同的结局</p> <p>　　全剧本配音(23000 行文本)</p> <p>　　以上内容就是小编为大家带来的《鳄鱼侦探布罗格 BROK the InvestiGator》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">红龙</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124593/](https://lad.sfcrom.cn/2024/04/124593/)

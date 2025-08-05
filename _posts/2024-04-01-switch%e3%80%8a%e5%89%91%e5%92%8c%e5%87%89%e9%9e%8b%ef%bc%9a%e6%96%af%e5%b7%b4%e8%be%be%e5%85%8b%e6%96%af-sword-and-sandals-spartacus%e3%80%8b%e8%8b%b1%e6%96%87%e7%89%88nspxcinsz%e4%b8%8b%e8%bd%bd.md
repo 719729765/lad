@@ -1,0 +1,13 @@
+---
+title: "switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版nsp/xci/nsz下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版下载。这是一款横版像素风格动作游戏。游戏风格复古，采用经典的横版闯关玩法，你可以在游戏中体验到传奇角斗士斯巴达克斯传奇的一生。 　　游戏背景 　　您是斯巴达克斯(Spartacus)，对抗罗马力量&hellip;"
+layout: post
+---
+
+ <p>　　switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版下载。这是一款横版像素风格动作游戏。游戏风格复古，采用经典的横版闯关玩法，你可以在游戏中体验到传奇角斗士斯巴达克斯传奇的一生。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=413528230&amp;bvid=BV1RV411r7Sx&amp;cid=201517913&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a72a03ecb6.webp" alt="switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版nsp/xci/nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a72a095ad0.webp" alt="switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版nsp/xci/nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a72a0f1b7b.webp" alt="switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版nsp/xci/nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a72a15e6d7.webp" alt="switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版nsp/xci/nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a72a1c0003.webp" alt="switch《剑和凉鞋：斯巴达克斯 Sword and Sandals: Spartacus》英文版nsp/xci/nsz下载" /></td> </tr> </tbody> </table> <p>　　游戏背景</p> <p>　　您是斯巴达克斯(Spartacus)，对抗罗马力量的角斗士!</p> <p>　　从残酷的角斗士竞技场中挣脱出来的一个人。一位在古罗马统治最强大军团的人。这是传说中的故事... SPARTACUS!</p> <p>　　现在，这是您第一次在这个激动人心的动作格斗平台游戏中拿起伟人的剑，亲自与罗马作战。</p> <p>　　从卡普阿竞技场下的黑暗地牢，到维苏威火山，甚至更远的山峰，您将与残酷的奴隶司机，灰溜溜的军团士兵和强大的百夫长交战，以释放罗马的奴隶。</p> <p>　　游戏内容</p> <p>　　没有节肢动物的mm头，没有回溯，没有磨削。只有一个人，他的剑和一大群罗马人挡着他的路。</p> <p>　　巨大的动作水平充满了具有挑战性的复古战斗平台。战斗，击剑，拉链衬里，陷阱难以置信。斯巴达克斯将测试您!</p> <p>　　穿越古罗马及其他地区的丰富而详尽的冒险。攀登山脉，探索伟大的城堡，探索沉思的城堡和黑暗的地雷!</p> <p>　　收集神话般的宝藏，并将它们用于升级武器，盾牌和力量!</p> <p>　　简单直观的战斗。用盾牌挡住，扔标枪，在不幸的敌人身上释放剑力。</p> <p>　　美丽的复古像素艺术直接出自1980年代的街机柜。月光下的夜晚充满活力，无风的森林在风中摇曳。</p> <p>　　与罗马士兵，狂犬狂犬，黑社会的恶魔甚至众神本身等数十种不同的敌人作斗争!</p> <p>　　在permadeath模式下测试您的勇气，以应对更多挑战!</p> <p><h4>下载地址(由网友<font color="red">dlhhhv</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/108709/](https://lad.sfcrom.cn/2024/04/108709/)

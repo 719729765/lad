@@ -1,0 +1,13 @@
+---
+title: "PC《蓝精灵2：绿石之囚 (The Smurfs 2 &#8211; The Prisoner of the Green Stone)》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《蓝精灵2：绿石之囚 (The Smurfs 2 - The Prisoner of the Green Stone)》中文版下载!在厉害的蓝精灵团队和精灵聚合器的帮助下，把蓝精灵村庄从绿石的控制下解放出来! 　　关于这款游戏 　　灵灵发明了一件强力道具：聚合器!然而，这件道具缺少了一个关键&hellip;"
+layout: post
+---
+
+ <p>　　PC《蓝精灵2：绿石之囚 (The Smurfs 2 - The Prisoner of the Green Stone)》中文版下载!在厉害的蓝精灵团队和精灵聚合器的帮助下，把蓝精灵村庄从绿石的控制下解放出来!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=280433995&amp;bvid=BV1dc411d7km&amp;cid=1319808971&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc8daaa3d.webp" width="700" alt="PC《蓝精灵2：绿石之囚 (The Smurfs 2 - The Prisoner of the Green Stone)》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc8e27aa2.webp" width="700" alt="PC《蓝精灵2：绿石之囚 (The Smurfs 2 - The Prisoner of the Green Stone)》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc8e8447d.webp" width="700" alt="PC《蓝精灵2：绿石之囚 (The Smurfs 2 - The Prisoner of the Green Stone)》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc8ee4641.webp" width="700" alt="PC《蓝精灵2：绿石之囚 (The Smurfs 2 - The Prisoner of the Green Stone)》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc8f47809.webp" width="700" alt="PC《蓝精灵2：绿石之囚 (The Smurfs 2 - The Prisoner of the Green Stone)》中文版下载" /></p></div> <p>　　关于这款游戏</p> <p>　　灵灵发明了一件强力道具：聚合器!然而，这件道具缺少了一个关键元素，那就是贪婪的格格巫手中的绿石。于是，灵灵和他的团队踏上了从格格巫的实验室中取回这块石头的旅程。但是，石头因为致命的失误而爆炸，碎片散落在了诅咒之地。</p> <p>　　除了向大自然释放神奇的复制和分解物质的力量外，绿石还释放了一心想要建立恐怖统治新秩序的邪恶的斯托拉斯。</p> <p>　　一个由4位蓝精灵组成的优秀团队必须通过各种传送门找到绿石碎片，并在世界陷入混乱之前将它们拼凑在一起。装备精良的蓝精灵可以依靠聚合器和一个意想不到的盟友&mdash;&mdash;格格巫</p> <p>　　基本信息</p> <p>　　来会会人见人爱的蓝精灵团队吧：灵灵、聪聪、呆呆和风风!</p> <p>　　在游戏中首次与格格巫合作，拯救蓝精灵村!使用传送门在诅咒之地上旅行并发现3块全新的未探索地区。</p> <p>　　利用聚合器来体验动态的游戏探索、平台跳跃，甚至是更为激烈的战斗!</p> <p>　　在整个冒险过程中，收集各种资源来获得推进剂并改进聚合器!</p> <p>　　在合作模式中与伙伴，朋友或家人一起开始冒险。</p> <p>　　游戏亮点</p> <p>　　尊重原著的新故事，背景设置在一个精心打造的美丽世界中。</p> <p>　　简单直接的游戏玩法，将为蓝精灵粉丝和动作/平台跳跃游戏的粉丝带来愉悦的体验。</p> <p><h4>下载地址(由网友<font color="red">wj838sk</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51739/](https://lad.sfcrom.cn/2024/03/51739/)

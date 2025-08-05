@@ -1,0 +1,13 @@
+---
+title: "switch《瞬变 加长版 Transient Extended Edition》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《瞬变 加长版 Transient Extended Edition》中文版下载，《瞬变》是一款赛博朋克世界观下的恐怖游戏，这个风格在恐怖游戏类型中非常少见，感兴趣的玩家可以来体验一下哦。 　　一款赛博朋克+克苏鲁风格惊悚游戏，玩家将在一个遥远的未来感受最可怕的恐怖真相。科技发达的年&hellip;"
+layout: post
+---
+
+ <p>　　switch《瞬变 加长版 Transient Extended Edition》中文版下载，《瞬变》是一款赛博朋克世界观下的恐怖游戏，这个风格在恐怖游戏类型中非常少见，感兴趣的玩家可以来体验一下哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=286920912&amp;bvid=BV1cf4y1X7fH&amp;cid=230150533&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a003143393.jpg" alt="switch《瞬变 加长版 Transient Extended Edition》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0031c03c3.jpg" alt="switch《瞬变 加长版 Transient Extended Edition》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a003277521.jpg" alt="switch《瞬变 加长版 Transient Extended Edition》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0032ee967.jpg" alt="switch《瞬变 加长版 Transient Extended Edition》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a00338f278.jpg" alt="switch《瞬变 加长版 Transient Extended Edition》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　一款赛博朋克+克苏鲁风格惊悚游戏，玩家将在一个遥远的未来感受最可怕的恐怖真相。科技发达的年代，诞生出许多超乎现代人想象的黑科技，在这个年代所有人的意识都可以上传至意识网络，而也正因如此诞生了一个可怕的黑客组织，它们玩弄人的意识，操纵人们熟悉的一切。</p> <p>　　故事介绍</p> <p>　　在遥远的，后世界末日的未来中，人类剩下的一切生活在一个封闭的名为圆顶城市普罗维登斯的城堡中，这座城堡的建立是为了在恶劣的外部环境中生存。在这种情况下，人类的最后避难所，兰道夫&middot;卡特(Randolph Carter)，一个臭名昭著的黑客组织ODIN的成员，偶然发现了这个可怕的真理，这个真理可能会破坏他的理智并质疑他的存在。</p> <p>　　游戏特色</p> <p>　　当克苏鲁遇上赛博朋克</p> <p>　　体验克苏鲁的宇宙存在主义与严峻的反乌托邦赛博朋克环境之间前所未有的融合。Transient适应并扩展了这两种流派的精髓，以确保你的体验既熟悉又新鲜。</p> <p>　　发现破碎的现实</p> <p>　　从柯尔舍尔的被遗忘的废街到普罗维登斯平坦的街道，Transient充满了难以忘怀的旅行地点。探索现实，你自己的梦想和虚拟世界，以结识介于两者之间的朋友，敌人和生物。</p> <p>　　逃避自己的现实</p> <p>　　将优美的环境与令人难以忘怀的原始配乐相结合，营造出身临其境的体验。</p> <p>　　执行任务的人</p> <p>　　你担任一位名叫伦道夫&middot;卡特的角色，他是一名装备精良的人。使用你的高级感知增强植入物PHI来调查周围环境，扫描线索并突破所有阻止你发现真相的障碍物。</p> <p>　　这款游戏的相关内容就为大家介绍到这里了，更多精彩内容等着你来发现哦。</p> <p><h4>下载地址(由网友<font color="red">o1416199290</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101025/](https://lad.sfcrom.cn/2024/04/101025/)

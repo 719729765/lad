@@ -1,0 +1,13 @@
+---
+title: "PC《黑暗之眼：回忆 The Dark Eye: Memoria》中文版下载v1.0.1"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《黑暗之眼：回忆 The Dark Eye: Memoria》中文版下载v1.0.1是一款冒险解谜类游戏，整个故事仍然是以Sadja和Staff为主导，一代剧情对本作没有直接影响。 　　日期：2021年1月27日 　　价格：$ 19.99 　　语言：英文，法文，德文，西班牙文，俄文 　　两个故事&hellip;"
+layout: post
+---
+
+ <p>PC《黑暗之眼：回忆 The Dark Eye: Memoria》中文版下载v1.0.1是一款冒险解谜类游戏，整个故事仍然是以Sadja和Staff为主导，一代剧情对本作没有直接影响。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=23876292&amp;bvid=BV1Kp411R7ok&amp;cid=39939151&amp;page=1" width="410"></iframe></p> <hr /> <p>　　日期：2021年1月27日</p> <p>　　价格：$ 19.99</p> <p>　　语言：英文，法文，德文，西班牙文，俄文</p> <hr /> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a33ecc02e.webp" width="500" alt="PC《黑暗之眼：回忆 The Dark Eye: Memoria》中文版下载v1.0.1" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a33f2e1ab.webp" width="500" alt="PC《黑暗之眼：回忆 The Dark Eye: Memoria》中文版下载v1.0.1" /></p> <p>　　两个故事，两个主角，一次史诗般的经历</p> <p>　　两个故事，两个主要角色，一次史诗般的经历：在《回忆》中，玩家经历不同的时间段，同时跟随两个不同的主角：南部的萨达(Sadja)(想成为战争英雄)和捕鸟的Geron(想举起)他女友的诅咒。该游戏结合了具有独特魔术技能的点击游戏。</p> <p>　　南部公主萨贾(Sadja)渴望成为历史上最伟大的英雄，这是无与伦比的愿望&ndash;通过加入并成功完成Aventuria有史以来最大的战争：法师之战，在一片无人居住的沙漠中进行。</p> <p>　　大战结束后，捕鸟器Geron居住了将近450年。Geron永恒的爱Nuri被邪恶的诅咒变成了乌鸦。为了重现她的人形，Geron需要神秘商人Fahi的帮助，后者拥有神奇的力量。但是法希只有同意解决法希在梦中看到的难题，他才愿意帮助杰伦。寻求答案很快会导致一系列事件，这些事件将萨贾和杰隆的故事联系起来，并有可能将现在变成对长期遗忘的过去的冷酷反映。</p> <p>　　Memoria将经典的指向和点击冒险游戏与The Dark Eye(幻想世界中最成功的RPG宇宙之一)的功能结合在一起。指向和点击冒险游戏难题通过添加神奇的功能以及明智的会说话人员而变得独特。在八章中，玩家控制着Sadja和Geron的命运，不由自主地进行互动，并在500多年的时间里架起了桥梁。备忘录中的每一章都有丰富的图形，史诗般的位置，令人兴奋的幻想犯罪故事以及独特的拼图设计，各章之间都有所不同。</p> <p>　　&bull;史诗般的幻想配乐和高品质画外音，让您深入游戏</p> <p>　　&bull;潜入&ldquo;黑眼圈&rdquo;世界，探索神秘的地方，例如龙建造的古庙Draconia</p> <p>　　&bull;在两个不同的时间段中追踪两个独特角色的故事</p> <p>　　&bull;精美的手绘2D背景和高质量的3D游戏角色</p> <p>　　&bull;来自《黑暗之眼》的创造者：《铁链》，《低语的世界》和《 Deponia》</p> <p><h4>下载地址(由网友<font color="red">吉米胡</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52210/](https://lad.sfcrom.cn/2024/03/52210/)

@@ -1,0 +1,13 @@
+---
+title: "switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁"
+date: 2024-04-02
+tags: []
+categories: ["xci英日游戏"]
+excerpt: "switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁，下面为玩家带来的是经典角色扮演游戏传说系列中的一部作品，喜欢日式RPG的玩家不要错过。 　　故事介绍 　　游戏的故事发生在 Sylvarant 大陆，这个大陆由于魔法和生命的能量&hellip;"
+layout: post
+---
+
+ <p>switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁，下面为玩家带来的是经典角色扮演游戏传说系列中的一部作品，喜欢日式RPG的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=798735403&amp;bvid=BV16y4y1m7qG&amp;cid=281385888&amp;page=1" width="410"></iframe></p> <p>　　故事介绍</p> <p>　　游戏的故事发生在 Sylvarant 大陆，这个大陆由于魔法和生命的能量来源&mdash;&mdash; mana 的不断减少而日渐衰弱。随着庄稼的日渐枯萎、人们的生活愈加艰难，这时候人们都把希望放在了一个叫做&ldquo; Chosen One &rdquo;的组织上，他们号称是女神 Martel 的后继者，为了拯救这个世界而四处奔波。而在游戏中你将扮演的是少年罗伊德 ，他将和柯蕾特与自己的同伴门正在为恢复整个大陆的 mana 而努力。为了拯救面临破灭的世界，主人公罗伊德与掌握着世界再生的关键&ldquo;玛娜血族&rdquo;后裔柯蕾特踏上了旅途。但是，他们发现，要保卫自己的世界，就要破坏另一个世界。拯救一个世界，就意味着另一个世界的毁灭。为了寻求拯救两个世界的方法，他们开始了探索的旅程。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5f7f003b.webp" width="700" alt="switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5f85fa61.webp" width="700" alt="switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5f8c896b.webp" width="700" alt="switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5f928067.webp" width="700" alt="switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5f9a309d.webp" width="700" alt="switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bd5fa2c28b.webp" width="700" alt="switch《仙乐传说高清重制版Tales of Symphonia Remastered》中文版nsp下载+1.4补丁" /></p></div> <p>　　游戏特色</p> <p>　　史诗般的生存之战</p> <p>　　史诗般的冒险</p> <p>　　3D实时战斗系统</p> <p>　　高质量的3D杰作</p> <p><h4>下载地址(由网友<font color="red">DJ猪</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/120998/](https://lad.sfcrom.cn/2024/04/120998/)

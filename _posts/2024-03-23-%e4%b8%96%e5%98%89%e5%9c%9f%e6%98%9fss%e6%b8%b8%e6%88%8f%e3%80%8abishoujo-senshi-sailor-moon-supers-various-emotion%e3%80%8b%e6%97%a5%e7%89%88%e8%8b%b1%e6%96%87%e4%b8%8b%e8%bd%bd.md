@@ -1,0 +1,13 @@
+---
+title: "世嘉土星ss游戏《Bishoujo Senshi Sailor Moon SuperS &#8211; Various Emotion》日版英文下载"
+date: 2024-03-23
+tags: []
+categories: ["SS游戏"]
+excerpt: "　　世嘉土星ss游戏《Bishoujo Senshi Sailor Moon SuperS - Various Emotion》日版英文下载，这是一款格斗类游戏，具有独特的玩法、超凡脱俗的音效，推荐给喜欢这类游戏的玩家! 　　《Bishoujo Senshi Sailor Moon SuperS -&hellip;"
+layout: post
+---
+
+ <p>　　世嘉土星ss游戏《Bishoujo Senshi Sailor Moon SuperS - Various Emotion》日版英文下载，这是一款格斗类游戏，具有独特的玩法、超凡脱俗的音效，推荐给喜欢这类游戏的玩家!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240323_65ff02b1d60ee.webp" width="700" alt="世嘉土星ss游戏《Bishoujo Senshi Sailor Moon SuperS - Various Emotion》日版英文下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240323_65ff02b238d5c.webp" width="700" alt="世嘉土星ss游戏《Bishoujo Senshi Sailor Moon SuperS - Various Emotion》日版英文下载" /></p> <p>　　《Bishoujo Senshi Sailor Moon SuperS - Various Emotion》是一款由Angel Studios开发并于1996年在世嘉土星(SS)和索尼PlayStation平台上发布的3D格斗游戏。该游戏以Naoko Takeuchi的少女漫画和动画系列《美少女战士Sailor Moon》为基础，让玩家有机会扮演他们最喜欢的角色进行战斗。</p> <p>　　作为世嘉土星的一款热门游戏，它在当时的32位次世代主机竞争中对玩家产生了巨大吸引力，许多玩家甚至因为它而选择了世嘉的SS。游戏的画质和玩法都得到了高度评价，被认为是世嘉土星平台上最强的画质游戏之一。</p> <p><h4>下载地址(由网友<font color="red">2284552643</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/12521/](https://lad.sfcrom.cn/2024/03/12521/)

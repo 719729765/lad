@@ -1,0 +1,13 @@
+---
+title: "PC《派对之王 The Lord of the Parties》中文版下载（v1.13）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《派对之王 The Lord of the Parties》中文版下载。这是一款2D的角色扮演游戏，很巧妙的在游戏中加入了很多射击的元素，游戏的风格是卡通漫画类型的，感兴趣的玩家可以关注一下哦。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Magic Cube/Dizcon 　　游&hellip;"
+layout: post
+---
+
+ <p>　　PC《派对之王 The Lord of the Parties》中文版下载。这是一款2D的角色扮演游戏，很巧妙的在游戏中加入了很多射击的元素，游戏的风格是卡通漫画类型的，感兴趣的玩家可以关注一下哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=890872630&amp;bvid=BV1JP4y187iy&amp;cid=418341393&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c68c1aa9.jpg" alt="PC《派对之王 The Lord of the Parties》中文版下载（v1.13）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c693f55f.jpg" alt="PC《派对之王 The Lord of the Parties》中文版下载（v1.13）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c69ac8ec.jpg" alt="PC《派对之王 The Lord of the Parties》中文版下载（v1.13）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039c6a28250.jpg" alt="PC《派对之王 The Lord of the Parties》中文版下载（v1.13）" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Magic Cube/Dizcon</p> <p>　　游戏发行：CREST</p> <p>　　这款游戏结合了RPG和射击元素而成的新类型游戏。 组建你自己独自的队伍去探索这个独特的幻想世界吧!</p> <p>　　游戏介绍</p> <p>　　当你早上醒来时，你的队员会自己决定今天做什么。</p> <p>　　对决定不满意或身体状况不佳的队员可以拒绝参加任务。</p> <p>　　您控制整个队伍，而不仅仅是一个单位。</p> <p>　　如果至少有一个人还活着，冒险就可以继续。</p> <p>　　在冒险过程中，你会发现被俘的士兵。拯救他们，他们会很乐意帮助你。</p> <p>　　如果在冒险过程中三个或更多相同的士兵加入队伍，他们将合成为一名更高级别的士兵。</p> <p>　　队员最多可以加入10人。如果超过10人，最弱的士兵离开队伍并独立战斗。</p> <p>　　队员达到二阶以上时使用大招，大招根据等级分三个阶段进化。</p> <p>　　最低配置:</p> <p>　　操作系统: window 7</p> <p>　　处理器: Duo Core Intel or Amd</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: 256mb video memory</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　操作系统: Window 10</p> <p>　　处理器: Quad Core Intel or Amd</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: 512 mb video memory</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《派对之王 The Lord of the Parties》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">虚无之王</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51350/](https://lad.sfcrom.cn/2024/03/51350/)

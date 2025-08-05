@@ -1,0 +1,13 @@
+---
+title: "PC《金属物语：过度杀戮 Metal Tales Overkill》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《金属物语：过度杀戮 Metal Tales Overkill》中文版下载。这是一款有趣的动作冒险游戏，游戏中的角色使用一把吉他作为武器，快节奏的玩法也十分过瘾，赶快来体验一下吧。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Zerouno Games 　　游戏发行：Zerouno&hellip;"
+layout: post
+---
+
+ <p>　　PC《金属物语：过度杀戮 Metal Tales Overkill》中文版下载。这是一款有趣的动作冒险游戏，游戏中的角色使用一把吉他作为武器，快节奏的玩法也十分过瘾，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=927953123&amp;bvid=BV1aK4y1f7F9&amp;cid=260436620&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398c1cabe4.jpg" alt="PC《金属物语：过度杀戮 Metal Tales Overkill》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398c23b9f1.jpg" alt="PC《金属物语：过度杀戮 Metal Tales Overkill》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398c29f08c.jpg" alt="PC《金属物语：过度杀戮 Metal Tales Overkill》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398c313240.jpg" alt="PC《金属物语：过度杀戮 Metal Tales Overkill》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Zerouno Games</p> <p>　　游戏发行：Zerouno Games</p> <p>　　《金属物语：过度杀戮》是一款动作冒险游戏，金属和肾上腺素发生冲突，给你带来终极的三维roguelike吉他射击游戏。与影响你的金属兄弟的迫在眉睫的诅咒作斗争，把他们从一个古老的邪恶中解放出来。</p> <p>　　游戏特色</p> <p>　　50多种物品：为新吉他，弦，踏板，安培，书籍和传票充电</p> <p>　　击败15个不同的敌人</p> <p>　　8吉他老板-终极对决!</p> <p>　　有4种可玩角色可供选择：您是《合金世界》，《铁娘子》还是《黑色安息日》?选择最能识别您的角色!</p> <p>　　3种环境：喜欢探索3种不同的环境，例如Metal Den，Metal Festival和Hell</p> <p>　　6个关卡以无与伦比的能量爆发</p> <p>　　程序生成的级别：体验随机生成的级别以进行游戏。没有会议会是一样的</p> <p>　　本地合作社与朋友一起玩</p> <p>　　任务系统解锁能力并在两次跑步之间升级统计数据</p> <p>　　原声带和国际金属乐队的歌曲-您一定会找到一个新的隐藏的宝石!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: AMD Celeron 3GHz</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: ATI Radeon 1 Gb</p> <p>　　声卡: Integrated soundcard</p> <p>　　推荐配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel Pentium I5</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Nvidia Geforce 1050</p> <p>　　声卡: Creative 2.1 soundcard</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《金属物语：过度杀戮 Metal Tales Overkill》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">13978013405a</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50641/](https://lad.sfcrom.cn/2024/03/50641/)

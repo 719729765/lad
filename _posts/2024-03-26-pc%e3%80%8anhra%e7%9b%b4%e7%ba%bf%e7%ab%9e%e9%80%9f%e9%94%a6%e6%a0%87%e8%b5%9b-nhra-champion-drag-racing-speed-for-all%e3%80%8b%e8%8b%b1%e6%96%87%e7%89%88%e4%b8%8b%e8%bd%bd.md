@@ -1,0 +1,13 @@
+---
+title: "PC《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　switch《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版下载，这是一款赛车竞速游戏，驾驶暴力改装的汽车在直线上创造最快的记录，感兴趣的玩家一定不要错过。 　　游戏类型：赛车竞速类(RAC)游戏 　　游戏制作：Team6 Game&hellip;"
+layout: post
+---
+
+ <p>　　switch《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版下载，这是一款赛车竞速游戏，驾驶暴力改装的汽车在直线上创造最快的记录，感兴趣的玩家一定不要错过。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d5200731.jpg" alt="PC《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d52d16ec.jpg" alt="PC《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d53813d1.jpg" alt="PC《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d5470ab6.jpg" alt="PC《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：赛车竞速类(RAC)游戏</p> <p>　　游戏制作：Team6 Game Studios</p> <p>　　游戏发行：GameMill Entertainment</p> <p>　　NHRA&trade;强势回归&mdash;&mdash;体量、质量远胜以往。《NHRA直线竞速锦标赛》游戏中，坐上驾驶座，系好安全带，畅享集精英团队、炫酷赛道、个性改装与精妙战略于一体的沉浸式体验，以追求终极目标的决心，加冕为Beasts of the Strip&trade;之王。</p> <p>　　游戏介绍</p> <p>　　&bull; 5大NHRA赛车等级：Top Fuel、Funny Car、Pro Stock、Pro Mod和Super Modified</p> <p>　　&bull; 38名顶级NHRA赛车手：Brittany Force、Antron Brown、John Force、Steve Torrence等!</p> <p>　　&bull; NHRA直接许可的真实赛道：Bristol、Las Vegas、Charlotte、Indianapolis、Pomona等。</p> <p>　　&bull; 基于物理原理的直线竞速赛游戏体验，模拟呈现真实世界深度、速度和感觉。</p> <p>　　&bull; 横跨多个游戏内赛季的单人玩家职业生涯模式。</p> <p>　　&bull; 职业生涯模式：团队管理、研发、改装和自定义功能。</p> <p>　　&bull; 采用异步在线多玩家排行系统，点燃竞技激情。</p> <p>　　&bull; 支持多玩家分屏激战，可与好友对战</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10 (64bit version only)</p> <p>　　处理器: Intel i5 7400 @ 3GHz</p> <p>　　内存: 16 GB RAM</p> <p>　　显卡: Nvidia GeForce GTX 1060</p> <p>　　DirectX 版本: 12</p> <p>　　存储空间: 需要 15 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. (如果有setup.exe文件的话)安装游戏</p> <p>　　3. (如果存在crack文件夹的话)复制crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《NHRA直线竞速锦标赛 NHRA Champion Drag Racing Speed For All》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">hyhezzz</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41594/](https://lad.sfcrom.cn/2024/03/41594/)

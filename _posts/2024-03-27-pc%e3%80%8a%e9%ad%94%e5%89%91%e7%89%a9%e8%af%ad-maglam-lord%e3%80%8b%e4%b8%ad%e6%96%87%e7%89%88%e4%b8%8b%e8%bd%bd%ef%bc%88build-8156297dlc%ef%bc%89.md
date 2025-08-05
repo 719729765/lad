@@ -1,0 +1,13 @@
+---
+title: "PC《魔剑物语 MAGLAM LORD》中文版下载（Build.8156297+DLC）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《魔剑物语 MAGLAM LORD》中文版下载，这是一款日式风格的角色扮演游戏，主角不是勇士，而是一名大魔王，玩家要以打造一把魔剑为目标，对这款游戏的内容感兴趣的玩家可以来关注一下哦。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：FELISTELLA Inc. 　　游戏发行：D3P&hellip;"
+layout: post
+---
+
+ <p>　　PC《魔剑物语 MAGLAM LORD》中文版下载，这是一款日式风格的角色扮演游戏，主角不是勇士，而是一名大魔王，玩家要以打造一把魔剑为目标，对这款游戏的内容感兴趣的玩家可以来关注一下哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=754532692&amp;bvid=BV1tk4y1y7Dc&amp;cid=236223958&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039ae92503e.jpg" alt="PC《魔剑物语 MAGLAM LORD》中文版下载（Build.8156297+DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039ae9c57eb.jpg" alt="PC《魔剑物语 MAGLAM LORD》中文版下载（Build.8156297+DLC）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039aea7328a.jpg" alt="PC《魔剑物语 MAGLAM LORD》中文版下载（Build.8156297+DLC）" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：FELISTELLA Inc.</p> <p>　　游戏发行：D3PUBLISHER</p> <p>　　魔王大人是濒危物种!? 斩断这种不合理的命运吧! 濒危物种魔王 &times; 相亲 = 魔剑锻造动作RPG!</p> <p>　　游戏介绍</p> <p>　　主人公作为穷凶恶极的魔王闻名于世，然而从漫长的睡眠中醒来后，却忽然被指定成了&ldquo;濒危物种&rdquo;!</p> <p>　　以完全复活为目标，和伙伴们一起锻造魔剑并战斗吧!</p> <p>　　为了避免绝种，似乎还能够与勇者及合作伙伴&ldquo;相亲&rdquo;&hellip;&hellip;?</p> <p>　　本作的世界观设定・编剧由都月景老师担任，角色设计、插图则是由lack老师负责，是一部由豪华作家阵容打造，并且充满爽快感的全新动作RPG游戏。</p> <p>　　游戏特色</p> <p>　　日系卡通画风</p> <p>　　回合制策略玩法</p> <p>　　丰富的RPG要素</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows10 64bit</p> <p>　　处理器: Intel&reg; Core(TM) i3-4330</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: NVIDIA GeForce GT 1030</p> <p>　　DirectX 版本: 12</p> <p>　　存储空间: 需要 8 GB 可用空间</p> <p>　　声卡: Realtek high definition audio</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows10 64bit</p> <p>　　处理器: Intel&reg; Core(TM) i3-4330</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: NVIDIA GeForce GT 1030</p> <p>　　DirectX 版本: 12</p> <p>　　存储空间: 需要 8 GB 可用空间</p> <p>　　声卡: Realtek high definition audio</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《魔剑物语 MAGLAM LORD》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">a062821742</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52484/](https://lad.sfcrom.cn/2024/03/52484/)

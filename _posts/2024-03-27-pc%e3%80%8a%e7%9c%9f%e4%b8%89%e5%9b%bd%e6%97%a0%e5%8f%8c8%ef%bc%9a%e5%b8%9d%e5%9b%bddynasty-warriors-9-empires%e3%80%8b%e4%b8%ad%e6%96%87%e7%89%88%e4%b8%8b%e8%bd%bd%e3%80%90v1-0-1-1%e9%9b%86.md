@@ -1,0 +1,13 @@
+---
+title: "PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】!融合爽快战斗与攻城略地的策略博弈，帝国系列最新作品登场。帝国独具的&ldquo;三国体验&rdquo;描绘众武将的波澜人生，互夺城池的&ldquo;攻城战&rdquo;将&hellip;"
+layout: post
+---
+
+ <p>　　PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】!融合爽快战斗与攻城略地的策略博弈，帝国系列最新作品登场。帝国独具的&ldquo;三国体验&rdquo;描绘众武将的波澜人生，互夺城池的&ldquo;攻城战&rdquo;将城池周边区域皆化为战场，&ldquo;政略系统&rdquo;活用武将的个性与信赖强化国家，进化后的&ldquo;帝国&rdquo;隆重登场!</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c030ce071.webp" width="700" alt="PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c031410f5.webp" width="700" alt="PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c031ada12.webp" width="700" alt="PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c0320ee12.webp" width="700" alt="PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c0326a091.webp" width="700" alt="PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c032c087e.webp" width="700" alt="PC《真三国无双8：帝国/Dynasty Warriors 9 Empires》中文版下载【v1.0.1.1+集成全DLC】" /></p></div> <p>　　叱诧风云战场，开创精彩人生!</p> <p>　　同时享受一骑当先的爽快战斗与攻城略地的策略博弈，&ldquo;帝国&rdquo;系列新作隆重登场!</p> <p>　　《真・三国无双8 帝国》的亮点</p> <p>　　■活用记略，引领全军攻城略地!精彩刺激的&ldquo;攻城战&rdquo;</p> <p>　　较之迄今为止的系列作品，城池周边的区域皆化为战场，战斗进化为争夺城池的&ldquo;攻城战&rdquo;。顺应瞬息万变的战况，善用计略与武力，追求&ldquo;出谋划策攻城&rdquo;，带你体验全新风格的战斗。</p> <p>　　■凭借武将的个性与信赖来强化国家的&ldquo;政略系统&rdquo;</p> <p>　　通过自身选择与武将交流决定势力兴衰的政略系统将继续登场。玩家可成为君主、武将、在野等身份，体验多姿多彩的人生。此外，在本作中与各路武将的交流也关系着能否建立强国。</p> <p>　　■活出戏剧人生!进化后的&ldquo;编辑功能&rdquo;</p> <p>　　本作同样搭载了帝国系列中为人熟知的&ldquo;编辑功能&rdquo;，可组合喜欢的部件，创建玩家分身的独创自建武将。和《真・三国无双8》中登场的94名无双武将、约700名泛用武将一同参与接连发生的各种事件，让只属于你的&ldquo;三国体验&rdquo;更加充满戏剧性。</p> <p>　　※《真・三国无双8 帝国 Deluxe Edition》亦现正发售中。购买时敬请留意。</p> <p>　　※图片为开发中的内容，可能与实际内容有所差异。</p> <p><h4>下载地址(由网友<font color="red">1258546713</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51741/](https://lad.sfcrom.cn/2024/03/51741/)

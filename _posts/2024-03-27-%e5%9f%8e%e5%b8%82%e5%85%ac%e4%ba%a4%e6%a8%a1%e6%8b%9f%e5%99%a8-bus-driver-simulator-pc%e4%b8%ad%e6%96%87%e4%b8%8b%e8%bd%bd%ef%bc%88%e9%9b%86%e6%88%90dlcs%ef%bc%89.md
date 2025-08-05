@@ -1,0 +1,13 @@
+---
+title: "城市公交模拟器 Bus Driver Simulator PC中文下载（集成DLCs）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　城市公交模拟器 Bus Driver Simulator PC中文下载。这是一款公交车模拟游戏，玩家将成为一名合格的公交车驾驶人员，尝试开着各种类型的公交车，根据时间表完成发车，接待客人，遵守交通规则，帮助市民更加安全的出行。 　　试试自己坐在客车司机的角色吧! 　　严格按照时间表，完成行程围绕&hellip;"
+layout: post
+---
+
+ <p>　　城市公交模拟器 Bus Driver Simulator PC中文下载。这是一款公交车模拟游戏，玩家将成为一名合格的公交车驾驶人员，尝试开着各种类型的公交车，根据时间表完成发车，接待客人，遵守交通规则，帮助市民更加安全的出行。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=754663995&amp;bvid=BV1Mk4y1179r&amp;cid=237139102&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66038d59bed26.jpg" width="600" alt="城市公交模拟器 Bus Driver Simulator PC中文下载（集成DLCs）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66038d5a3521d.jpg" width="600" alt="城市公交模拟器 Bus Driver Simulator PC中文下载（集成DLCs）" /></p> <p>　　试试自己坐在客车司机的角色吧!</p> <p>　　严格按照时间表，完成行程围绕城市及其郊区。遵守交通法规，通过成功地运送乘客来赚钱。在预先设定的条件下完成各种场景，或者在自由模式下建立自己的职业生涯。</p> <p>　　发生在真实的城市中的行动。两个城市：德国科隆和俄罗斯的Serpukhov。</p> <p>　　我们拍摄了城市及其郊区的大部分照片，以尽可能地接近城市的实际建筑和街道。虚拟城市在每一个细节上都是非常精确的。建筑物、公共汽车站和其他物体正好位于它们所在的位置上。</p> <p>　　你想怎么玩就怎么玩!你有选择的自由。</p> <p>　　在你选择的路线上开车，围绕你感兴趣的城市区域。不管你喜欢高速客运还是轻松的慢车驾驶。如果你不喜欢预先设定的时间表，你可以按你的游戏风格定制它。赚钱，买新车，升级。装饰你想要的公共汽车。你肯定会喜欢各种各样的装饰。</p> <p>　　任何体验的停车场。</p> <p>　　你有独特的机会驾驶不同时代和国家的公共汽车。你可以驾驶旧的苏联城市公共汽车和欧洲长途巨人车。</p> <p>　　司机的生活&mdash;&mdash;不仅仅是在路上。</p> <p>　　不要忘了偶尔重新装满你的燃料箱，这样你就不用叫拖车了。准备在四个车库中的一个车库里花费大量的时间，在那里你可以升级你的公共汽车并休息一下。</p> <p>　　每天的动态时间变化。</p> <p>　　我们在游戏中实现了真实的流量。此外，客运量模拟取决于白天的时间。早上有交通堵塞，下午，乘客和车比较少，晚上，几乎没有人在街上，只有路灯照亮道路。</p> <p>　　拓宽你的游戏体验。</p> <p>　　前所未有的现实感驾驶!为了最佳游戏体验，连接你的VR设备、方向盘和脚踏板。</p> <p>　　游戏特色：</p> <p>　　&bull; 有七辆来自不同国家和地区的高规格客车。定期增加新的公共汽车。</p> <p>　　&bull; 重建12平方公里的城市及郊区</p> <p>　　&bull; 可以升级巴士，增加和更换装饰元素。</p> <p>　　&bull; 不同天气的条件，每天的动态时间变化。</p> <p>　　&bull; 各种交通情境：交通堵塞、交通事故、快速颠簸、夜间行车、长途旅行。</p> <p>　　&bull; 驾驶公交车的各种功能。</p> <p>　　&bull; 访问加油站和车库的必要性。</p> <p>　　&bull; 方向盘、游戏手柄和VR设备支持。</p> <p>　　最低配置:</p> <p>　　操作系统: Microsoft&reg; Windows&reg; 7 or later 64-bit os required</p> <p>　　处理器: 1.9ghz Intel i5-equivalent processor or higher</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Nvidia GeForce GTX 460 or similar AMD Radeon (no support for onboard cards)</p> <p>　　DirectX 版本: 11</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 4 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制PLAZA文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">NNKK</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/49470/](https://lad.sfcrom.cn/2024/03/49470/)

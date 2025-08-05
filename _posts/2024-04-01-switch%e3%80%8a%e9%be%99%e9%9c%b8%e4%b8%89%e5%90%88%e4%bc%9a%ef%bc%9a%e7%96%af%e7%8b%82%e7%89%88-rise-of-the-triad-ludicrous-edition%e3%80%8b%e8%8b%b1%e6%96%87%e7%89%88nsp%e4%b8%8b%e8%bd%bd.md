@@ -1,0 +1,13 @@
+---
+title: "switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载!Rise of the Triad： Ludicrous Edition是原始开发商和发行商Apogee Entertainment，New Blood Interact&hellip;"
+layout: post
+---
+
+ <p>　　switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载!Rise of the Triad： Ludicrous Edition是原始开发商和发行商Apogee Entertainment，New Blood Interactive的疯狂头脑以及Nightdive Studios的游戏寻宝者的邪教经典FPS的最终版本，现在首次在Nintendo Switch&trade;上可用!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=572358599&amp;bvid=BV14z4y1e7mY&amp;cid=1163177987&amp;p=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4c1339853.webp" width="700" alt="switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4c139e63f.webp" width="700" alt="switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4c1417caf.webp" width="700" alt="switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4c1486527.webp" width="700" alt="switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4c14de140.webp" width="700" alt="switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4c154612b.webp" width="700" alt="switch《龙霸三合会：疯狂版 Rise of the Triad: Ludicrous Edition》英文版nsp下载" /></p> <p>　　当邪教徒以洛杉矶为目标进行破坏时，只有高风险的联合国特遣部队(代号H.U.N.T.)才能结束他们的恐怖统治。作为五名精英特工之一，每个人都有自己的属性，并潜入邪教修道院以阻止他们的邪恶计划。</p> <p>　　通过 4 种完整的战役模式和扩展包深入了解 ROTT 传说，并从以前丢失的 Beta 版本中探索前所未见的内容。在迷宫般的关卡中奔跑和射击，并使用过分的武器在岛上飞溅可笑的 GIBS。使用游戏世界首款双持手枪设置，让乐趣加倍，或者炸毁标志性的醉酒导弹，用自己的想法观看火箭弹的尾随。将魔法武器与传说中的神剑等魔法武器混合在一起，并用上帝之手在眨眼间删除敌人。</p> <p>　　体验过去和现在的完美结合，每秒 60+ 帧的游戏玩法、经典像素化艺术品升级到高清分辨率、增加的视野、云保存、成就等。通过经典原始音景的多次迭代重现任何三合会崛起体验，或者摇滚重金属 2013 重启配乐 通过包含 ROTT 的原始作弊代码在敌人身上占上风 - 如果你能记住它们!</p> <p><h4>下载地址(由网友<font color="red">15190198815</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/107659/](https://lad.sfcrom.cn/2024/04/107659/)

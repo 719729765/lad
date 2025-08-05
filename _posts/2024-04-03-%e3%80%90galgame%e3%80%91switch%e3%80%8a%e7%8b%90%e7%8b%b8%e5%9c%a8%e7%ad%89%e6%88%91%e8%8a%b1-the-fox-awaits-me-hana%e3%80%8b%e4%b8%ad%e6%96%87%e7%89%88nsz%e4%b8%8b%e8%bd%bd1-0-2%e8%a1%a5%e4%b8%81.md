@@ -1,0 +1,13 @@
+---
+title: "【Galgame】switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.2补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.1补丁!《狐狸在等我》是一部具有多种选择和结局的视觉小说，具有令人惊叹的Live2D动画，并在悲伤、高能量喜剧和咬牙切齿的恐惧之间摇摆不定。 　　当我来到这里时，我在一片竹林里。 　　我处于昏迷状&hellip;"
+layout: post
+---
+
+ <p>　　switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.1补丁!《狐狸在等我》是一部具有多种选择和结局的视觉小说，具有令人惊叹的Live2D动画，并在悲伤、高能量喜剧和咬牙切齿的恐惧之间摇摆不定。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=832761520&amp;bvid=BV1Pg4y1o7rX&amp;cid=1316998381&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d83346f895.webp" width="700" alt="【Galgame】switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8334dbbac.webp" width="700" alt="【Galgame】switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d833542ebd.webp" width="700" alt="【Galgame】switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8335a20c1.webp" width="700" alt="【Galgame】switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d833614178.webp" width="700" alt="【Galgame】switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d833682428.webp" width="700" alt="【Galgame】switch《狐狸在等我花 The Fox Awaits Me HANA》中文版nsz下载+1.0.2补丁" /></p></div> <p>　　当我来到这里时，我在一片竹林里。</p> <p>　　我处于昏迷状态，所以我不知道自己在哪里，也不记得我是谁。</p> <p>　　竹枝上有一个铃铛，在风中摇曳。</p> <p>　　虽然我仍然被它迷住了，但我拿起这个有点奇怪的铃铛，把它挂在脖子上。&ldquo;回家。&rdquo;</p> <p>　　我开始穿过竹林。</p> <p>　　就在这时，风突然在我周围飘动，当我回头看那一刻时，我看到一只苍白的小手。</p> <p>　　&ldquo;师父......是你吗......?</p> <p>　　一个狐狸女孩站在那里。她哭了，看起来很开心。</p> <p>　　狐狸女孩 Shua 在住在池塘附近的森林里时渴望主角 Kaito，山神 Mim 干扰了 Kaito 和 Shua，死神 Karin 不小心差点杀死了 Kaito。</p> <p>　　一旦他们相遇，狐狸和男孩的悲惨命运再次开始行动。</p> <p>　　失去记忆的凯托能反对这种命运吗?</p> <p><h4>下载地址(由网友<font color="red">weidaye</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/123885/](https://lad.sfcrom.cn/2024/04/123885/)

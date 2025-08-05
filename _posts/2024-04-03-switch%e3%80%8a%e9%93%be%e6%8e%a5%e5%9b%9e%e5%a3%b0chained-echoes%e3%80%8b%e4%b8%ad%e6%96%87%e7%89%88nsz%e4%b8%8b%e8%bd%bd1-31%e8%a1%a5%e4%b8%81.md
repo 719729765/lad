@@ -1,0 +1,13 @@
+---
+title: "switch《链接回声(Chained Echoes)》中文版NSZ下载+1.31补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《链接回声(Chained Echoes)》中文版nsz下载【含1.20补丁】！《Chained Echoes》是一款复古角色扮演类游戏，该作将于 2022 年内登陆 Nintendo Switch 平台，有喜欢故事驱动型游戏的小伙伴们不容错过呦~ 　　《Chained Echoes》将&hellip;"
+layout: post
+---
+
+ <p>switch《链接回声(Chained Echoes)》中文版nsz下载【含1.20补丁】！《Chained Echoes》是一款复古角色扮演类游戏，该作将于 2022 年内登陆 Nintendo Switch 平台，有喜欢故事驱动型游戏的小伙伴们不容错过呦~</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=563536340&amp;bvid=BV16v4y1R7GJ&amp;cid=917124113&amp;page=1" width="410"></iframe></p> <p>　　《Chained Echoes》将于 2022 年内登陆 Nintendo Switch。</p> <p>　　拿起你的剑，吟唱你的魔法或登上你的机甲。《Chained Echoes》是一款 16 位 SNES 风格的RPG游戏，背景设置在一个幻想世界中，龙就像被驾驶的机械服一样常见。跟随一群英雄探索这片充满迷人角色、梦幻风景和邪恶敌人的土地吧。你能把和平带给一个世世代代都在战争中挣扎、每个角落都潜伏着背叛的大陆吗?</p> <p>　　《Chained Echoes》是一款故事驱动型游戏，一群英雄在广袤的 Valandis 大陆上旅行，以结束三国之间的战争。在他们的旅程中，他们将遇到各种各样的景观，从风吹日晒的高原、奇异的群岛到沉没的城市和被遗忘的地牢。</p> <p>　　视频地址：https://video.weibo.com/show?fid=1034:4762311584579636</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d814ba1511.webp" width="600" alt="switch《链接回声(Chained Echoes)》中文版NSZ下载+1.31补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d814c418a9.webp" width="600" alt="switch《链接回声(Chained Echoes)》中文版NSZ下载+1.31补丁" /></p> <p>　　以上就是小编给大家带来的全部内容啦，更多信息资讯还请大家持续关注游戏年轮呦~</p> <p><h4>下载地址(由网友<font color="red">scdxnr</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124663/](https://lad.sfcrom.cn/2024/04/124663/)

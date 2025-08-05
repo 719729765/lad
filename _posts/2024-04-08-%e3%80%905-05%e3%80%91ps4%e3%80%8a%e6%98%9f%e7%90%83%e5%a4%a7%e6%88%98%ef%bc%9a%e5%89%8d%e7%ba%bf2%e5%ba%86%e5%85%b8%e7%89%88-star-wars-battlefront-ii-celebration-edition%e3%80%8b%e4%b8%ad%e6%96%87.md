@@ -1,0 +1,13 @@
+---
+title: "【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁"
+date: 2024-04-08
+tags: []
+categories: ["动作中文"]
+excerpt: "【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁！《星球大战前线2》是一款非常好玩的星战系列游戏，作为第一部的后续之作，在各方面均获得了较大提升。下面我们就来看看简单介绍吧！ &amp;nb&hellip;"
+layout: post
+---
+
+ <p>【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁！《星球大战前线2》是一款非常好玩的星战系列游戏，作为第一部的后续之作，在各方面均获得了较大提升。下面我们就来看看简单介绍吧！</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_661358cdf228f.webp" width="401" alt="【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁" /></p> <p align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_661358ce77d27.webp" alt="【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁" /></p> <p>&nbsp;</p> <p align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_661358cee837f.webp" alt="【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁" /></p> <p>&nbsp;</p> <p align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_661358cf50ed4.webp" alt="【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁" /></p> <p>&nbsp;</p> <p align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240408_661358cf98153.webp" alt="【5.05】PS4《星球大战：前线2庆典版 STAR WARS Battlefront II: Celebration Edition》中文版PKG下载+1.49补丁" /></p> <p>　　《星球大战：前线2》是《星球大战：前线》的第二部，在本作中玩家可以扮演绝地和西斯，故事背景为《星球大战前传3：西斯的复仇》，《星球大战：前线》的玩家们对一代的所谓单人模式很不满意，前线2比前作画质更好了。</p> <p>　　万众期待的故事模式是《星战前线2》宣传的一个重要突破口&mdash;&mdash;前作正因为单机剧情部分严重缺失而显得内容太少，让粉丝大为不满。本次标志着EA良心发现的故事模式总共13关，体量还算令人满意。约5、6小时的主线流程里，进行着和《战地1》战役功能相似的&ldquo;单机教学&rdquo;，玩家走马观花式体验了一遍新增的数张地图以及和前作大同小异的载具战。其间卢克天行者、莉亚公主、韩索罗船长和他的千年隼号(没错，能开千年隼!)等原作主角团客串了几个关卡，粉丝惊喜之余也熟悉了本作英雄角色的基本作战套路。而先前呼声很高的宇宙战的加入总算让&ldquo;星球大战&rdquo;实至名归，本作宇宙战场面设计蔚为壮观，小飞机操纵手感平易近人，都是毋庸置疑的好评点。</p> <p>　　和前作一样，二代也不乏让星战迷尖叫的经典场景，如《幽灵威胁》的纳布星首都、《克隆人的进攻》的卡米诺星、《绝地大反击》的恩多战役、《原力觉醒》中的贾库等等，涵盖了新旧电影中的诸多元素。而寒霜引擎对原作中各个星球人文地貌、视觉特效/音效的再现，以及激烈混战时饱满的帧数和不打折的画质依然是本作的最大亮点。但或许是初期优化补丁不完善，某些过场CG播片会出现难以忍受的掉帧和黑帧闪烁(评测机为PS4pro，开启HDR)。</p> <p>　　流程中相当一部分非战斗场景的氛围和细节刻画下了一番功夫(主角叛逃时的帝国根据地、韩索罗的寻人关卡均印象深刻)，加之多人模式下存在一些明显可用于剧情环节的地图，不禁令人想起曾有匿名知情者称本作&ldquo;原本打算做成类似《神海》的冒险游戏&rdquo;后被否决的传言。</p> <p><br />　　以上就是关于这款游戏的详细介绍，希望对玩家们有所帮助。</p> <p><h4>下载地址(由网友<font color="red">allenwalker12345</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/135811/](https://lad.sfcrom.cn/2024/04/135811/)

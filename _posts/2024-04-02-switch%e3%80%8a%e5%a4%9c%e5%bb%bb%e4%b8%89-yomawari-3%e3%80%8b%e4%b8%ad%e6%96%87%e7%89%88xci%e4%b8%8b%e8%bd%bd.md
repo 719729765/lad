@@ -1,0 +1,13 @@
+---
+title: "switch《夜廻三 Yomawari 3》中文版xci下载"
+date: 2024-04-02
+tags: []
+categories: ["xci中文游戏"]
+excerpt: "　　switch《夜廻三 Yomawari 3》日文版下载。这是恐怖冒险游戏夜廻系列的第三部作品，相信玩过这个系列的玩家对它独特的恐怖感的表现手法都印象深刻。第三部将要全新的角色作为主角哦。 　　《夜廻三》新作将会是新的角色作为主角，但主题依旧是可爱的萝莉在深夜的城市街道中冒险，并遇见各种怪异。 　&hellip;"
+layout: post
+---
+
+ <p>　　switch《夜廻三 Yomawari 3》日文版下载。这是恐怖冒险游戏夜廻系列的第三部作品，相信玩过这个系列的玩家对它独特的恐怖感的表现手法都印象深刻。第三部将要全新的角色作为主角哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=464874485&amp;bvid=BV1NL411j74z&amp;cid=461923896&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a3ecb639.jpg" alt="switch《夜廻三 Yomawari 3》中文版xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a3faf27d.jpg" alt="switch《夜廻三 Yomawari 3》中文版xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a4030ded.jpg" alt="switch《夜廻三 Yomawari 3》中文版xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a4083706.jpg" alt="switch《夜廻三 Yomawari 3》中文版xci下载" /></td> </tr> </tbody> </table> <p>　　《夜廻三》新作将会是新的角色作为主角，但主题依旧是可爱的萝莉在深夜的城市街道中冒险，并遇见各种怪异。</p> <p>　　故事背景</p> <p>　　主人公在一个陌生黑暗的森林里醒来</p> <p>　　主人公不知道自己为什么在那个地方</p> <p>　　能想起的是</p> <p>　　放学后的黄昏时分</p> <p>　　来到学校的屋顶</p> <p>　　在森林深处徘徊的主人公</p> <p>　　遇到了没有出现的神秘人物。</p> <p>　　那个人用熟悉的声音说道</p> <p>　　&ldquo;你有着强烈的诅咒&rdquo;</p> <p>　　为了解除诅咒，要在一夜之间</p> <p>　　想起忘记的重要事情......</p> <p>　　为了寻找珍贵的回忆</p> <p>　　主人公令人向毛骨悚然的夜晚街道跑去。</p> <p>　　游戏内容</p> <p>　　年幼的主人公为了解开自己被诅咒的线索&ldquo;回忆&rdquo;，在夜晚的街道上徘徊</p> <p>　　在街道的黑暗中，潜藏着可怕的&ldquo;妖怪&rdquo;</p> <p>　　依靠手电筒的灯光和心脏的跳动，从&ldquo;妖怪&rdquo;手中逃脱，找到失去的回忆。</p> <p>　　主人公只能依靠手中的手电筒，通过在黑暗中照射光线，可以发现有助于探索的&ldquo;妖怪&rdquo;和带有恶意接近的&ldquo;妖怪&rdquo;</p> <p>　　以上内容就是小编为大家带来的《夜廻三 Yomawari 3》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">yplgemini</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/120010/](https://lad.sfcrom.cn/2024/04/120010/)

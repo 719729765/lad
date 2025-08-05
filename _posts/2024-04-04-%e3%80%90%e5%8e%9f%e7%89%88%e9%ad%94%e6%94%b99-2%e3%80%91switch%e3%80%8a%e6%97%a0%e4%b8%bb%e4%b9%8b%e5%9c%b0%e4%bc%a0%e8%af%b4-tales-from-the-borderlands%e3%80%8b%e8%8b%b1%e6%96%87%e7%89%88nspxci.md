@@ -1,0 +1,13 @@
+---
+title: "【原版+魔改9.2】switch《无主之地传说 Tales From The Borderlands》英文版nsp/xci下载"
+date: 2024-04-04
+tags: []
+categories: ["Switch魔改版"]
+excerpt: "　　switch《无主之地传说 Tales From The Borderlands》英文版。《无主之地传说》将围绕两名新主角展开，游戏将从两个不同的角度来讲诉整个故事。 　　深受玩家喜爱、以选择推动剧情的《无主之地》叙事冒险衍生作回归啦!《Tales from the Borderlands》的剧&hellip;"
+layout: post
+---
+
+ <p>　　switch《无主之地传说 Tales From The Borderlands》英文版。《无主之地传说》将围绕两名新主角展开，游戏将从两个不同的角度来讲诉整个故事。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=246826926&amp;bvid=BV1Vv411Y7bk&amp;cid=299999072&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eccd4e5451.jpg" alt="【原版+魔改9.2】switch《无主之地传说 Tales From The Borderlands》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eccd57ba3e.jpg" alt="【原版+魔改9.2】switch《无主之地传说 Tales From The Borderlands》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eccd6038da.jpg" alt="【原版+魔改9.2】switch《无主之地传说 Tales From The Borderlands》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eccd687f5c.jpg" alt="【原版+魔改9.2】switch《无主之地传说 Tales From The Borderlands》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eccd711477.jpg" alt="【原版+魔改9.2】switch《无主之地传说 Tales From The Borderlands》英文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　深受玩家喜爱、以选择推动剧情的《无主之地》叙事冒险衍生作回归啦!《Tales from the Borderlands》的剧情设定在《无主之地2》和《无主之地3》之间，两个完全不靠谱的主角开始了一段充满贪婪但注定不凡的冒险之旅。这段旅途充满了各种意外结果，时而嬉笑怒骂、时而痛彻肺腑，而这段传说的走向将由你的选择来决定。</p> <p>　　玩家将随两位主角一同探索危机四伏的星球Pandora。野心勃勃的企业职员Rhys一心想取代臭名昭著的Hyperion公司掌舵人Handsome Jack，而伶牙俐齿的骗子Fiona那三寸不烂之舌简直可以把死人说活。当一笔神秘交易出现问题之后，Rhys和Fiona各怀鬼胎地选择联手，开始了这段充满邪恶匪徒、残暴强盗和恐怖生物的冒险之旅。在这段追寻Pandora式荣耀的狂野旅程中，你将让二位主角的命运迈向何方?</p> <p>　　包含《Tales from the Borderlands》的所有章节</p> <p>　　以两位全然不同的主角视角来体验冒险旅程：Hyperion马屁精职场男Rhys和伶牙俐齿的江湖骗子Fiona</p> <p>　　每个不同选择都将推动故事走向不同方向;打造出独一无二的专属剧情线，并根据自己的喜好来塑造人物关系</p> <p>　　通过当地居民的视角了解Pandora和Helio，幽默与冲突无处不在</p> <p>　　与《无主之地》系列的老面孔重逢，并结识Rhys的好基友Vaughn和Fiona的聪慧姐妹Sasha等新伙伴</p> <p>　　在这个《无主之地》剧情的重要篇章中见证英雄与恶人的终极命运</p> <p><h4>下载地址(由网友<font color="red">tony8231</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/129503/](https://lad.sfcrom.cn/2024/04/129503/)

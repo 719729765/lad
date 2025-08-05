@@ -1,0 +1,13 @@
+---
+title: "switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载"
+date: 2024-04-07
+tags: []
+categories: ["switch乙女游戏"]
+excerpt: "　　switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载，这是一款乙女向的恋爱冒险游戏，主角拥有重生的能力，剧情上是重生流的模式，很精彩的一个故事，感兴趣的玩家不要错过。 &nbsp; 　　even if TEMPEST是一款乙女类冒险游戏。玩家们被女巫赋予了死而复生的&hellip;"
+layout: post
+---
+
+ <p>　　switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载，这是一款乙女向的恋爱冒险游戏，主角拥有重生的能力，剧情上是重生流的模式，很精彩的一个故事，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=872186947&amp;bvid=BV1jV4y1Y7En&amp;cid=1231641654&amp;page=1" width="410"></iframe></p> <div> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_661221f5ae522.webp" width="700" alt="switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_661221f627a21.webp" width="700" alt="switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_661221f6b0b8d.webp" width="700" alt="switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_661221f72bb0f.webp" width="700" alt="switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载" /></p></div> <p align="center">&nbsp;</p></div> <p>　　even if TEMPEST是一款乙女类冒险游戏。玩家们被女巫赋予了死而复生的能力。所以，在一次次的复生之中我们可以做出不同的选择，和其他角色进行互动。</p> <p>　　此次游戏的CV阵容也很豪华，石川界人，柿原徹也，木岛隆一，杉山纪彰，武内骏辅，千叶翔也，古川慎等将倾情加盟。</p> <p>　　本作题材是重生+魔女审判，出生在侯爵家，每天被继母所折磨的女主拥有「死に戻り」的能力，即死亡回溯，她用这个能力重启了自己的人生，但这只是更大悲剧的开端&hellip;&hellip;</p> <p>　　游戏特色</p> <p>　　各种有趣的挑战在这里等你完成。在这里你必须千方百计突破魔女的魔爪。</p> <p>　　每个角色都经过精心设计，拥有多种有趣的玩法，您可以尝试一下。</p> <p align="center"><img align="" border="0" src="https://a.2023game.com/d/file/p/2022/06-09/40fb5b4a9614a2f82ac20f0754a8c0c5.png" alt="switch《夜中倾诉的魔女 even if TEMPEST》港版中文版nsp下载" /></p> <p>　　多剧情游戏，在这里你可以体验多种剧情，每个剧情都表达着不同的意义和魅力。</p> <p>　　以上内容就是小编为大家带来的《夜中倾诉的魔女 even if TEMPEST》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">cs12252255cs</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/130835/](https://lad.sfcrom.cn/2024/04/130835/)

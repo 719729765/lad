@@ -1,0 +1,13 @@
+---
+title: "switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz/nsp/xci下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz下载。四款地牢探索游戏的合集，感兴趣的玩家不要错过。 　　光明陨落黑暗版是一款暗黑风格ARPG。玩家扮演退伍士兵Nyx，带着女儿Aether逃离黑暗的统&hellip;"
+layout: post
+---
+
+ <p>　　switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz下载。四款地牢探索游戏的合集，感兴趣的玩家不要错过。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6e0a45fff.webp" alt="switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz/nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6e0a93393.webp" alt="switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz/nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6e0af1396.webp" alt="switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz/nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6e0b6214b.webp" alt="switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz/nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6e0bbc71a.webp" alt="switch《迪格拉蒂的礼物：地牢爬行合集 Digerati Presents: The Dungeon Crawl Vol. 1》中文版nsz/nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　光明陨落黑暗版是一款暗黑风格ARPG。玩家扮演退伍士兵Nyx，带着女儿Aether逃离黑暗的统治，前往光明世界。游戏在设定和玩法上借鉴了经典游戏《黑暗之魂》和《ICO》。有爽快的战斗，多样化的武器装备，当然还有数不尽的机关陷阱。虽然是一款动作角色扮演游戏，不过《光明陨落》与同类作品不同的是加入了《黑暗之魂》的体力设定，每一次攻击、躲避翻滚、跑步都会消耗体力。与女儿互动解开谜题也是来自《ICO》的特点。</p> <p>　　《反冒险》是地下城冒险类游戏，不过这个游戏与以往玩家扮演英雄拯救全人类的剧情不太一样，这回玩家扮演的不是英雄，而是控制邪恶生物把来到地下城冒险的英雄一网打尽。游戏采用动态剧情线路，每次的故事剧情都有差别，通向不同的分支。游戏战斗模式是回合制，敌我双方都是3个战斗小队，歼灭对方全部有生力量即为获胜。游戏策略性和随机性并存，可选择的邪恶生物是随机的，刷新机会只有3次。地下城中还会出现宝箱，敌我双方都可以移动到宝箱旁边，开启宝箱获得经验值和战斗加成。游戏元素还是相当丰富的，多样的兵种，包含兵种相克、技能相辅、侧翼加成等机制，可玩性很强。</p> <p>　　《Skelly Selest》是一款像素风的射击冒险类游戏。玩家将进入地狱深处的毁灭，以清除邪恶的死亡之魔尼日领主和他们邪恶的追随者。作为一款Roguelike风格游戏，本作类似《挺进地牢》和《恶魔匕首》的结合体。玩家要面对各种各样的食尸鬼，需要一边躲藏敌人的攻击一边发射子弹攻击敌人。游戏的场景关卡十分丰富，有尸骨平原、血腥花园和灵魂墓地等等。游戏内容十分丰富。在地牢模式中，玩家可以升级角色，解锁更多的角色。而无尽模式中，玩家将面临各种复杂的怪物和boss，十分具有挑战性。游戏还加入了策略的收集卡牌小游戏，灵感基于《最终幻想8》中的卡牌游戏Triple Triad。</p> <p>　　《未勘之地 解锁版》将为你带来富有挑战性和趣味性的地牢体验，足以让你沉迷其中! 设法打倒数以百计的敌人与魔物，斩杀魔龙，寻找传说中的严铎项链!</p> <p><h4>下载地址(由网友<font color="red">wangyao19990216</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124351/](https://lad.sfcrom.cn/2024/04/124351/)

@@ -1,0 +1,13 @@
+---
+title: "switch《费尔克罗夫特的古董：登山者的遗物 Faircroft’s Antiques: The Mountaineer’s Legacy – Collector’s Edition》英文版nsp下"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《费尔克罗夫特的古董：登山者的遗物 Faircroft&rsquo;s Antiques: The Mountaineer&rsquo;s Legacy &ndash; Collector&rsquo;s Edition》英文版下载，这是一款点击式的冒险解谜游戏，是Faircroft&hellip;"
+layout: post
+---
+
+ <p>　　switch《费尔克罗夫特的古董：登山者的遗物 Faircroft&rsquo;s Antiques: The Mountaineer&rsquo;s Legacy &ndash; Collector&rsquo;s Edition》英文版下载，这是一款点击式的冒险解谜游戏，是Faircroft&rsquo;s Antiques系列的一部作品，来尝试一下吧。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9682b4e69.jpg" alt="switch《费尔克罗夫特的古董：登山者的遗物 Faircroft’s Antiques: The Mountaineer’s Legacy – Collector’s Edition》英文版nsp下" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a96835cd02.jpg" alt="switch《费尔克罗夫特的古董：登山者的遗物 Faircroft’s Antiques: The Mountaineer’s Legacy – Collector’s Edition》英文版nsp下" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9683ef581.jpg" alt="switch《费尔克罗夫特的古董：登山者的遗物 Faircroft’s Antiques: The Mountaineer’s Legacy – Collector’s Edition》英文版nsp下" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a968479344.jpg" alt="switch《费尔克罗夫特的古董：登山者的遗物 Faircroft’s Antiques: The Mountaineer’s Legacy – Collector’s Edition》英文版nsp下" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9684f008f.jpg" alt="switch《费尔克罗夫特的古董：登山者的遗物 Faircroft’s Antiques: The Mountaineer’s Legacy – Collector’s Edition》英文版nsp下" /></td> </tr> </tbody> </table> <p>　　米娅&middot;费尔克罗夫特开始了一场新的隐藏物品冒险! 一份新工作将她召唤到山中宁静的滑雪胜地Mont Cache。 但自从一位著名居民去世后，小镇发生了变化，居民将需要他们能得到的一切帮助! 米娅的祖母爱丽丝也带着一个令人惊讶的同伴来了!</p> <p>　　对于米娅&middot;费尔克罗夫特来说，这是法国高地的夏天!在这款隐藏物品游戏中探索风景如画的山腰小镇。探索令人叹为观止的地点，恢复无价之宝，并帮助Mont Cache的各种居民!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a968544d17.png" width="355" alt="switch《费尔克罗夫特的古董：登山者的遗物 Faircroft’s Antiques: The Mountaineer’s Legacy – Collector’s Edition》英文版nsp下" /></p> <p>　　以上内容就是小编为大家带来的《费尔克罗夫特的古董：登山者的遗物 Faircroft&rsquo;s Antiques: The Mountaineer&rsquo;s Legacy &ndash; Collector&rsquo;s Edition》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">ZACK1234</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112140/](https://lad.sfcrom.cn/2024/04/112140/)

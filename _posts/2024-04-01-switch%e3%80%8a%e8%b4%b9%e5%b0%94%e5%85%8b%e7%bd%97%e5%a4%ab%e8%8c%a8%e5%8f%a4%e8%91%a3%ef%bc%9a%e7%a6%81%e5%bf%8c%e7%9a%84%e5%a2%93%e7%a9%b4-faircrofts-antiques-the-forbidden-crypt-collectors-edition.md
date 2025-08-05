@@ -1,0 +1,13 @@
+---
+title: "switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版下载，这是一款冒险解密类型的游戏，经典的点击式玩法，这是这个经典系列的最新版本。 　　当一位老朋友请求米娅帮助修复一座古老的大教&hellip;"
+layout: post
+---
+
+ <p>　　switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版下载，这是一款冒险解密类型的游戏，经典的点击式玩法，这是这个经典系列的最新版本。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8a52a3d54.jpg" alt="switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8a5372cbc.jpg" alt="switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8a5407a64.jpg" alt="switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8a5489e2e.jpg" alt="switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8a552334b.jpg" alt="switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　当一位老朋友请求米娅帮助修复一座古老的大教堂时，她背起行囊前往意大利的海滨小镇纳科斯特港!但她很快就在天堂发现了麻烦--教堂下面的地窖藏着一个久违的秘密，一个强大的家族不顾一切地保留着它。但她很快就发现了天堂里的麻烦--教堂下面的地窖里有一个失传已久的秘密，而一个有权势的家族正急切地想要保守这个秘密。在视觉上令人眼花缭乱的隐藏物品场景中搜索，修复需要爱的艺术品，并在《费尔克罗夫茨古董》中揭示历史遗忘的东西。禁忌的地窖!</p> <p>　　游戏特色</p> <p>　　米娅-费尔克罗夫特开始了新的隐藏物品探索之旅 当一位老朋友要求她帮助修复一座大教堂时，米娅收拾行李前往意大利的海滨小镇纳科斯特港 探索图文并茂的动画地点。</p> <p>　　玩30多个有趣的迷你游戏，每个游戏都以一件艺术作品为中心</p> <p>　　逃到纳科斯特港的夏季海滨天堂!</p> <p>　　与费尔克罗夫特古董店的老朋友重聚，并结识新朋友，他们将在米娅的旅程中提供帮助</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8a556fd1f.png" width="716" alt="switch《费尔克罗夫茨古董：禁忌的墓穴 Faircrofts Antiques The Forbidden Crypt Collectors Edition》英文版nsp/xci下载" /></p> <p>　　这款有趣的解密游戏就为大家介绍到这里了，喜欢这个类型游戏的玩家不要错过。</p> <p><h4>下载地址(由网友<font color="red">7810102</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110356/](https://lad.sfcrom.cn/2024/04/110356/)

@@ -1,0 +1,13 @@
+---
+title: "【FC】《Double Dragon III &#8211; The Sacred Stones》欧版下载"
+date: 2024-03-25
+tags: []
+categories: ["FC游戏"]
+excerpt: "　　【FC】《Double Dragon III - The Sacred Stones》欧版下载，《双龙》系列第三部，游戏中有两个角色可以选择，是一款和朋友一起玩的双人游戏。两个角色同时出发去冒险。 　　Ailuri是一款手绘风格的横版闯关类游戏，在Ailuri游戏中，主角是一只可爱的小熊猫，它的&hellip;"
+layout: post
+---
+
+ <p>　　【FC】《Double Dragon III - The Sacred Stones》欧版下载，《双龙》系列第三部，游戏中有两个角色可以选择，是一款和朋友一起玩的双人游戏。两个角色同时出发去冒险。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_66018f7c7da9f.png" width="597" alt="【FC】《Double Dragon III - The Sacred Stones》欧版下载" /></p> <p>　　Ailuri是一款手绘风格的横版闯关类游戏，在Ailuri游戏中，主角是一只可爱的小熊猫，它的家园正在遭受破坏，为了守护自己生存的地方，小熊猫决定踏上一条冒险之旅，阻止毁坏的继续发生，你能帮助它实现目标吗?感兴趣的玩家快来试试吧。</p> <p>　　游戏介绍</p> <p>　　《Ailuri》是由VivinkStudios制作并发行的一款卡通风格的横版冒险游戏，在游戏中玩家将扮演一只可爱的小熊猫幼崽&ldquo;Ailuri&rdquo;，你所生存的森林正在被破坏，你为了自己的家园，勇敢的迈出了第一步，一路上你还会遇到其他友好的动物。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_66018f7de5bf8.png" width="599" alt="【FC】《Double Dragon III - The Sacred Stones》欧版下载" /></p> <p>　　游戏特点</p> <p>　　扮演Ailuri，在手绘的关卡中奔跑、攀爬、摆动和生存。 拯救动物、打败敌人并发现你真正隐藏的能力。</p> <p>　　如果您完成收藏品，将提供具有挑战性的Boss关卡。</p> <p>　　在关卡中可以发现三种隐藏的动物，探索游戏以找到它们。</p> <p>　　Ailuri以提高人们对濒危物种的认识为中心!所有角色都基于现有的濒危植物群或动物群。发现它们并详细了解它们的濒危状态。</p> <p><h4>下载地址(由网友<font color="red">ww99620099</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/23428/](https://lad.sfcrom.cn/2024/03/23428/)

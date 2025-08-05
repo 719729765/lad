@@ -1,0 +1,13 @@
+---
+title: "switch《少女射击VV GalGun Double Peace》中文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《少女射击VV Gal*Gun Double Peace》中文版下载，这是一款很有趣的射击游戏，为玩家带来了独特的美少女射击玩法，游戏还为大家准备了多种游戏模式，感兴趣的话大家可以来体验一下哦。 　　射击少女VV(Gal*Gun: Double Peace)带给玩家的是一款动作冒险的&hellip;"
+layout: post
+---
+
+ <p>　　switch《少女射击VV Gal*Gun Double Peace》中文版下载，这是一款很有趣的射击游戏，为玩家带来了独特的美少女射击玩法，游戏还为大家准备了多种游戏模式，感兴趣的话大家可以来体验一下哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f73b03c29.jpg" alt="switch《少女射击VV GalGun Double Peace》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f73b9b58a.jpg" alt="switch《少女射击VV GalGun Double Peace》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f73c534ad.jpg" alt="switch《少女射击VV GalGun Double Peace》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f73d0eb66.jpg" alt="switch《少女射击VV GalGun Double Peace》中文版nsp下载" /></td> </tr> </tbody> </table> <p>　　射击少女VV(Gal*Gun: Double Peace)带给玩家的是一款动作冒险的模拟游戏，在校园中使用第一视角，开拓少女们的心房吧，当你成为校园中万众瞩目的人物后，无数的美少女向你表达自己的爱意，亲吻以及告白都是可以亲自体验的，每一封情书，大声称赞，并亲吻他，就是你要做的事情，选择自己喜爱的对象吧。</p> <p>　　游戏背景为前作一年后的樱咲第三高校舞台，登场女性角色包括黑菜、神园忍、神园真夜。游戏中会有自我陶醉和裙底足踏等话题性过激演出。本作的可更换内衣将高达450种之多，成功超越了前作PS3《少女射击》的423种。游戏中收录了超过70位女性角色，玩家通过剧情的发展，最终选择自己最喜欢的那位姑娘，体验多种不同的结局。</p> <p>　　以上内容就是小编为大家带来的《少女射击VV Gal*Gun Double Peace》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">汉安八班</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101586/](https://lad.sfcrom.cn/2024/04/101586/)

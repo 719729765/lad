@@ -1,0 +1,13 @@
+---
+title: "switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版1.3.0补丁+1DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版下载，这是动画片汪汪队立大功系列推出的赛车玩法的游戏，经典的道具赛的玩法，喜欢这个欢乐游戏的玩家不要错过。 　　游戏介绍 　　本作和之前改编的游戏不同。在本作中，玩家不但可以操作心爱的角色，而且还可以在根据冒险&hellip;"
+layout: post
+---
+
+ <p>　　switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版下载，这是动画片汪汪队立大功系列推出的赛车玩法的游戏，经典的道具赛的玩法，喜欢这个欢乐游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=469223063&amp;bvid=BV1W5411R7Ms&amp;cid=724537119&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661548dd0cfa5.webp" alt="switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版1.3.0补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661548dd64504.webp" alt="switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版1.3.0补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661548ddc344b.webp" alt="switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版1.3.0补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661548de36d2d.webp" alt="switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版1.3.0补丁+1DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661548dea51e1.webp" alt="switch《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版1.3.0补丁+1DLC下载" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　本作和之前改编的游戏不同。在本作中，玩家不但可以操作心爱的角色，而且还可以在根据冒险湾的经典场景制作的11条赛道中进行游玩，利用原作动画中为狗狗设计的载具，来进行一场速度与激情的较量。此外，《汪汪队立大功：锦标赛》支持本地四人分屏游戏。</p> <p>　　游戏特色</p> <p>　　赛道不嫌大，车手不嫌小!</p> <p>　　马上用汪汪队中你最喜爱的狗狗们与最多4位玩家一起环绕冒险湾展开竞速，但要小心爱恶作剧的韩丁那市长留下的障碍物哦!</p> <p>　　夺得狗狗杯!</p> <p>　　汪汪队正在执行迄今速度最快的任务，就是要夺得狗狗杯!在冒险湾、杰克的滑雪胜地和丛林等标志性地点驾车疾驰，决出谁才会加冕为冠军。</p> <p>　　4人锦标赛</p> <p>　　与好友一起参加这项多人锦标赛，你可以挑选自己最喜爱的狗狗，包括阿奇、天天或毛毛。但要多加小心，因为鬼鬼祟祟的韩丁那市长随时可能出现，把你们的比赛变成一场疯狂的灾难!</p> <p>　　收集狗狗零食</p> <p>　　对你的狗狗使用强化物品，包括水球、雪球和彩屑爆弹。另外，你还可以解锁特殊的角色技能，比如阿奇的警笛可以降低身边车手的速度。</p> <p>　　适合所有年龄的孩子</p> <p>　　这款卡丁车赛车游戏包含易于控制的选项，为年龄较小的孩子提供自动加速功能，引导他们沿赛道行驶，同时还为经验丰富的赛道明星准备了困难模式。</p> <p>　　那么，系好安全带，与你最棒的狗狗伙伴一起，在11条赛道上来一场超棒的狗狗比赛吧!</p> <p>　　以上内容就是小编为大家带来的《汪汪队立大功：锦标赛 PAW Patrol Grand Prix》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Unbileve</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145096/](https://lad.sfcrom.cn/2024/04/145096/)

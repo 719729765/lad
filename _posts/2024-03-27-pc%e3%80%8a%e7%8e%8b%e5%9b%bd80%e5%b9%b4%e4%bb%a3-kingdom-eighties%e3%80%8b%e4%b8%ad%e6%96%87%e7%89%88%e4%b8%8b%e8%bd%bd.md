@@ -1,0 +1,13 @@
+---
+title: "PC《王国:80年代 Kingdom Eighties》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《王国:80年代 Kingdom Eighties》中文版下载!《Kingdom Eighties》为获奖游戏《Kingdom》系列的独立扩充，将带你踏上壮阔的轻策略基地建造单人冒险之旅。保护小镇，抵御神祕的贪婪生物，揭晓你所不知的家族往事! 　　《Kingdom Eighties》为获奖游&hellip;"
+layout: post
+---
+
+ <p>　　PC《王国:80年代 Kingdom Eighties》中文版下载!《Kingdom Eighties》为获奖游戏《Kingdom》系列的独立扩充，将带你踏上壮阔的轻策略基地建造单人冒险之旅。保护小镇，抵御神祕的贪婪生物，揭晓你所不知的家族往事!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=700002454&amp;bvid=BV1Pm4y1e7dx&amp;cid=1170178219&amp;page=1" width="410"></iframe></p> <p>　　《Kingdom Eighties》为获奖游戏《Kingdom》系列的独立扩充，以80年代霓虹元素为灵感，带你踏上壮阔的轻策略基地建造单人冒险之旅。</p> <div> <p align="center">&nbsp;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b215061e6.webp" width="700" alt="PC《王国:80年代 Kingdom Eighties》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b21588551.webp" width="700" alt="PC《王国:80年代 Kingdom Eighties》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b215e14fc.webp" width="700" alt="PC《王国:80年代 Kingdom Eighties》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b2166b5fb.webp" width="700" alt="PC《王国:80年代 Kingdom Eighties》中文版下载" /></p></div> <p>　　你将化身夏令营的年轻辅导员老大，抵御神祕贪婪生物的无情攻击，保护自己的家人和小镇。这些怪物是什麽来头，为什麽想抢走你的传家宝&ldquo;创造王冠&rdquo;?</p> <p>　　招募邻居家的孩子，为他们分配建造或作战任务，花费金币建设王国，再修建城牆和防御砲塔。晚上时务必多加小心，贪婪生物将趁著夜幕对你发动无情袭击。要是丢掉王冠，麻烦就大了!</p> <p>　　《Kingdom》系列的每部作品都会藏有各种祕密。仔细探索场景，解锁坐骑，发现技术升级与武器，还要如何学习合理统筹资源，才能生存下去。</p> <p>　　《Kingdom》系列新旧玩家都不容错过的作品</p> <p>　　《Kingdom Eighties》以本系列为人熟知的游戏机制为基础，大幅度丰富这系列的叙事与世界观。即便是初次接触《Kingdom》系列，剧情元素也会流畅地引导你瞭解游戏的各项机制。</p> <p>　　认识你的小伙伴</p> <p>　　你将陆续认识三位配角：切普、缇克儿和乌兹，三人各有各的本领，可以助你解谜破关。</p> <p>　　炫酷上路</p> <p>　　夏令营只是一切的开始!你将前往《Kingdom》系列从未出现过的地方，去滑板公园找新轮子，光顾大街上的商店，赶走新国度购物中心的贪婪生物。</p> <p>　　当像素美术遇上合成波音乐</p> <p>　　《Kingdom》系列经典的手绘美术风格回来了，这次还直接参考了80年代的霓虹美学。伴著 Andreas Hald 创作的合成波原声乐，回到随心骑车和夏令营的美妙时代，回到一切似乎皆有可能的从前。</p> <p><h4>下载地址(由网友<font color="red">dudh</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51262/](https://lad.sfcrom.cn/2024/03/51262/)

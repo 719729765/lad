@@ -1,0 +1,13 @@
+---
+title: "莫塔之子 Children of Morta PC免安装中文版下载（v1.1.7.0）"
+date: 2024-03-27
+tags: []
+categories: ["2020年游戏"]
+excerpt: "　　莫塔之子 Children of Morta PC免安装中文版下载。这是一款像素风格动作冒险类游戏。游戏中的两个角色Kevin是伤害输出角色，后背背着一把刀，攻击速度极快。另外一个John则是防御型角色，拿着厚重的盾牌，使用慢速的攻击。 　　柏格森家族一直注视着一代又一代的神秘的山林死亡守护者，&hellip;"
+layout: post
+---
+
+ <p>　　莫塔之子 Children of Morta PC免安装中文版下载。这是一款像素风格动作冒险类游戏。游戏中的两个角色Kevin是伤害输出角色，后背背着一把刀，攻击速度极快。另外一个John则是防御型角色，拿着厚重的盾牌，使用慢速的攻击。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=22296047&amp;bvid=BV1wW41157DQ&amp;cid=36914054&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66043f8f41d01.jpg" width="600" alt="莫塔之子 Children of Morta PC免安装中文版下载（v1.1.7.0）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66043f8fb3741.jpg" width="600" alt="莫塔之子 Children of Morta PC免安装中文版下载（v1.1.7.0）" /></p> <p>　　柏格森家族一直注视着一代又一代的神秘的山林死亡守护者，他们现在面临着作为家庭的最危险的审判。腐败蔓延，把曾经平静的山脉变成了暴力和怪物出没的梦魇。</p> <p>　　体验在一个英雄他家庭里意味着什么。参加他们的旅程，他们的奋斗，们的胜利!见证彼此无与伦比的爱甚至自己的神。通过击杀怪物并且探索各种神秘的山林，华丽的和令人叹为观止的随机地图会给你独特的经历，每次你离开柏格森家远离腐败寻求安全之地。</p> <p>　　游戏特色</p> <p>　　6个游戏人物</p> <p>　　约翰、马克、琳达、乔伊、凯文和露西都准备为即将到来的战斗。发现每个家庭成员独特的战斗风格，深入他们的个性和过去在自己的个人任务。</p> <p>　　随机地图</p> <p>　　每一片森林、地牢或寺庙都是随机的，你探索和战斗通过程序进行实时生成，保证游戏的新鲜感。</p> <p>　　神秘的山林</p> <p>　　深入山区发现死亡的神秘的世界，发现为什么腐败弥漫到了这看似平静的山，并且发现知识散布给进入山区的居民的生活。</p> <p>　　像素的艺术</p> <p>　　结合手绘像素艺术和逐帧动画与现代照明技术，创造一个美丽而且危险的世界。</p> <p><h4>下载地址(由网友<font color="red">13470604267</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/62020/](https://lad.sfcrom.cn/2024/03/62020/)

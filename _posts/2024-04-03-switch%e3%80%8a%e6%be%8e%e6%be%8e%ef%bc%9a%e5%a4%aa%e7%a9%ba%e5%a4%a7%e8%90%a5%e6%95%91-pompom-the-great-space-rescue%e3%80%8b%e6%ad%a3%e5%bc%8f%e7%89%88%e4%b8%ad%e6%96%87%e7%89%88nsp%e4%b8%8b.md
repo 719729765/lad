@@ -1,0 +1,13 @@
+---
+title: "switch《澎澎：太空大营救 Pompom The Great Space Rescue》正式版中文版nsp下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《澎澎 Pompom The Great Space Rescue》中文版下载，这是一款有趣的平台动作游戏，通过控制关卡中的道具、地形等来帮助小仓鼠澎澎安全的通过这里，喜欢的玩家不要错过。 　　你无法控制仓鼠 Pompom 的动作 - 但你可以控制其他的一切。放置砖块、弹簧、大炮、雨&hellip;"
+layout: post
+---
+
+ <p>　　switch《澎澎 Pompom The Great Space Rescue》中文版下载，这是一款有趣的平台动作游戏，通过控制关卡中的道具、地形等来帮助小仓鼠澎澎安全的通过这里，喜欢的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=809470084&amp;bvid=BV1m34y1k7Je&amp;cid=541635882&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723d20970.jpg" alt="switch《澎澎：太空大营救 Pompom The Great Space Rescue》正式版中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723dc0164.jpg" alt="switch《澎澎：太空大营救 Pompom The Great Space Rescue》正式版中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723e5a652.jpg" alt="switch《澎澎：太空大营救 Pompom The Great Space Rescue》正式版中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723edf406.jpg" alt="switch《澎澎：太空大营救 Pompom The Great Space Rescue》正式版中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723f99ffc.jpg" alt="switch《澎澎：太空大营救 Pompom The Great Space Rescue》正式版中文版nsp下载" /></td> </tr> </tbody> </table> <p>　　你无法控制仓鼠 Pompom 的动作 - 但你可以控制其他的一切。放置砖块、弹簧、大炮、雨伞并使用鞭子来改变这世界，为 Pompom 打造一条安全道路，去击败邪恶的猫队长。</p> <p>　　剧情介绍</p> <p>　　有一天，Pompom 正在他的仓鼠轮上挥洒汗水时，男孩 Hoshi 拿着一堆珠宝闯了进来，它们是随着一声轰然巨响从天上掉下来的。突然间，猫队长和他的手下出现，用一个太空通道绑走了 Hoshi。现在 Pompom 必须要踏上冒险之旅，从八名太空猫海盗手中救出他的朋友 Hoshi!</p> <p>　　游戏玩法</p> <p>　　在这款非常新颖的平台游戏中，玩家无法控制仓鼠 Pompom - 要通过移动平台和他周遭的物件来帮助他。放下弹簧、建桥铺路、披荆斩棘、照亮鬼魂 - 从外太空到充满飞鱼的海滩，还有在丛林深处的古老神庙，帮助 Pompom 智取敌人并打败猫队长与他的手下。</p> <p>　　游戏特色</p> <p>　　◎ 以全新方式进行平台游戏，不移动角色而是移动平台。</p> <p>　　◎ 探索这个向超级任天堂经典游戏与 16 位元复古年代致敬的美丽游戏。</p> <p>　　◎ 在宏大的太空救援中探索八个世界 - 除了在飞鱼上跳跃、躲过讨厌的飞箭、驱逐怨灵、游过食人鱼、与飞碟战斗外，还有更多精彩内容。</p> <p>　　◎ Pompom 击败敌人就能获得物品，你可以利用那些物品与世界互动，帮助他获得胜利。</p> <p>　　◎ 尽可能使用手上所有物品：飞出大砲、在绳索上摆荡、披荆斩棘、泼洒蜂蜜、冻结时间，策略数不胜数。</p> <p>　　以上内容就是小编为大家带来的《澎澎 Pompom The Great Space Rescue》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">a826123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124443/](https://lad.sfcrom.cn/2024/04/124443/)

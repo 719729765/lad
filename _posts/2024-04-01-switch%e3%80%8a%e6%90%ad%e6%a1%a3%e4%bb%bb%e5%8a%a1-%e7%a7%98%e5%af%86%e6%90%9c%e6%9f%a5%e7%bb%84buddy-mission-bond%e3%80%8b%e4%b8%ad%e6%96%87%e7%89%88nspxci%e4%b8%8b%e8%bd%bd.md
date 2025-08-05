@@ -1,0 +1,13 @@
+---
+title: "switch《搭档任务 秘密搜查组Buddy Mission BOND》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《搭档任务 秘密搜查组Buddy Mission BOND》中文版下载。这是一款全新文字冒险游戏，主角是一名继承了去世的养父的梦想、立志成为一名英雄的警察&ldquo;卢克&rdquo;。本作最大的特征是以两名角色组成&ldquo;搭档&rdquo;进行搜查与潜入活动。 　　角色设计&hellip;"
+layout: post
+---
+
+ <p>　　switch《搭档任务 秘密搜查组Buddy Mission BOND》中文版下载。这是一款全新文字冒险游戏，主角是一名继承了去世的养父的梦想、立志成为一名英雄的警察&ldquo;卢克&rdquo;。本作最大的特征是以两名角色组成&ldquo;搭档&rdquo;进行搜查与潜入活动。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=843293200&amp;bvid=BV1C54y1t72f&amp;cid=270687458&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/01-21/d56597dda9c3e1d56ed404b05e455174.png" alt="switch《搭档任务 秘密搜查组Buddy Mission BOND》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/01-21/47a5abd797594c0a7dcae84d0103fc3a.png" alt="switch《搭档任务 秘密搜查组Buddy Mission BOND》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/01-21/6f00d8395e808835d450aaae9d406c27.png" alt="switch《搭档任务 秘密搜查组Buddy Mission BOND》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/01-21/d8f0bbe40cbbe6916b1229185bbe4e58.jpg" alt="switch《搭档任务 秘密搜查组Buddy Mission BOND》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　角色设计由绘制《一拳超人》的村田雄介负责，除了角色之外，在进行对话与剧情演出的时候也加入了一些漫画的表现方式，玩家可以在作品中享受村田雄介的漫画世界。</p> <p>　　游戏亮点</p> <p>　　1、完全开放的地图，更具特色的游戏区域，新作中的旧金山游戏地图大小将是前作中的二到三倍;</p> <p>　　2、新作中玩家的将会更为强力的入侵能力，游戏中几乎所有电力装置都可以被入侵;</p> <p>　　3、玩家可以通过各种入侵行动帮助自己完成任务，执行任务的自由度也将因此有巨大的提升。</p> <p><h4>下载地址(由网友<font color="red">17600548255</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101612/](https://lad.sfcrom.cn/2024/04/101612/)

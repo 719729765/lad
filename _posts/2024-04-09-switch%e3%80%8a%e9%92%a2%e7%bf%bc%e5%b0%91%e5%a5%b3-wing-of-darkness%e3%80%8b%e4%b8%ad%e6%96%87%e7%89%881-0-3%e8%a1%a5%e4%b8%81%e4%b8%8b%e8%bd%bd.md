@@ -1,0 +1,13 @@
+---
+title: "switch《钢翼少女 wing of darkness》中文版1.0.3补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《钢翼少女 wing of darkness》中文版下载!《钢翼少女》在TGS 2018展示上公布，获得了一致好评，游戏画面建模精细，且空战节奏感紧凑，每次出任务前玩家皆可选择武器配置，像是机枪、重炮或散弹枪等，以应对不同的战斗需求。玩家在游戏中扮演驾驶战斗机甲的美少女，挺身而出对抗&hellip;"
+layout: post
+---
+
+ <p>　　switch《钢翼少女 wing of darkness》中文版下载!《钢翼少女》在TGS 2018展示上公布，获得了一致好评，游戏画面建模精细，且空战节奏感紧凑，每次出任务前玩家皆可选择武器配置，像是机枪、重炮或散弹枪等，以应对不同的战斗需求。玩家在游戏中扮演驾驶战斗机甲的美少女，挺身而出对抗外敌Blanker。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=803015687&amp;bvid=BV1dy4y1p78Q&amp;cid=338271380&amp;page=1" width="410"></iframe></p> <p>　　详细介绍</p> <p>　　钢翼少女中文版《 Wing of Darkness》是日本独立开发新星Production Exabilities的首款作品。游戏中玩家将亲自与少女一同亲自对战&ldquo;虚无者&rdquo;，不必担心弹药资源不足，唯一的目标就是击退敌人，在美得令人屏息的天空中自由自在地翱翔。游戏公布之后凭借科幻感十足的3D画面获得了不少玩家的关注!</p> <p>　　云豹娱乐宣布，高速3D射击游戏《钢翼少女 Wing of Darkness》中文版游戏将于2021年2月25日发售，登陆PS4、Switch及Steam。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615350f37118.jpg" style="border-width: 0px; border-style: solid; height: 281px; width: 500px;" alt="switch《钢翼少女 wing of darkness》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615350fd6bb4.jpg" style="border-width: 0px; border-style: solid; height: 281px; width: 500px;" alt="switch《钢翼少女 wing of darkness》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661535107db54.jpg" style="border-width: 0px; border-style: solid; height: 281px; width: 500px;" alt="switch《钢翼少女 wing of darkness》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661535111c32e.jpg" style="border-width: 0px; border-style: solid; height: 281px; width: 500px;" alt="switch《钢翼少女 wing of darkness》中文版1.0.3补丁下载" /></td> </tr> </tbody> </table> <p>　　游戏特色</p> <p>　　爽快射击游戏x细腻过场剧情</p> <p>　　不明强大敌人&ldquo;虚无者&rdquo;乍然现身，能够操控&ldquo;赫尔特系统&rdquo;的&ldquo;铁翼少女&rdquo;，成为对抗强大敌人&ldquo;虚无者&rdquo;的唯一手段。&ldquo;铁翼少女&rdquo;虽然身为人类的希望，却同时面对恐惧并承担命运摆弄，她们也将渐渐失去重要的事物。这是透过2名少女所描写的&ldquo;人性&rdquo;的故事&hellip;&hellip;</p> <p>　　玩家将亲自与少女一同亲自对战&ldquo;虚无者&rdquo;，不必担心弹药资源不足，唯一的目标就是击退敌人，在美得令人屏息的天空中自由自在地翱翔。</p> <p>　　同时，玩家将透过3D作画，聆听2名少女主角以各自角度述说这场战争，内容采全语音收录。除了日文语音，这次为了走向世界，字幕一口气收录中文、韩文、英文、日文、法文、义大利文、德文、西班牙文等多国语言，敬请全球玩家一起见证少女的奋战。</p> <p><h4>下载地址(由网友<font color="red">wasd12345</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145814/](https://lad.sfcrom.cn/2024/04/145814/)

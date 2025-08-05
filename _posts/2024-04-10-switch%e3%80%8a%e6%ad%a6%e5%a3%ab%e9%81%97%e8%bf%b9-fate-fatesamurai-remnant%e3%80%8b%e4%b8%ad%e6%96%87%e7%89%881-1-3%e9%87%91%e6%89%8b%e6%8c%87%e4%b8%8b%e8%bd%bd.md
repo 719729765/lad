@@ -1,0 +1,13 @@
+---
+title: "switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载"
+date: 2024-04-10
+tags: []
+categories: ["switch金手指"]
+excerpt: "　　switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载！&ldquo;───你的愿望，由我来斩断。 &rdquo;江户的圣杯战争，就此开幕。TYPE-MOON &times; 光荣特库摩联袂献上&ldquo;Fate&rdquo;完全新作动作RPG&hellip;"
+layout: post
+---
+
+ <p>　　switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载！&ldquo;───你的愿望，由我来斩断。 &rdquo;江户的圣杯战争，就此开幕。TYPE-MOON &times; 光荣特库摩联袂献上&ldquo;Fate&rdquo;完全新作动作RPG</p> <p>　　功能：</p> <p>　　1.无敌</p> <p>　　2.男大招无限(按A)</p> <p>　　3.女大招无限(按R+4键)</p> <p>　　4.钱最大维持</p> <p>　　5.等级和技能点最大</p> <p>　　6.按B无限跳</p> <p>　　关于这款游戏</p> <p>　　争夺万物的许愿机&ldquo;盈月&rdquo;之战&mdash;&mdash;盈月之仪。</p> <p>　　参与仪式的七名&ldquo;许愿者，也就是御主。</p> <p>　　御主召唤至现世的七骑英灵，也就是从者。</p> <p>　　此七人七骑的主从争霸战，现正揭开序幕。</p> <p>　　驰骋江户大街小巷，力求在&rdquo;盈月之仪&ldquo;胜出</p> <p>　　战斗、探索、交流&mdash;&mdash;深度融合众多要素的动作RPG</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615eaf4a1314.webp" width="700" alt="switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615eaf50758e.webp" width="700" alt="switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615eaf577999.webp" width="700" alt="switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615eaf5d354d.webp" width="700" alt="switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615eaf645c75.webp" width="700" alt="switch《武士遗迹 Fate Fate/Samurai Remnant》中文版1.1.3金手指下载" /></p> <p>　　【御主与从者协力作战】</p> <p>　　时而化身御主，时而操控从者，依靠主从情谊从中生还。</p> <p>　　探明敌人与战况，利用各种攻击，使自己立于不败之地。</p> <p>　　【遍访江户大街小巷】</p> <p>　　吉原、神田、赤坂&mdash;&mdash;江户的多处名胜成为仪式舞台。</p> <p>　　在探索城镇的同时，不但会与其他御主发生战斗，还可以从中获得有助成长的内容。</p> <p>　　在游戏中能与江户居民攀谈、在小摊养精蓄锐、还可以和猫狗互动。</p> <p>　　【各式各样的相遇】</p> <p>　　有时会在江户的街道上遇见无主的从者。</p> <p>　　在交流中加深彼此的情谊，便有可能使其成为强而有力的可靠伙伴。</p> <p>　　【无主的从者】</p> <p>　　可以借助通过&ldquo;盈月之仪&rdquo;而结下情谊的无主从者之力进行战斗。</p> <p>　　活用他们的强大力量打到所有挡路的敌人吧。</p> <p>　　&ldquo;&mdash;&mdash;&mdash;&mdash;看来，你就是召唤我的人吧&rdquo;</p> <p>　　监修：奈須 きのこ/TYPE-MOON</p> <p>　　角色设计：渡れい</p> <p>　　故事监修：桜井 光、東出 祐一郎</p> <p>　　开发：KOEI TECMO GAMES</p> <p>　　制作协助：ANIPLEX</p> <p>　　开场动画制作：CloverWorks</p> <p>　　游戏类型：动作RPG</p> <p><h4>下载地址(由网友<font color="red">gogomiss</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/151410/](https://lad.sfcrom.cn/2024/04/151410/)

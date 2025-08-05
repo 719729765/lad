@@ -1,0 +1,13 @@
+---
+title: "PC《不允许戴帽子 Hats Are Not Allowed》中文版下载（Build 8948777）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《不允许戴帽子 Hats Are Not Allowed》中文版下载，这是一款以机器人世界为背景的角色扮演游戏，玩家要扮演这个世界中的一个普通的机器人战士，很精彩的剧情等你来体验。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Lazer Genu Studio 　　游戏发行：Laz&hellip;"
+layout: post
+---
+
+ <p>　　PC《不允许戴帽子 Hats Are Not Allowed》中文版下载，这是一款以机器人世界为背景的角色扮演游戏，玩家要扮演这个世界中的一个普通的机器人战士，很精彩的剧情等你来体验。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=853410792&amp;bvid=BV1hL4y1V7Ca&amp;cid=583341970&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b2a066a3.jpg" alt="PC《不允许戴帽子 Hats Are Not Allowed》中文版下载（Build 8948777）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b2a6254f.jpg" alt="PC《不允许戴帽子 Hats Are Not Allowed》中文版下载（Build 8948777）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b2aca6c8.jpg" alt="PC《不允许戴帽子 Hats Are Not Allowed》中文版下载（Build 8948777）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b2b3441b.jpg" alt="PC《不允许戴帽子 Hats Are Not Allowed》中文版下载（Build 8948777）" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Lazer Genu Studio</p> <p>　　游戏发行：Lazer Genu Studio</p> <p>　　一个以荒诞的机器人独裁社会为背景的角色扮演战斗游戏。被禁止的头饰唤醒了你的意识。在紧张的决斗中击败所有反对你的人。点燃起义之火，带领你的部队作战，决定杰努公司的命运。</p> <p>　　你手中的非法帽子有着前所未有的风格，它能激励其他人加入你的起义。用剑、矛和盾来对抗那些要摧毁你的人。随着你力量的增长，你必须确定你到底想做什么。</p> <p>　　游戏特色</p> <p>　　决斗</p> <p>　　决斗系统易学但难精。没有必要记住冗长的连击。相反，重点是快速反应、时机和战术。要当心假动作，要好好利用你的距离，不要耗尽蒸汽。</p> <p>　　战斗</p> <p>　　机器人战斗模块将战斗限制为决斗。这意味着战斗是通过一对一决斗进行，直至某一方小队被完全击溃。策略性地选择你的战士，通过模拟、观看或者自己亲身控制决斗!</p> <p>　　升级</p> <p>　　探索并装备新的机器人部件或物品，以增加最适合你战斗风格的属性。</p> <p>　　确定</p> <p>　　作为&ldquo;戴帽子的人，你将领导帽子起义。你是想发起一场旨在实现帽子完全自由的政治革命?你想为自己争取权力?还是想探索这个世界和专制的Genu公司背后的真相?</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: 3.0 GHz Dual Core CPU</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Geforce 9600 GT or AMD HD 3870 512MB or higher</p> <p>　　存储空间: 需要 198 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. (如果有setup.exe文件的话)安装游戏</p> <p>　　3. (如果存在crack文件夹的话)复制crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《不允许戴帽子 Hats Are Not Allowed》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">tifeiy</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52841/](https://lad.sfcrom.cn/2024/03/52841/)

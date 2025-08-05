@@ -1,0 +1,13 @@
+---
+title: "switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》正式版中文版nsp/xci整合版下载【含1.0.5补丁+3DLC】"
+date: 2024-04-05
+tags: []
+categories: ["Switch汉化游戏"]
+excerpt: "　　switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》中文版下载，这是一款横版闯关类玩法的动作游戏，主角是一名少女，她需要使用自己手中的大剑来打败前方的敌人。 　　游戏介绍 　　女主角&ldquo;羽空&rdquo;在陌生的工厂中醒来，在她面前出现了一把奇妙的剑&hellip;"
+layout: post
+---
+
+ <p>　　switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》中文版下载，这是一款横版闯关类玩法的动作游戏，主角是一名少女，她需要使用自己手中的大剑来打败前方的敌人。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=634100036&amp;bvid=BV19b4y1873k&amp;cid=437399396&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed1829b0fe.webp" alt="switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》正式版中文版nsp/xci整合版下载【含1.0.5补丁+3DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed18318586.webp" alt="switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》正式版中文版nsp/xci整合版下载【含1.0.5补丁+3DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed1838ca69.webp" alt="switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》正式版中文版nsp/xci整合版下载【含1.0.5补丁+3DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed183e5d0c.webp" alt="switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》正式版中文版nsp/xci整合版下载【含1.0.5补丁+3DLC】" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　女主角&ldquo;羽空&rdquo;在陌生的工厂中醒来，在她面前出现了一把奇妙的剑。</p> <p>　　剑名为&ldquo;ExeBreaker&rdquo;，并且有自己的意识。</p> <p>　　ExeBreaker拥有让时光倒溯3秒的能力&ldquo;衔尾蛇系统&rdquo;。</p> <p>　　一头雾水的羽空在ExeBreaker带领之下踏上旅途。</p> <p>　　前方出现的是羽空居住的海上都市&ldquo;科根城&rdquo;破败不堪的模样。</p> <p>　　羽空将和ExeBreaker一起探寻化为废墟的科根城的秘密。</p> <p>　　游戏特色</p> <p>　　即使中招毙命也不用慌!体验回溯时间打开前路的舒畅!</p> <p>　　在适当的时机回溯时间，避免失败的发生。</p> <p>　　在失败节点不断修复自己的行动，找到最佳突破方法!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed1843c86b.webp" width="621" alt="switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》正式版中文版nsp/xci整合版下载【含1.0.5补丁+3DLC】" /></p> <p>　　以上内容就是小编为大家带来的switch《COGEN 大凤羽空与刻之剑 COGEN Sword of Rewind》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">shadow1884</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/130176/](https://lad.sfcrom.cn/2024/04/130176/)

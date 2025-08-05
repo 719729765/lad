@@ -1,0 +1,13 @@
+---
+title: "PC《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版下载，这是一款以太空为背景的回合制策略游戏，玩家控制太空舰队和敌人进行战斗，喜欢这个游戏类型的玩家可以来关注一下。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：A Stormy View Interactive&hellip;"
+layout: post
+---
+
+ <p>　　PC《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版下载，这是一款以太空为背景的回合制策略游戏，玩家控制太空舰队和敌人进行战斗，喜欢这个游戏类型的玩家可以来关注一下。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033ae59e17e.jpg" alt="PC《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033ae61b68d.jpg" alt="PC《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033ae703979.jpg" alt="PC《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033ae77156b.jpg" alt="PC《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：A Stormy View Interactive LLC</p> <p>　　游戏发行：A Stormy View Interactive LLC</p> <p>　　《奥雷莉亚：星际崛起(Aurelia: Stellar Arising)》是一款3D回合制舰队对战太空战斗游戏。在两个派别中选择，并在每个派别超过77个任务中争夺奥里利亚系统的控制权。控制最多9艘船的舰队，给每艘船下达机动和战术命令。</p> <p>　　游戏介绍</p> <p>　　完成2个战役，7个阶段，11个任务，获得最大奖励，解锁新飞船和强大的新升级。150多个任务的经验和掌握。总共20艘舰船(每个阵营10艘)和18艘特定于舰船的升级。</p> <p>　　支持3种不同的主要游戏模式(混合作战、回合制、团队回合制)。任务和战役游戏的5级难度。其他战役和战斗定制选项包括对街机、平衡和模拟模式以及基本和高级AI的支持。游戏模式包括玩家对AI、玩家对玩家、AI对AI。</p> <p>　　包括自定义作战模式，用于配置用户创建的作战，并完全自定义舰队作战模拟器。享受各种各样的配置，创建自己的9v9作战模拟。从19种不同的作战部署设置中选择，包括：随机、正面、追逐/追逐、背面、2条平行线、4条侧翼、8条有利和不利位置的倾斜。</p> <p>　　指挥和控制20艘独特的战舰&mdash;&mdash;等级：武装舰、巡逻艇、护卫舰、驱逐舰&mdash;&mdash;每个阵营2种类型，总共20艘独特的战舰。</p> <p>　　使用10倍独特的武器系统与敌人交战，包括：自动加农炮、辅助电池、主电池、导弹发射器、100倍弹道配置的鱼雷发射器。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7+</p> <p>　　处理器: Intel Core i5 2.6Ghz</p> <p>　　内存: 4000 MB RAM</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 2500 MB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7+</p> <p>　　处理器: Intel Core i5 3.5Ghz</p> <p>　　内存: 8000 MB RAM</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 5000 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《奥雷莉亚：星际崛起 Aurelia Stellar Arising》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">10010</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41226/](https://lad.sfcrom.cn/2024/03/41226/)

@@ -1,0 +1,13 @@
+---
+title: "switch《Aery：平静的心2 Aery &#8211; Calm Mind 2》英文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《Aery：平静的心2 Aery - Calm Mind 2》英文版下载，Aery是一款非常治愈的模拟飞行游戏，该系列的每一部作品都令人沉浸其中，这是它的一部新作，享受自由飞翔感觉的玩家可以来看看。 　　扮演小鸟获得飞行的能力，感受周围魅力的风景以及宁静，收集标志着某些风景的神奇水晶&hellip;"
+layout: post
+---
+
+ <p>　　switch《Aery：平静的心2 Aery - Calm Mind 2》英文版下载，Aery是一款非常治愈的模拟飞行游戏，该系列的每一部作品都令人沉浸其中，这是它的一部新作，享受自由飞翔感觉的玩家可以来看看。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=296876471&amp;bvid=BV1yF411t7p1&amp;cid=541023590&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f553de82.webp" alt="switch《Aery：平静的心2 Aery - Calm Mind 2》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f55ad9f4.webp" alt="switch《Aery：平静的心2 Aery - Calm Mind 2》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f561c037.webp" alt="switch《Aery：平静的心2 Aery - Calm Mind 2》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f56a88aa.webp" alt="switch《Aery：平静的心2 Aery - Calm Mind 2》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f5735082.webp" alt="switch《Aery：平静的心2 Aery - Calm Mind 2》英文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　扮演小鸟获得飞行的能力，感受周围魅力的风景以及宁静，收集标志着某些风景的神奇水晶。</p> <p>　　因为在这个游戏中没有敌人或任何其他危险，你将能够向后靠，享受风景和飞行的感觉。这是一个很棒的游戏，可以在充满麻烦的疲惫的一天之后放松和平静下来。</p> <p>　　当然，您始终可以选择您认为最有助于放松自己的级别。大多数关卡都可以很快完成，因此您可以自由选择花时间探索环境，但如果您只是在寻找片刻的平静和享受，则不必停留太久。</p> <p>　　游戏特色</p> <p>　　&bull; 16种不同的景观</p> <p>　　&bull;通过随机关卡目标，实现无限的可玩性</p> <p>　　&bull;美丽的视觉效果和配乐</p> <p>　　&bull;飞行的体验</p> <p>　　&bull;直观而轻松的游戏方式</p> <p>　　&bull;在日常生活中享受片刻的宁静和乐趣</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8f5784d53.webp" width="584" alt="switch《Aery：平静的心2 Aery - Calm Mind 2》英文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《Aery：平静的心2 Aery - Calm Mind 2》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">伪欲</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110336/](https://lad.sfcrom.cn/2024/04/110336/)

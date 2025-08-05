@@ -1,0 +1,13 @@
+---
+title: "switch《樱花外星人2 Sakura Alien 2》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《樱花外星人2 Sakura Alien 2》中文版nsz下载!从外星人公主爱娜自称是和晴的未来妻子的那一天起，和晴的生活就发生了翻天覆地的变化。如今，事情的变化越来越离谱，和晴大学新来了一位美女教授，她似乎对于爱娜的事过于热衷了。接下来会发生什么? 　　关于这款游戏 　　高木和晴是&hellip;"
+layout: post
+---
+
+ <p>　　switch《樱花外星人2 Sakura Alien 2》中文版nsz下载!从外星人公主爱娜自称是和晴的未来妻子的那一天起，和晴的生活就发生了翻天覆地的变化。如今，事情的变化越来越离谱，和晴大学新来了一位美女教授，她似乎对于爱娜的事过于热衷了。接下来会发生什么?</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=688225476&amp;bvid=BV1k24y1d7TB&amp;cid=838370611&amp;p=1" width="410"></iframe></p> <p>　　关于这款游戏</p> <p>　　高木和晴是一名热衷于星空的普通大学生。和晴与可爱又迷糊的日和前辈都是大学天文社的成员。致力于观星的他，对于周围可爱的女生却无暇关心&hellip;&hellip;</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8358e39e2.webp" width="700" alt="switch《樱花外星人2 Sakura Alien 2》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d83595f6a8.webp" width="700" alt="switch《樱花外星人2 Sakura Alien 2》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8359b9739.webp" width="700" alt="switch《樱花外星人2 Sakura Alien 2》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d835a34d22.webp" width="700" alt="switch《樱花外星人2 Sakura Alien 2》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d835a8bebd.webp" width="700" alt="switch《樱花外星人2 Sakura Alien 2》中文版nsz下载" /></p></div> <p>　　至少他自己是这么认为的&mdash;&mdash;直到外星人公主爱娜降临到他的腿上，然后声称自己是他未来的妻子。</p> <p>　　和晴只能收留了无处可去的爱娜，而爱娜与日和也很快打成了一片。现在，他们三人成了好朋友(或者更进一步)&mdash;&mdash;但是冥冥中又来了别的力量，开始破坏他们之间的关系。</p> <p>　　和晴的大学来了一名新教授。她叫坂井，外表美丽又优雅;她很迷人，和晴很快沦陷。可坂井教授似乎对爱娜另有所图。</p> <p>　　难道坂井教授发现爱娜是逃亡的外星公主了?那她要对爱娜做什么?</p> <p>　　这便是和晴需要弄清楚的事，不然，爱娜可能会有大麻烦。</p> <p>　　爱娜是来自遥远的科弗尔星球的外星公主。她生长在皇室，原本可以过荣华富贵的生活。但她并不势利，如今的她就喜欢待在和晴的小公寓里，穿着和晴的旧衬衫，吃着零食，看着漫画。</p> <p>　　爱娜是个活泼开朗的女生，她的微笑可以治愈周围的每一个人。如果她不是来自外星，她或许会成为偶像明星!</p> <p>　　日和比和晴年长一岁，是个善良的前辈，她是天文社的社长。对于星空的痴迷方面，她比和晴有过之而无不及，因为她坚信自己也来自外太空，而她胸口的星形胎记就是佐证。</p> <p>　　日和的父母非常富有，但她和他们的关系似乎不是很好。她很少谈及自己的家庭，也更愿意与和晴以及爱娜在一起。</p> <p>　　坂井教授(全名不详)是和晴所在大学新来的教授。她博学的专业知识加上一身黑色时髦装扮，让她看上去成熟又冷漠;但实际上她却有些笨手笨脚，她本人也对此颇为尴尬。</p> <p>　　她对爱娜有着不同寻常的兴趣，这让和晴倍感压力。坂井教授确实漂亮，但她究竟有什么图谋呢&hellip;&hellip;?</p> <p><h4>下载地址(由网友<font color="red">yangkewang</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/123967/](https://lad.sfcrom.cn/2024/04/123967/)

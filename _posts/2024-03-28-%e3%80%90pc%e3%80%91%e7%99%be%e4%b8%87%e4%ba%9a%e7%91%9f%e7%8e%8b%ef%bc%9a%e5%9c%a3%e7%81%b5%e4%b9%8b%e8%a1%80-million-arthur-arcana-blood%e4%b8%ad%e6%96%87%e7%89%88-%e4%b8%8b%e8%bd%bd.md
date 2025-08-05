@@ -1,0 +1,13 @@
+---
+title: "【PC】百万亚瑟王：圣灵之血 Million Arthur: Arcana Blood中文版 下载"
+date: 2024-03-28
+tags: []
+categories: ["2019年游戏"]
+excerpt: "　　【PC】《百万亚瑟王：圣灵之血(Million Arthur: Arcana Blood)》免安装v1.22绿色中文版游侠LMAO汉化1.0 是一款格斗类型的游戏，采用非常流畅的2d画面，给玩家带来最流畅的格斗打击感 游戏视频 　　【游戏介绍】 　　这个轰动一时的游戏系列以拥有 100 万个亚瑟&hellip;"
+layout: post
+---
+
+ <p>　　【PC】《百万亚瑟王：圣灵之血(Million Arthur: Arcana Blood)》免安装v1.22绿色中文版游侠LMAO汉化1.0 是一款格斗类型的游戏，采用非常流畅的2d画面，给玩家带来最流畅的格斗打击感</p> <p style="text-align: center;">游戏视频</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=56464312&amp;bvid=BV1m4411u7SA&amp;cid=98653594&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6604a00f6cff9.png" width="813" alt="【PC】百万亚瑟王：圣灵之血 Million Arthur: Arcana Blood中文版 下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6604a015c6a06.png" width="812" alt="【PC】百万亚瑟王：圣灵之血 Million Arthur: Arcana Blood中文版 下载" /></p> <p>　　【游戏介绍】</p> <p>　　这个轰动一时的游戏系列以拥有 100 万个亚瑟王和 100 万把王者之剑的&ldquo;不列颠&rdquo;为背景。每一位亚瑟都运用骑士和古代精灵之力量，努力成为真正的国王。他们努力战斗，希望能让内战频发的不列颠实现统一，并保护不列颠免受外部威胁。</p> <p>　　《百万亚瑟王：圣灵之血,Million Arthur: Arcana Blood》中有各种各样的客串格斗士，包括《Trials of Mana》中的 Otherworldly Riesz、《LORD of VERMILION IV》中的 Otherworldly Koume Sakiyama、《THE KING OF FIGHTERS XIV》中的 Otherworldly Iori Yagami，以及《Million Arthur》系列中的人气角色。</p> <p>　　控制 13 个可玩角色中的任意一个，加上从 31 个角色中选出的三个配角，让您能够打造自己独特的战斗风格!</p> <p>　　游戏特征:</p> <p>　　包含 3A 格斗游戏中的所有常见的游戏模式：Original Story Mode(原创故事模式)、Training Mode(训练模式)和Online Versus Mode(在线对战模式)。</p> <p>　　尽情享受线上的对决之战!大厅比赛一次支持多达 6 名玩家游戏，排名赛则将确保您与势均力敌的对手一较高下。</p> <p>　　Kazuma Kamachi 监制的传奇故事、KOTOKO 演唱的开场主题曲，以及著名作曲家 Yoko Shimomura 创作的游戏音乐都将成为此游戏的重要特色。</p> <p><h4>下载地址(由网友<font color="red">saoan</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/64001/](https://lad.sfcrom.cn/2024/03/64001/)

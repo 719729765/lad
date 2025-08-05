@@ -1,0 +1,13 @@
+---
+title: "switch《假面骑士：巅峰乱斗 Masked Rider Climax Scramble》中文版XCI整合版下载【1.2.0补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　假面骑士：巅峰乱斗是一款非常好玩的动作类冒险战斗游戏，玩家可以在游戏中尝试非常好玩的游戏画面以及紧张刺激的战斗玩法。下面我们就来看看关于这款游戏的相关介绍吧! 　　标准版价格为6800日元(约420人民币)，豪华版为9800日元(约605人民币)，豪华版将包括游戏本体一份，一个独家的DX Zi-&hellip;"
+layout: post
+---
+
+ <p>　　假面骑士：巅峰乱斗是一款非常好玩的动作类冒险战斗游戏，玩家可以在游戏中尝试非常好玩的游戏画面以及紧张刺激的战斗玩法。下面我们就来看看关于这款游戏的相关介绍吧!</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=37152739&amp;bvid=BV1bt411X7XE&amp;cid=65285438&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be5528a690.webp" width="584" alt="switch《假面骑士：巅峰乱斗 Masked Rider Climax Scramble》中文版XCI整合版下载【1.2.0补丁】" /></p> <p>　　标准版价格为6800日元(约420人民币)，豪华版为9800日元(约605人民币)，豪华版将包括游戏本体一份，一个独家的DX Zi-O骑士手表，Zi-O&amp;Gates橡胶腰带，一套浴巾，这些物品都会包装在一个专属包装盒中。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be55325f7f.webp" width="584" alt="switch《假面骑士：巅峰乱斗 Masked Rider Climax Scramble》中文版XCI整合版下载【1.2.0补丁】" /></p> <p>　　《假面骑士：巅峰战士》是由万代南梦宫制作并发行的一款动作格斗类游戏。游戏改编自1971年由石森章太郎创作的特摄电视剧《假面骑士》，里面诸多经典角色都会登场。在游戏中，玩家将会获得十分爽快的格斗体验，所以喜欢《假面骑士》的玩家一定不能错过。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be5538729f.webp" width="584" alt="switch《假面骑士：巅峰乱斗 Masked Rider Climax Scramble》中文版XCI整合版下载【1.2.0补丁】" /></p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2019/03-07/d85a8f8a756b6f660e5a8e5972e714dd.jpg" alt="switch《假面骑士：巅峰乱斗 Masked Rider Climax Scramble》中文版XCI整合版下载【1.2.0补丁】" /></p> <p>　　假面骑士：巅峰乱斗》将会包含从平成假面骑士第一部作品《假面骑士空我》到最新一代《假面骑士》中的共计31名假面骑士，角色阵容可谓十分强大。在展示完了众多假面骑士以后，我们看到了游戏的实机画面，可以看到，假面骑士之间的打斗非常的火爆刺激。</p> <p>　　Switch版《假面骑士：巅峰乱斗》中，你可以在TV模式下和多达四位玩家共同游玩，也可以将switch的两个Joy-Con手柄拆下，在桌面模式下，进行1V1的对战。当然了，你也可以单人游戏。此外，游戏还支持四位玩家的本地联机对战。</p> <p>　　可以看到，此次《假面骑士：巅峰乱斗》的操作也是非常简单易上手的。想要更简单直接一点?你也可以挥动Joy-Con进行动态操作以代替按键进行攻击。<img align="" border="0" src="https://www.2023game.com/d/file/p/2019/03-07/50df5004cd4c8b0b469d5ce3d4b556b5.jpg" alt="switch《假面骑士：巅峰乱斗 Masked Rider Climax Scramble》中文版XCI整合版下载【1.2.0补丁】" /></p> <p>　　《假面骑士：巅峰乱斗》还将会包含故事模式，你可以在故事模式中升级你的假面骑士，然后去对抗强大的敌人。</p> <p>　　值得一提的是，本作为NS平台的《假面骑士》系列首作，收录了自《假面骑士：空我》到最新一代的假面骑士，共31名假面骑士的豪华阵容将展开魄力报表的骑士之战。另外通过NS平台的JoyCon，可以进行好友之间的对战与合作，无论是单人还是多人都可以享受这款游戏带来的乐趣。</p> <p>　　以上就是关于这款游戏的相关介绍，欢迎喜欢这款游戏的小伙伴们去尝试体验一下哟!</p> <p><h4>下载地址(由网友<font color="red">hillkent1</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/122130/](https://lad.sfcrom.cn/2024/04/122130/)

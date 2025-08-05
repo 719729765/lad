@@ -1,0 +1,13 @@
+---
+title: "switch《梦境旋律.Lost in Harmony》英文版NSP-XCI下载+1.01补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《梦境旋律.Lost in Harmony》英文版NSP+XCI下载，梦境旋律是一款音乐游戏，游戏中加入了跑酷游戏的元素，令这款游戏的玩法更加多样。 　　《梦境旋律(Lost in Harmony)》是一款画面精致柔美的跑酷类游戏，玩过你会记住一辈子，著名作曲家们用无与伦比的想象力让&hellip;"
+layout: post
+---
+
+ <p>　　switch《梦境旋律.Lost in Harmony》英文版NSP+XCI下载，梦境旋律是一款音乐游戏，游戏中加入了跑酷游戏的元素，令这款游戏的玩法更加多样。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a371e97e9f.webp" alt="switch《梦境旋律.Lost in Harmony》英文版NSP-XCI下载+1.01补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a371ef060f.webp" alt="switch《梦境旋律.Lost in Harmony》英文版NSP-XCI下载+1.01补丁" /></p> <p>　　《梦境旋律(Lost in Harmony)》是一款画面精致柔美的跑酷类游戏，玩过你会记住一辈子，著名作曲家们用无与伦比的想象力让你身临其境，展开动人的音乐之旅。</p> <p>　　游戏背景</p> <p>　　游戏的角色是男孩 Kairo 和女孩 Aya ，他们想要逃离现实的烦恼，于是决定利用滑板穿梭于世界各地，有繁华的街道，贫瘠的小路和优美的海滩，领略世界各地不同的风采。</p> <p>　　游戏特色</p> <p>　　全新的音乐游戏体验，节奏点击与曼妙跑酷的结合</p> <p>　　《Valiant Hearts》创造者带来的音乐游戏</p> <p>　　伴随&ldquo;小凯&rdquo;和&ldquo;艾雅&rdquo;的冒险，与音乐融为一体</p> <p>　　领略30多种不同的瑰丽环境</p> <p>　　个性化角色的衣服，耳机，帽子，以及滑板</p> <p>&nbsp;</p> <p>　　我们还为玩家小伙伴们推荐了很多优秀的主机游戏，大家一定要继续支持我们哦!</p> <p><h4>下载地址(由网友<font color="red">董太师</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109238/](https://lad.sfcrom.cn/2024/04/109238/)

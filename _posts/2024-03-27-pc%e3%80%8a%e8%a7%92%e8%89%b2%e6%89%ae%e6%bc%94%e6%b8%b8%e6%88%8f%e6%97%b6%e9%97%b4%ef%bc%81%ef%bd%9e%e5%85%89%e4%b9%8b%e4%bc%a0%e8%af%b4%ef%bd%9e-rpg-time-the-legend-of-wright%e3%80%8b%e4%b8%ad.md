@@ -1,0 +1,13 @@
+---
+title: "PC《角色扮演游戏时间！～光之传说～ RPG Time The Legend of Wright》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《角色扮演游戏时间!～光之传说～ RPG Time The Legend of Wright》中文版下载，这是一款有趣的角色扮演游戏，十分有想象力的手绘画风和故事情节，游玩体验很新鲜，感兴趣的玩家不要错过。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：株式会社デスクワークス 　　游&hellip;"
+layout: post
+---
+
+ <p>　　PC《角色扮演游戏时间!～光之传说～ RPG Time The Legend of Wright》中文版下载，这是一款有趣的角色扮演游戏，十分有想象力的手绘画风和故事情节，游玩体验很新鲜，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=509687424&amp;bvid=BV1ku411B7rU&amp;cid=547315626&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-15/c8fa89693cf457c8b3b192c9c252838b.jpg" alt="PC《角色扮演游戏时间！～光之传说～ RPG Time The Legend of Wright》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-15/d43ea3f7aae22065278ef62a17ad2987.jpg" alt="PC《角色扮演游戏时间！～光之传说～ RPG Time The Legend of Wright》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-15/eaf72dfc53900489ecfd34c3ada245e0.jpg" alt="PC《角色扮演游戏时间！～光之传说～ RPG Time The Legend of Wright》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-15/7097da7a3225c2b831ab8e25ecca13f1.jpg" alt="PC《角色扮演游戏时间！～光之传说～ RPG Time The Legend of Wright》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：株式会社デスクワークス</p> <p>　　游戏发行：株式会社アニプレックス</p> <p>　　这是一款非常好玩的冒险RPG，作为一名勇士，玩家需要在游戏中展开冒险之旅，这期间会遇到很多困难，想办法解决，游戏中每一个场景都是精心设计的，非常的精美，每一个关卡的难度不同，越往后的关卡难度越大，所以一定要灵活的应对，游戏融合了漫画的风格，非常有趣。</p> <p>　　游戏介绍</p> <p>　　故事的舞台发生在放学后的教室里，玩家们将可游玩由立志成为游戏制作人的少年&middot;健太所设计的巨作&ldquo;光明传说&rdquo;。</p> <p>　　虽然游戏名称为&ldquo;角色扮演游戏时间&rdquo;，但可不只能游玩笔记上记载的角色扮演游戏。玩家更可进入以书桌上的大纸箱及文具创造出来的世界，在里面体验动作、冒险、横向卷轴射击、战棋等游戏模式。就像从宝箱里挖掘出宝石一样，可以享受充满玩心的健太所设计出来的多种游戏。</p> <p>　　既经典又创新的游戏体验，下课后马上开始!</p> <p>　　历经超过 15 年构思、耗时 9 年开发游戏，本作品浓缩了所有你能想得到的绝妙灵感及品味于一身。游戏内的独到创意以及无数点子广受各界好评。在众多世界知名的游戏盛事上，包含东京电玩展、台北电玩展或是 Bitsummit 等，斩获了无数奖项。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows10 64bit</p> <p>　　处理器: IntelCore i5-7500</p> <p>　　内存: 4GB GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 750Ti</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《角色扮演游戏时间!～光之传说～ RPG Time The Legend of Wright》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">装甲车</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50714/](https://lad.sfcrom.cn/2024/03/50714/)

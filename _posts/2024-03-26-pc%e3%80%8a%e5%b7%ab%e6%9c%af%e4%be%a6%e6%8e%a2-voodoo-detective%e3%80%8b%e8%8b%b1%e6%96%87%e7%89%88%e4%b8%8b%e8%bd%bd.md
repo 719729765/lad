@@ -1,0 +1,13 @@
+---
+title: "PC《巫术侦探 Voodoo Detective》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《巫术侦探 Voodoo Detective》英文版下载，这是一款 漫画画风的冒险解谜游戏，为玩家带来的是一个侦探为主角的推理故事，游戏加入了很有趣的巫术元素，感兴趣的玩家不要错过哦。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Short Sleeve Studio, LLC 　&hellip;"
+layout: post
+---
+
+ <p>　　PC《巫术侦探 Voodoo Detective》英文版下载，这是一款 漫画画风的冒险解谜游戏，为玩家带来的是一个侦探为主角的推理故事，游戏加入了很有趣的巫术元素，感兴趣的玩家不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=641702076&amp;bvid=BV1BY4y1t78u&amp;cid=722082749&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033c4a94761.jpg" alt="PC《巫术侦探 Voodoo Detective》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033c4ba32d5.jpg" alt="PC《巫术侦探 Voodoo Detective》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033c4c5c5fc.jpg" alt="PC《巫术侦探 Voodoo Detective》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033c4cd8243.jpg" alt="PC《巫术侦探 Voodoo Detective》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Short Sleeve Studio, LLC</p> <p>　　游戏发行：Short Sleeve Studio, LLC</p> <p>　　你喜欢冒险、喜剧和廉价侦探小说吗?男孩，我们为你准备了游戏!加入巫毒侦探手绘，点击黑色，在那里你会坑你的智慧和巫术知识对一个阴险邪恶的根在美丽的佐旺加岛。</p> <p>　　游戏介绍</p> <p>　　如果你在寻找冒险，你会在巫毒侦探、点击式感觉中找到它!</p> <p>　　新吉恩：一个小岛屿小镇，充满了丰富的巫毒文化，连锁店林立，到处都是特权游客。地方色彩和殖民腐败在一场绝望的生存之战中发生冲突。</p> <p>　　在这迷人的背景下，我们遇到了一个神秘的女人，她没有过去，站在一场如此深刻的戏剧的中心，现实的线索正威胁着解开!</p> <p>　　加入伏都教侦探的最新案件，每个肮脏的秘密背后都隐藏着危险，每一个激动人心的时刻都可能是他的最后时刻。该穿上你的软呢帽和风衣了，侦探，你有一个谜要解开!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 (SP1+) and Windows 10</p> <p>　　处理器: x86, x64 architecture with SSE2 instruction set support.</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: DX10, DX11, DX12 capable.</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　附注事项: The game was built to run on anything as or more powerful than an iPhone SE (2016).</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《巫术侦探 Voodoo Detective》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">a291234159</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41972/](https://lad.sfcrom.cn/2024/03/41972/)

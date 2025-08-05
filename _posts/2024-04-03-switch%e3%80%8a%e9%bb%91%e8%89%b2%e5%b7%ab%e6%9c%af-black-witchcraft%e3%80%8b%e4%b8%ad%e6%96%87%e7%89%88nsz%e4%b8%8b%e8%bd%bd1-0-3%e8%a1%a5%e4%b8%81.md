@@ -1,0 +1,13 @@
+---
+title: "switch《黑色巫术 BLACK WITCHCRAFT》中文版NSZ下载+1.0.3补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《黑色巫术 BLACK WITCHCRAFT》中文版NSZ下载+1.0.3补丁，这是一款风格华丽的横版动作游戏，哥特式的背景设定和美术风格，为玩家带来了一个巫术主题主题的故事，下面分享游戏的更新补丁。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：QuattroGear 　　游戏&hellip;"
+layout: post
+---
+
+ <p>switch《黑色巫术 BLACK WITCHCRAFT》中文版NSZ下载+1.0.3补丁，这是一款风格华丽的横版动作游戏，哥特式的背景设定和美术风格，为玩家带来了一个巫术主题主题的故事，下面分享游戏的更新补丁。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=929627600&amp;bvid=BV1LK4y1U7Z6&amp;cid=313518828&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8439eccdd.webp" alt="switch《黑色巫术 BLACK WITCHCRAFT》中文版NSZ下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d843a643ee.webp" alt="switch《黑色巫术 BLACK WITCHCRAFT》中文版NSZ下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d843ad399b.webp" alt="switch《黑色巫术 BLACK WITCHCRAFT》中文版NSZ下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d843b45276.webp" alt="switch《黑色巫术 BLACK WITCHCRAFT》中文版NSZ下载+1.0.3补丁" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：QuattroGear</p> <p>　　游戏发行：CREST</p> <p>　　黑色巫术是揭露围绕逐渐没落的鄂榭家族的神秘的哥特式动作RPG。成为用美丽的手工，高清2D横版绘制的&ldquo;丽姬娅&rdquo;，利用变成各种武器的&ldquo;杜拉汉&rdquo;，与阻挡在大家前程的众多恶魔进行斗争吧。</p> <p>　　故事介绍</p> <p>　　恶魔们从猎巫家族亚瑟的宅邸中出现了。想要阻止罗德里克暴行的姐姐玛德琳和&ldquo;乌鸦恶魔&rdquo;正在使用前世的黑色定位器，玛德琳牺牲了自己的身体，重生了黑发女巫&ldquo;丽姬娅&rdquo;。原本不感兴趣的丽姬娅，为了得到乌鸦魔的强行报酬，阻止了危险的魔女&ldquo;莉诺&rdquo;的复活。带着魔法道具&ldquo;多拉汉&rdquo;，迅速走到一边。为了阻止&ldquo;罗德里克&rdquo;的联想复活计划，抵达亚瑟家的丽姬娅一行人正在调查事件的真相。</p> <p>　　游戏特色</p> <p>　　哥特奇幻与神秘邂逅</p> <p>　　黑暗和哥特式的世界观和奇异而神秘的舞台构图。被结界分割成无数块的宅邸内部，由在每个空间中无限重复的莫比乌斯式结构构成。在这里，丽姬娅应该寻找特殊项目的方向，连接空间，找到通道。</p> <p>　　被恶魔附身的人类、躲在城墙里观察情况的恶魔、偷走丽姬亚容貌的复制恶魔等等。各具特色的角色出现，与他们战斗或交谈，揭开亚瑟街发生的神秘事件的全貌。</p> <p>　　深度故事情节和各种结局</p> <p>　　围绕着被封印的女巫雷诺复活的谜团和事实暗示了真相!您还可以通过子任务获得提示，并且有任务成为真正结局的跳板!如果您喜欢各种内容，您可能会看到隐藏的结局......</p> <p>　　多种技能和特殊技能打造的大胆组合</p> <p>　　主角的武器是可以变形各种武器的魔法道具。挥动比自己大的枪、斧、镰刀等武器，使用多种技能消灭恶魔。</p> <p>　　此外，还有可以通过装备改变丽姬娅能力的刻印【圣痕】。Durahan 的技术性能是不断变化的，比如 Wefont 技术，可以根据自己的口味定制和发挥。设计你自己的丽姬娅并投入战斗!</p> <p>　　以上内容就是小编为大家带来的《黑色巫术 BLACK WITCHCRAFT》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">sdad</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124420/](https://lad.sfcrom.cn/2024/04/124420/)

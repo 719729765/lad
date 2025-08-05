@@ -1,0 +1,13 @@
+---
+title: "switch《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版nsz下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "switch《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版nsz下载，这是一款冒险解密类型的游戏，讲述了一个发生在末日后的故事。游戏很容易令人想到经典的机械迷城。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Nudiventra &hellip;"
+layout: post
+---
+
+ <p>switch《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版nsz下载，这是一款冒险解密类型的游戏，讲述了一个发生在末日后的故事。游戏很容易令人想到经典的机械迷城。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=891086642&amp;bvid=BV1eP4y1t7cX&amp;cid=426047494&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/04-14/1ce3f41fd3b8a53445551ad6059c6116.jpg" alt="switch《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/04-14/05f8fff4b16eaf2a3048bb7e69e00e69.jpg" alt="switch《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/04-14/540c2c1c2827fbebd5682243ad14e31d.jpg" alt="switch《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/04-14/e02cd7db456187cd5d6be5422b70d996.jpg" alt="switch《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版nsz下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Nudiventra</p> <p>　　游戏发行：Nudiventra</p> <p>　　《机械师8230：逃离伊尔格罗特(Mechanic 8230: Escape from Ilgrot)》是Nudiventra制作的一款点击式冒险游戏，帮助机械师找到机器人朋友RO-2，同时揭开世界毁灭的秘密。游戏以独特的美术风格，将玩家带入到末日科幻的世界中，玩法上以探索与解谜为主，推进故事的发展，感受游戏的朋克味。</p> <p>　　游戏特色</p> <p>　　- 沉浸在遥远、风格化的新世界</p> <p>　　- 舒适的&quot;插图式&quot;复古主义氛围</p> <p>　　- 谜题与迷人的情节交织在一起</p> <p>　　- 每个关卡独特的背景音乐，具有赛博朋克元素的环境风格</p> <p>　　- 多种多样的关卡，每个关卡的结构都是独一无二的</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows Vista/7/8/10</p> <p>　　处理器: Quad-core Intel / AMD processor, 2 GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: 1 GB</p> <p>　　存储空间: 需要 1.3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《机械师8230：逃离伊尔格罗特 Mechanic 8230 Escape from Ilgrot》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">湖北</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109802/](https://lad.sfcrom.cn/2024/04/109802/)

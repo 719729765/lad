@@ -1,0 +1,13 @@
+---
+title: "PC《德维恩：天堂般的土地 De&#039;Vine Heavenly Acres》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《德维恩:天堂般的土地 De&#039;Vine Heavenly Acres》英文版下载，这是一款角色扮演游戏，游戏中还是喜闻乐见的种田元素，玩家还可以扮演驯兽师的角色，喜欢这个类型游戏的玩家不要错过。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Stapleton 　　游戏发行：&hellip;"
+layout: post
+---
+
+ <p>　　PC《德维恩:天堂般的土地 De&#39;Vine Heavenly Acres》英文版下载，这是一款角色扮演游戏，游戏中还是喜闻乐见的种田元素，玩家还可以扮演驯兽师的角色，喜欢这个类型游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=895192547&amp;bvid=BV14P4y1M73Q&amp;cid=561259102&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660349364939c.jpg" alt="PC《德维恩：天堂般的土地 De&amp;#039;Vine Heavenly Acres》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603493796ddd.jpg" alt="PC《德维恩：天堂般的土地 De&amp;#039;Vine Heavenly Acres》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603493836191.jpg" alt="PC《德维恩：天堂般的土地 De&amp;#039;Vine Heavenly Acres》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034938d7ed0.jpg" alt="PC《德维恩：天堂般的土地 De&amp;#039;Vine Heavenly Acres》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Stapleton</p> <p>　　游戏发行：Stapleton</p> <p>　　欢迎来到你的天赐田园的农场! 呈现出许多机会的农田。收获树木和植物。种植农作物。与其他不幸的人谈恋爱。收集多达200个独特的怪物，并与怪物战斗竞争! 在地下沉迷于埋藏的宝藏和危险的怪兽!</p> <p>　　在你的船被毁后，一位古代圣人给了你农田。</p> <p>　　这是成熟的营养生长自己的作物和饲养自己的动物和怪物!</p> <p>　　要么追求主权，要么就躺下来和平地享受土地!</p> <p>　　-故事：</p> <p>　　暴风雨正在酝酿!</p> <p>　　天国的统治者关哈凯(KuanHakkai)已经消失，从他以前的&ldquo;盟友&rdquo;那里创造了一个权力和腐败的真空。</p> <p>　　现在，超过20名强大的战士和东方三博士争先恐后地获得对特诺赫的权力，并取代关成为统治者。</p> <p>　　在一个与特诺赫群岛相连的岛屿上，坐落着一座处于婴儿期的小镇。</p> <p>　　这座城市是由一群不适应环境的人建造的，当他们的船在海上被一次大的内爆倾覆时，他们被困在那里。</p> <p>　　它撕裂了岛屿和大陆之间的裂痕。</p> <p>　　内爆的原因尚不清楚。但关于这些岛屿还有线索。</p> <p>　　让我们希望这个城市或它的人民能够团结起来，形成一些文明，带来和平。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7, 8, 10</p> <p>　　处理器: 2.4+ ghz dualcore</p> <p>　　内存: 3 GB RAM</p> <p>　　显卡: 1GB</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《德维恩：天堂般的土地 De&#39;Vine Heavenly Acres》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">zavier</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39934/](https://lad.sfcrom.cn/2024/03/39934/)

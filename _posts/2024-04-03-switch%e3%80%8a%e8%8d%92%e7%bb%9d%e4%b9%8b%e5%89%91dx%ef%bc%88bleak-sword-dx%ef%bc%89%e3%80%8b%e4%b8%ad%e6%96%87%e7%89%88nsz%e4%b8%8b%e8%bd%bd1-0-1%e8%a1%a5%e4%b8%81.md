@@ -1,0 +1,13 @@
+---
+title: "switch《荒绝之剑DX（Bleak Sword DX）》中文版nsz下载+1.0.1补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《荒绝之剑DX（Bleak Sword DX）》中文版nsz下载+1.0.1补丁！《Bleak Sword DX》是一款像素风格动作游戏。游戏的故事发生在一个黑暗的中世纪世界中，玩家需要使用各种武器和技巧来战胜敌人，解锁新的区域和挑战。游戏中采用了像素风格的画面，呈现出经典的游戏感觉和风&hellip;"
+layout: post
+---
+
+ <p>switch《荒绝之剑DX（Bleak Sword DX）》中文版nsz下载+1.0.1补丁！《Bleak Sword DX》是一款像素风格动作游戏。游戏的故事发生在一个黑暗的中世纪世界中，玩家需要使用各种武器和技巧来战胜敌人，解锁新的区域和挑战。游戏中采用了像素风格的画面，呈现出经典的游戏感觉和风格。游戏还配有优美的音乐和配乐，让玩家沉浸在游戏的氛围中。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=736576791&amp;bvid=BV1AD4y1K7MS&amp;cid=999903395&amp;page=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7f50b144b.webp" width="700" alt="switch《荒绝之剑DX（Bleak Sword DX）》中文版nsz下载+1.0.1补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7f511a728.webp" width="700" alt="switch《荒绝之剑DX（Bleak Sword DX）》中文版nsz下载+1.0.1补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7f516808d.webp" width="700" alt="switch《荒绝之剑DX（Bleak Sword DX）》中文版nsz下载+1.0.1补丁" /></p></div> <p>　　在这个袖珍动作冒险中，在压抑的洛菲世界中发现并摧毁越来越可怕的生物，挥舞着凶猛的武器和强大的魔法。</p> <p>　　纯粹、惊心动魄、极其残酷，凄凉之剑DX是一款黑暗奇幻动作游戏，挑战战士们在紧凑、被诅咒的西洋镜战场中战斗。</p> <p>　　Nintendo Switch&trade;最新更新，Bleak Sword DX扩展了广受好评的Apple Arcade版本，具有优雅的控制，三种新的游戏模式以及多种游戏玩法和图形改进。</p> <p>　　通过十二个紧张而深沉的章节，你必须解除传说中的凄凉之剑的诅咒，在一个挥舞着凶猛武器和强大魔法的压迫世界中击倒各种可怕的生物。</p> <p>　　这种引人注目的体验由屡获殊荣的作曲家吉姆&middot;格思里(Jim Guthrie)配乐，并由著名设计师乔纳斯&middot;特纳(Joonas Turner)提供声音。</p> <p>　　残酷的新章节</p> <p>　　DX包括所有原始的凄凉之剑章节以及三个DLC章节，并完成了新的关卡和敌人布局。</p> <p>　　不可预测的冒险 全新的随机发生器战役修改器将带您进入原始游戏的</p> <p>　　重新混合版本，其中无法保证按顺序升级或面对老板。</p> <p>　　不可</p> <p>　　触碰 跳入全新的 Boss Run 手套，只需一个生命条即可背靠背面对所有 12 个游戏内 Boss。走错一步，准备付出高昂的代价!</p> <p>　　无休止的</p> <p>　　战斗 令人心碎的竞技场模式将您带入角斗士式的生存之战。与越来越难对付的敌人作战，成为凄凉之剑的传奇。</p> <p>　　动态游戏改进</p> <p>　　新的攻击、招架和反击补充了专为 PC 和控制台设计的简化控制系统，而增强的敌人 AI 使它们更加不可预测。</p> <p>　　令人惊叹的图形增强功能 新的后期处理效果、自适应景深和一系列滤镜为《荒凉之剑 DX》增添了一抹新鲜的色彩，而粒子效果、树叶和天气增强功能</p> <p>　　则为世界带来了新的氛围和沉浸感。</p> <p><h4>下载地址(由网友<font color="red">mikelp</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/125006/](https://lad.sfcrom.cn/2024/04/125006/)

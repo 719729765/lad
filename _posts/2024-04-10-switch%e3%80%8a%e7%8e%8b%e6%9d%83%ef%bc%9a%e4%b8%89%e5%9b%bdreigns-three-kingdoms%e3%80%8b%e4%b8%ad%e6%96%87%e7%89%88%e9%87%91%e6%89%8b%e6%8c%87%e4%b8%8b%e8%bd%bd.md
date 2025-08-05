@@ -1,0 +1,13 @@
+---
+title: "switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载"
+date: 2024-04-10
+tags: []
+categories: ["switch金手指"]
+excerpt: "　　switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载 　　TID： 010091701AF62000 　　BID： FE0BFB3E5AB7CCB6 　　欢迎转载，但请注明出处! 　　更新履历： 　　2024.01.13 很容易卡牌2选1选错就满值转生...&hellip;"
+layout: post
+---
+
+ <p>　　switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载</p> <p>　　TID： 010091701AF62000</p> <p>　　BID： FE0BFB3E5AB7CCB6</p> <p>　　欢迎转载，但请注明出处!</p> <p>　　更新履历：</p> <p>　　2024.01.13 很容易卡牌2选1选错就满值转生... 只好常开第一项了XD</p> <p>　　第2条代码要做敌我判断.... 但是我有点懒，所以战斗挨打时手压着L吧</p> <p>　　(部分卡牌效果伤害还是会扣，暂没打算再多看几眼，但要打赢应该不会有难度)</p> <p>　　这条代码也会影响开始战斗可以新增兵的次数，不喜欢出场4人就压着多点几次换吧</p> <p>　　修改内容：</p> <p>　　[卡牌2选1后，物资、百姓、军队、笏维持半满]</p> <p>　　[战斗时按住L并承受攻击将不扣值]</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615ea7ac9140.webp" width="700" alt="switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615ea7b2cc8b.webp" width="700" alt="switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615ea7b85f5f.webp" width="700" alt="switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615ea7be05fe.webp" width="700" alt="switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615ea7c51b84.webp" width="700" alt="switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615ea7ca1f91.webp" width="700" alt="switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240410_6615ea7d07374.webp" width="700" alt="switch《王权：三国(Reigns: Three Kingdoms)》中文版金手指下载" /></p> <p>　　本游戏取材自广受喜爱的中国史诗经典《三国演义》，带领玩家来到动盪不安的东汉末年，遇见这个时期的许多阵营、战役、英雄，玩家要透过滑动手势来做出高风险决策、在正确的时机和正确的阵营结盟、获取更多权力等等。</p> <p>　　尝试用新方法体验游戏独特的卡牌滑动游戏机制，发掘大时代故事中蕴藏的许多祕密，在回合制战斗中善用战略，并挑战各种出乎意料的小游戏。</p> <p>　　游戏特色：</p> <p>　　&bull; 游玩十几种冒险，各有特定的剧情发展、可招募的英雄、结姻对象和需要养育的小孩。</p> <p>　　&bull; 招募新英雄，在全新回合制卡牌战斗中和你并肩作战。,</p> <p>　　&bull; 建立自己的王朝，掌握政治势力。</p> <p>　　&bull; 首度推出线上积分对战系统，玩家可领军和其他玩家进行卡牌战斗</p> <p><h4>下载地址(由网友<font color="red">2017230</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/150764/](https://lad.sfcrom.cn/2024/04/150764/)

@@ -1,0 +1,13 @@
+---
+title: "switch《天使在哭泣 Where Angels Cryels》中文版nsp+xci下载【1.01补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《天使在哭泣》中文版下载是一款解谜游戏。也是系列作品的第一部！总的来说还是可圈可点的！ 游戏详情 前往神秘而与世隔绝的修道院，开展秘密任务。 前往阿尔卑斯山深处偏远的中世纪修道院，在那里调查哥哥约翰的失踪事件并寻找装有哭泣雕像的神秘盒子。探索修道院和它周围奇怪的环境，调查修道院的居民、完&hellip;"
+layout: post
+---
+
+ <p>switch《天使在哭泣》中文版下载是一款解谜游戏。也是系列作品的第一部！总的来说还是可圈可点的！</p> <h3>游戏详情</h3> <p>前往神秘而与世隔绝的修道院，开展秘密任务。</p> <p>前往阿尔卑斯山深处偏远的中世纪修道院，在那里调查哥哥约翰的失踪事件并寻找装有哭泣雕像的神秘盒子。探索修道院和它周围奇怪的环境，调查修道院的居民、完成具有挑战性的任务、解决难解的谜题并玩数十个小游戏。揭开这令人激动的冒险游戏中那关于爱和背叛的令人悲伤震惊的故事！</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a021f9b1f6.webp" width="576" alt="switch《天使在哭泣 Where Angels Cryels》中文版nsp+xci下载【1.01补丁】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a021feed5f.webp" width="576" alt="switch《天使在哭泣 Where Angels Cryels》中文版nsp+xci下载【1.01补丁】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0220670ee.webp" width="576" alt="switch《天使在哭泣 Where Angels Cryels》中文版nsp+xci下载【1.01补丁】" /></p> <p>　　《天使在哭泣：泪珠坠落》是一款冒险解谜游戏，由Cateia Games制作，Libredia发行。天使在哭泣：泪珠坠落的故事发生在13世纪的欧洲，你将继续作为梵蒂冈代理人，接受全新的任务和挑战，这一次的主线与猎捕女巫有关...</p> <p>　　有流言称，检察官奥古斯丁得了失心疯，他沉迷于猎巫行动，当地的人们都生活在恐惧之中。你要到西班牙一个偏僻的小村庄深入调查，结束这里疯狂的女巫狩猎。你能否阻止检察官的暴行，为人们带来正义和和平呢?</p> <p>　　游戏特色</p> <p>　　探索孤立的小村庄，调查神秘的环境。</p> <p>　　阻止检察官的暴行，为人们带来正义和和平。</p> <p>　　通过完成各种迷你小游戏来解决任务中的难题。</p> <p>　　找到特殊物品，解锁成就。</p> <p>　　高清图形和动态的过场动画。</p> <p>　　三种游戏难度，你也可以自定义游戏的难度。</p> <p>　　关于这款冒险解谜游戏就为大家介绍到这里了，希望大家能够喜欢哦。</p> <p><h4>下载地址(由网友<font color="red">origa</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100628/](https://lad.sfcrom.cn/2024/04/100628/)

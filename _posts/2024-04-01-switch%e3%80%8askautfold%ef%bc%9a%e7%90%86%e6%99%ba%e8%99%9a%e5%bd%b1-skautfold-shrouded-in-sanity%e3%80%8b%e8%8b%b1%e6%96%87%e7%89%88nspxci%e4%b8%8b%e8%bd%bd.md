@@ -1,0 +1,13 @@
+---
+title: "switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版下载，这一款像素画风的动作冒险游戏，玩家将在阴暗的氛围中探索和清理一座充满怪物和危险的庄园，丰富的内容等你来体验。 　　这是一款动作冒险游戏，玩家在一个庄园之中发现了古怪的秘密，这个秘密让&hellip;"
+layout: post
+---
+
+ <p>　　switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版下载，这一款像素画风的动作冒险游戏，玩家将在阴暗的氛围中探索和清理一座充满怪物和危险的庄园，丰富的内容等你来体验。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=296290808&amp;bvid=BV1aF411J7jU&amp;cid=501438030&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ce387b54.jpg" alt="switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ce41f72a.jpg" alt="switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ce4bebfd.jpg" alt="switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ce562b53.jpg" alt="switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ce5f3a68.jpg" alt="switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　这是一款动作冒险游戏，玩家在一个庄园之中发现了古怪的秘密，这个秘密让里面所有的仆人都发了狂，不顾一切的想要攻击你，所幸的是你手中还有可以一战的武器。</p> <p>　　故事背景</p> <p>　　以1897年 不列颠尼亚帝国的另类历史为背景，你的合同将命令你消除围绕贝雷莱庄园的非自然雾气的来源。</p> <p>　　当你在暴力的居民中寻找答案时，发现庄园的秘密。</p> <p>　　一种奇怪的、令人反感的疯狂抓住了在大厅里游荡的仆人，他们一看到你就会攻击，因为他们的疯狂植根于对宇宙微不足道的更深层次的理解。</p> <p>　　为了击退令人发狂的恐惧，你的伊亚托手杖和沃尔瑟姆a9手炮会帮助你。为了修复你的伤口，你的个人生活药水可以提供治疗。</p> <p>　　当心，无论发生了什么神秘的事件，你的心智将受到考验，因为真相在这饥饿的所有消耗的雾中展开。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8ce6546fc.png" width="631" alt="switch《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《Skautfold：理智虚影 Skautfold Shrouded in Sanity》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">02asd3a23s1d2</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111668/](https://lad.sfcrom.cn/2024/04/111668/)

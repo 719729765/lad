@@ -1,0 +1,13 @@
+---
+title: "PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载!以日本江户的一次灾难性事件的核心为背景，Ninja or Die: Shadow of the Sun是一款取材于日本民间传说的超快节奏轻度Rogue类游戏。释放忍者的力量、速度与灵魂，使用杂技一般&hellip;"
+layout: post
+---
+
+ <p>　　PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载!以日本江户的一次灾难性事件的核心为背景，Ninja or Die: Shadow of the Sun是一款取材于日本民间传说的超快节奏轻度Rogue类游戏。释放忍者的力量、速度与灵魂，使用杂技一般的跳跃来移动和攻击</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=358123911&amp;bvid=BV1AX4y1e7Np&amp;cid=1186720524&amp;page=1" width="410"></iframe></p> <p>　　天降毁灭。这就是等待人类的命运。在日本江户，大灾变被一个谁都想不到的人物预言了&mdash;&mdash;一位神偷。你的母亲。</p> <p>　　你是个毛头小贼，大灾变把你变成了一名拥有闪电般机动能力的致命忍者。拉面师傅成为了一名武士。舞妓成为了一名艺妓杀手。你的小小犯罪国度变成了一个疯狂的霓虹世界，充斥着幕府将军城堡、魔法陷阱和天降刺客。有人将你诱入了一个混乱循环&hellip;&hellip;如果不是为了杀死你，就是为了保护你远离更可怕的东西。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b65336590.webp" width="700" alt="PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b6539bd9f.webp" width="700" alt="PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b653f4051.webp" width="700" alt="PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b6545bd7a.webp" width="700" alt="PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b654c2c7a.webp" width="700" alt="PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b65540433.webp" width="700" alt="PC《忍或死太阳之影 Ninja or Die: Shadow of the Sun》中文版下载" /></p></div> <p>　　熟练掌握暴力的精确平台跳跃技巧，从容面对这款将极致速度与单按钮操控融会贯通的游戏&mdash;&mdash;它不仅会夺走你的生命，还想要索取更多。</p> <p>　　通过跳跃来移动，通过跳跃来攻击</p> <p>　　使用一个按钮控制一切。</p> <p>　　既不走也不跑 &ndash; 只有跳跃。</p> <p>　　通过跳到敌人身上来将他们大卸八块。</p> <p>　　按住即可实现跳跃的超级蓄力并加大攻击力度。</p> <p>　　在跳跃的那一刻进入无敌状态 &mdash; 掐准时机即可躲避哪怕是最残暴的攻击。</p> <p>　　一步走错就只能从头再来</p> <p>　　面对地狱般的Boss和投掷物、忍术和敏捷身手兼备的刺客。</p> <p>　　躲避尖利的掉落物，致命毒药和其他卑鄙的陷阱。</p> <p>　　利用连续攻击积累攻击力。只是别被打中。</p> <p><h4>下载地址(由网友<font color="red">董哲</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51114/](https://lad.sfcrom.cn/2024/03/51114/)

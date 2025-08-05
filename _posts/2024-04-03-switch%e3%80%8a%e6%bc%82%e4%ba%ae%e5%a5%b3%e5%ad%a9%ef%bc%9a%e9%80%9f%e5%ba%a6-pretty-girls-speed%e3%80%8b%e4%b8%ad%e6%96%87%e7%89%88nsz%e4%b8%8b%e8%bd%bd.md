@@ -1,0 +1,13 @@
+---
+title: "switch《漂亮女孩：速度 Pretty Girls Speed》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《漂亮女孩：速度 Pretty Girls Speed》中文版下载，这是一款很有趣的纸牌游戏，玩法很简单，主要比拼的是玩家的反应速度，游戏中有很多漂亮女孩，感兴趣的玩家可以来体验一下。 　　美少女桌面棋牌游戏Pretty Girls系列新作，10位完全配音、性格各异的女孩在等待着你去&hellip;"
+layout: post
+---
+
+ <p>　　switch《漂亮女孩：速度 Pretty Girls Speed》中文版下载，这是一款很有趣的纸牌游戏，玩法很简单，主要比拼的是玩家的反应速度，游戏中有很多漂亮女孩，感兴趣的玩家可以来体验一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=726955355&amp;bvid=BV1VS4y1q7UK&amp;cid=729646294&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d70635c35a.jpg" alt="switch《漂亮女孩：速度 Pretty Girls Speed》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d70641f940.jpg" alt="switch《漂亮女孩：速度 Pretty Girls Speed》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7064c6489.jpg" alt="switch《漂亮女孩：速度 Pretty Girls Speed》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d70658e4d2.jpg" alt="switch《漂亮女孩：速度 Pretty Girls Speed》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d70664647b.jpg" alt="switch《漂亮女孩：速度 Pretty Girls Speed》中文版nsz下载" /></td> </tr> </tbody> </table> <p>　　美少女桌面棋牌游戏Pretty Girls系列新作，10位完全配音、性格各异的女孩在等待着你去挑战。本作将考验玩家的反应力和快速决策，游戏的目标是首先扔完自己手中的所有纸牌。</p> <p>　　游戏介绍</p> <p>　　你能跟得上我们的速度吗?快捷而又容易的游戏! 纸牌游戏来了! 迅速把堆在桌子上的牌放出来，如果所有的牌都先放完，你就赢了! 与 PrettyGirls 竞争速度的头衔!</p> <p>　　新的 漂亮女孩 系列来了!</p> <p>　　玩纸牌游戏 &quot;速度 &quot;与美丽的女孩在一个严肃的竞争!争取成为一名速度大师!</p> <p>　　游戏特色</p> <p>　　游戏简单快速上手!</p> <p>　　卡片拾取和填充是自动的!直观的控制让您轻松上手，即使是新手也能轻松上手!</p> <p>　　两种游戏模式可供选择!</p> <p>　　・战斗模式</p> <p>　　选择你的角色并与他们对战。你赢得的角色越多，你的对手就会变得越强大。你赢得的角色越多，你的对手就会越强大。让我们为速度冠军而战!</p> <p>　　・挑战模式</p> <p>　　这是一种模式，您必须通过所有 100 个关卡。每个级别都比前一个更难!让我们的目标是征服所有关卡!</p> <p>　　卡哇伊女孩在等着你!</p> <p>　　游戏中有10个角色!所有角色都有音效!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d706695a92.png" width="422" alt="switch《漂亮女孩：速度 Pretty Girls Speed》中文版nsz下载" /></p> <p>　　以上内容就是小编为大家带来的《漂亮女孩：速度 Pretty Girls Speed》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">leng4647</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/123763/](https://lad.sfcrom.cn/2024/04/123763/)

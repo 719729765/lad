@@ -1,0 +1,13 @@
+---
+title: "PC《美丽荒境 BEAUTIFUL DESOLATION》中文版下载（豪华版 v1.0.7.3）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《美丽荒境 BEAUTIFUL DESOLATION》中文版下载，这是一款未来科幻题材的冒险解谜游戏，玩家将在末日后的非洲大陆上经历一场精彩的冒险，很精美的游戏画面，喜欢的玩家不要错过。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：THE BROTHERHOOD 　　游戏发行：TH&hellip;"
+layout: post
+---
+
+ <p>　　PC《美丽荒境 BEAUTIFUL DESOLATION》中文版下载，这是一款未来科幻题材的冒险解谜游戏，玩家将在末日后的非洲大陆上经历一场精彩的冒险，很精美的游戏画面，喜欢的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=545865626&amp;bvid=BV1hq4y1j7Zf&amp;cid=344960207&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b4d7742d.jpg" alt="PC《美丽荒境 BEAUTIFUL DESOLATION》中文版下载（豪华版 v1.0.7.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b4de70c5.jpg" alt="PC《美丽荒境 BEAUTIFUL DESOLATION》中文版下载（豪华版 v1.0.7.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b4e65099.jpg" alt="PC《美丽荒境 BEAUTIFUL DESOLATION》中文版下载（豪华版 v1.0.7.3）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b4edba98.jpg" alt="PC《美丽荒境 BEAUTIFUL DESOLATION》中文版下载（豪华版 v1.0.7.3）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：THE BROTHERHOOD</p> <p>　　游戏发行：THE BROTHERHOOD</p> <p>　　这是一款画面十分出彩的冒险科幻冒险RPG。游戏中你要扮演一名超脱于时间之外的人&mdash;&mdash;马克，他来到了一个遥遥无期的未来时代中寻找自己失落的兄弟唐(Don)，而这个时代是由既受尊敬又受到谴责的先进科学技术统治的。</p> <p>　　探索世界末日的风景，解决难题，结识新朋友并结识强大的敌人，调解冲突并为您的生活而奋斗，同时揭开周围世界的秘密。</p> <p>　　故事介绍</p> <p>　　马克(Mark)是一个没有时间的人，他在一个遥遥无期的未来时代中寻找自己失落的兄弟唐(Don)，而这个时代是由既受尊敬又受到谴责的先进技术统治的。</p> <p>　　您周围的环境回荡着荒凉的过去，瞥见尚未被您的行动所笼罩的黑暗的未来。准备好面对艰难的选择，这些艰难的选择将在您完成旅程后很长一段时间内影响这片土地。</p> <p>　　游戏特色</p> <p>　　在反乌托邦世界末日的未来中进行故事驱动的冒险。</p> <p>　　独特的部落朋克美学和2D等距渲染环境。</p> <p>　　拼图和经典冒险游戏。</p> <p>　　奇异的生物，动物和充满活力的角色在等待着您。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 64-bit or newer</p> <p>　　处理器: Intel Core i3 @ 2.50 GHz / AMD Phenom II X3</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: DirectX 11 Compatible</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 14 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《美丽荒境 BEAUTIFUL DESOLATION》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">323106274</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53050/](https://lad.sfcrom.cn/2024/03/53050/)

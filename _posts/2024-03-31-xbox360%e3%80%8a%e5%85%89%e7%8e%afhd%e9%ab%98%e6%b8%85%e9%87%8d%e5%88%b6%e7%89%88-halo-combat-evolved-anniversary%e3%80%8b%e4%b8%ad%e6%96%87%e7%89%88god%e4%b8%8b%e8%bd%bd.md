@@ -1,0 +1,13 @@
+---
+title: "Xbox360《光环HD高清重制版 Halo: Combat Evolved Anniversary》中文版GOD下载"
+date: 2024-03-31
+tags: []
+categories: ["xbox360中文游戏"]
+excerpt: "　　Xbox360《光环HD高清重制版 Halo: Combat Evolved Anniversary》中文版GOD下载。这款游戏是在光环系列十周年时推出的一代作品的重制版本。 　　为了庆祝游戏史上其中一款玩家最爱的著名大作《Halo》推出10周年而重新制作的游戏。大量加入新元素，包括透过Xbox&hellip;"
+layout: post
+---
+
+ <p>　　Xbox360《光环HD高清重制版 Halo: Combat Evolved Anniversary》中文版GOD下载。这款游戏是在光环系列十周年时推出的一代作品的重制版本。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240330_660840221ade5.jpg" width="600" alt="Xbox360《光环HD高清重制版 Halo: Combat Evolved Anniversary》中文版GOD下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240330_66084022918ca.jpg" width="600" alt="Xbox360《光环HD高清重制版 Halo: Combat Evolved Anniversary》中文版GOD下载" /></p> <p>　　为了庆祝游戏史上其中一款玩家最爱的著名大作《Halo》推出10周年而重新制作的游戏。大量加入新元素，包括透过Xbox LIVE合作作战、《Halo》历来最受玩家欢迎的多人模式地图、新挑战和新故事内容;《Halo: Combat Evolved Anniversary》是不能错过的瞩目游戏，</p> <p>　　光环1重制版主要是对游戏的画面进行了重制修改，毕竟光环1已经是上个世代的游戏了，发售距今已经有18年了，这款游戏是游戏整个系列的开始，游戏围绕超级战士S-117&ldquo;约翰&rdquo;(John)展开，是非常经典的一款游戏。重制版无论是画面还是音效都有质的飞跃。设计者破天荒地加入了一键切换功能，玩家可以在游戏中随时按BACK键在重制版和原版的画面之间进行切换。</p> <p><h4>下载地址(由网友<font color="red">TMKBGND</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/98428/](https://lad.sfcrom.cn/2024/03/98428/)

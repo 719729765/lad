@@ -1,0 +1,13 @@
+---
+title: "PC《苏打故事：酿酒大亨 Soda Story &#8211; Brewing Tycoon》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《苏打故事：酿酒大亨 Soda Story - Brewing Tycoon》英文版下载，这是一款休闲风格的模拟经营游戏，玩家要做的是在一家生产和销售汽水的工厂工作，喜欢模拟游戏的玩家可以来尝试一下。 　　游戏类型：模拟经营类(SIM)游戏 　　游戏制作：Upper Class Walrus&hellip;"
+layout: post
+---
+
+ <p>　　PC《苏打故事：酿酒大亨 Soda Story - Brewing Tycoon》英文版下载，这是一款休闲风格的模拟经营游戏，玩家要做的是在一家生产和销售汽水的工厂工作，喜欢模拟游戏的玩家可以来尝试一下。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034148516af.jpg" alt="PC《苏打故事：酿酒大亨 Soda Story - Brewing Tycoon》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034149901da.jpg" alt="PC《苏打故事：酿酒大亨 Soda Story - Brewing Tycoon》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603414a3f6b5.jpg" alt="PC《苏打故事：酿酒大亨 Soda Story - Brewing Tycoon》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603414b3d59f.jpg" alt="PC《苏打故事：酿酒大亨 Soda Story - Brewing Tycoon》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：模拟经营类(SIM)游戏</p> <p>　　游戏制作：Upper Class Walrus</p> <p>　　游戏发行：Upper Class Walrus</p> <p>　　《Soda Story - Brewing Tycoon》是一款冒险的休闲管理游戏。在游戏中你要接受挑战，经营一家苏打水酿造企业。所有这些都是在参加热门电视真人秀节目《Prisoneers》的当前季中进行的。</p> <p>　　扮演一个囚犯，在最后一分钟被选中参加著名的充满竞争的比赛。每个人都在努力成为精英中的精英，随着名声、财富和监狱服刑时间的争夺，这将是一场激烈的战斗!。</p> <p>　　游戏特色</p> <p>　　&bull; 通过实验数百种不同的口味和组合，掌握酿造苏打水的艺术。你的新配方会成为粉丝们的大热门，还是会给任何敢于喝一口的人带来反感的副作用?</p> <p>　　&bull;用苏打水酿造器、苏打水机器人、口味分析仪等实现你的自动化操作。有许多不寻常的机械和发明可以研究、建造和使用，以发挥你的优势。</p> <p>　　&bull;探索仓库、对手仓库和周围的大院，你可能会发现什么秘密?你可以通过什么花招获得优势?</p> <p>　　&bull;在夺取冠军头衔的过程中，你会享受到各种挑战的乐趣。有四个不同的、耐人寻味的对手，关键是要在竞争中保持领先。或者，如果你愿意的话，渗透到他们的行动中去，进行少量的破坏。注意你的背后，复仇是这些古怪的不合群者的首要任务。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 SP1+</p> <p>　　处理器: CPU: SSE2 instruction set support.</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Graphics card with DX10 (shader model 4.0) capabilities</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: CPU: SSE2 instruction set support.</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Graphics card with DX10 (shader model 4.0) capabilities</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《苏打故事：酿酒大亨 Soda Story - Brewing Tycoon》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">PirateX1</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40619/](https://lad.sfcrom.cn/2024/03/40619/)

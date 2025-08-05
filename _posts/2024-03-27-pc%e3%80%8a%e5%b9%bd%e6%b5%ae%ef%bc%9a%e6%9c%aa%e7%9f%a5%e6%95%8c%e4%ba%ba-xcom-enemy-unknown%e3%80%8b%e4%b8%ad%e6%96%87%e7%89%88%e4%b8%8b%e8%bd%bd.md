@@ -1,0 +1,13 @@
+---
+title: "PC《幽浮：未知敌人 XCOM Enemy Unknown》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《幽浮：未知敌人 XCOM Enemy Unknown》中文版下载，《幽浮：未知敌人》是一款回合制策略游戏，围绕着地球人和外星人之间的战争展开，精彩的回合制玩法，感兴趣的玩家不要错过。 　　类型:策略 　　开发商:Firaxis Games,Feral Interactive (Linux)&hellip;"
+layout: post
+---
+
+ <p>　　PC《幽浮：未知敌人 XCOM Enemy Unknown》中文版下载，《幽浮：未知敌人》是一款回合制策略游戏，围绕着地球人和外星人之间的战争展开，精彩的回合制玩法，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=280341&amp;bvid=BV1Fx411F7dw&amp;cid=445898&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dbc8b2ff.jpg" alt="PC《幽浮：未知敌人 XCOM Enemy Unknown》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dbceea2d.jpg" alt="PC《幽浮：未知敌人 XCOM Enemy Unknown》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dbd5db30.jpg" alt="PC《幽浮：未知敌人 XCOM Enemy Unknown》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039dbdc0b0a.jpg" alt="PC《幽浮：未知敌人 XCOM Enemy Unknown》中文版下载" /></td> </tr> </tbody> </table> <p>　　类型:策略</p> <p>　　开发商:Firaxis Games,Feral Interactive (Linux)</p> <p>　　发行商:2K,Feral Interactive (Linux)</p> <p>　　《幽浮：未知敌人》是2KMarin旗下的FPS版《幽浮》挂钩的游戏，由《文明》系列工作室开发的《幽浮：未知敌人》，将会以旧派战略动作形式再度和各位玩家见面。《幽浮：未知敌人》是一块战争策略类游戏，它集合资源、科技、战斗为一体。</p> <p>　　在《幽浮：未知敌人》中，敌人的AI相当的高，如果保证在一局中无伤亡过局，保存战斗力，如何利用有效的地形、利用火力乾掉敌人是这个游戏最有魅力的地方。在游戏中地形都是分四层的高度的，所以是立体化战斗方式，只要你有想象，可以隔墙杀人，或者利用地形从容逃生。游戏场景有很多，外星人也会进攻你的基地，你也可以进攻外星人的基地，还有城市保卫战等等。</p> <p>　　游戏特色</p> <p>　　策略进化：幽浮未知敌人将回合制战术、令人难以置信的动作序列和地面战斗相结合。</p> <p>　　战略基础：招募，定制和发展独特的士兵并管理您的人员。 在构建和扩展XCOM总部时，检测并拦截外来威胁。</p> <p>　　战术战斗：士兵小队直接参加回合制地面战斗，并部署诸如&ldquo;拦截机&rdquo;和&ldquo;空中突击者&rdquo;之类的空中部队。</p> <p>　　全球威胁：随着XCOM团队执行70多个独特的任务，并与世界各地的政府进行互动和谈判，战斗遍布全球。</p> <p>　　配置介绍</p> <p>　　MINIMUM:</p> <p>　　OS:Windows Vista</p> <p>　　Processor:2 GHz Dual Core</p> <p>　　Memory:2 GB RAM</p> <p>　　Graphics:NVIDIA GeForce 8600 GT / ATI Radeon HD 2600 XT or greater</p> <p>　　DirectX&reg;:9.0</p> <p>　　Hard Drive:20 GB HD space</p> <p>　　Sound:DirectX Compatible</p> <p>　　以上内容就是小编为大家带来的《幽浮：未知敌人 XCOM Enemy Unknown》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">99446178</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53100/](https://lad.sfcrom.cn/2024/03/53100/)

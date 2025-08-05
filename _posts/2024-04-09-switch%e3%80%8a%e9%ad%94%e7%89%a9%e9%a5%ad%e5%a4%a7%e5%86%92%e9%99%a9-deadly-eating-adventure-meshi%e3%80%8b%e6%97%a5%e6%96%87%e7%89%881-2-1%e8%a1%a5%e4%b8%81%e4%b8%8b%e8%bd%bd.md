@@ -1,0 +1,13 @@
+---
+title: "switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版1.2.1补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版下载，这是一款角色扮演类型的游戏，游戏的日文名是《屍喰らいの冒険メシ 》，为大家带来的是地牢探索类型的玩法。 　　《魔物饭大冒险》是一款地牢生存战术角色扮演游戏，您可以带领一群被困的冒险者通过收集食物和&hellip;"
+layout: post
+---
+
+ <p>　　switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版下载，这是一款角色扮演类型的游戏，游戏的日文名是《屍喰らいの冒険メシ 》，为大家带来的是地牢探索类型的玩法。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=675757114&amp;bvid=BV1oU4y1A7bN&amp;cid=418420276&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d072c18f.jpg" alt="switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版1.2.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d07b5b8e.jpg" alt="switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版1.2.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d084f11f.jpg" alt="switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版1.2.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d08e7e62.jpg" alt="switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版1.2.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d0988410.jpg" alt="switch《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版1.2.1补丁下载" /></td> </tr> </tbody> </table> <p>　　《魔物饭大冒险》是一款地牢生存战术角色扮演游戏，您可以带领一群被困的冒险者通过收集食物和材料逃出地牢。</p> <p>　　游戏介绍</p> <p>　　角色设计由《魔界战记》的原田雄一担任，游戏的关键词是&ldquo;角色自定义&rdquo;&ldquo;迷宫生存&rdquo;&ldquo;SRPG&rdquo;：本作号称日本一史上角色自定义自由度最高的一作，角色的名字、性别、职业、长相、发型、饰品和身高等要素都可变更。</p> <p>　　在游戏中，玩家将指挥新人冒险者在封印了邪神的迷宫中冒险，途中需要收集食材、制作料理，目标是逃出迷宫到达地面。玩家需要操作4个角色在战斗中打倒敌人，攻击、移动会消耗水分和卡路里，因此需要充分利用手中的食物：何时何地谁要怎么吃在本作中十分重要，吃掉打倒的魔物能使角色成长，把有毒的食物给敌人也能弱化对方。</p> <p>　　故事背景</p> <p>　　&ldquo;困在地牢里!?在与饥饿和口渴作斗争的同时逃离!&rdquo;</p> <p>　　一群冒险者最终被困在一个他们听说是&ldquo;初学者&rdquo;的地牢中。当他们的口渴和饥饿达到顶峰时，他们遇到了一具巨大的怪物尸体。</p> <p>　　小队解决了饿死的危机后，立马开始寻找出路。通过吃美味的东西、奇怪的东西以及介于两者之间的一切来回到地面。</p> <p>　　以上内容就是小编为大家带来的《魔物饭大冒险 Deadly Eating Adventure Meshi》日文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">鸦鸦不吃鱼</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145337/](https://lad.sfcrom.cn/2024/04/145337/)

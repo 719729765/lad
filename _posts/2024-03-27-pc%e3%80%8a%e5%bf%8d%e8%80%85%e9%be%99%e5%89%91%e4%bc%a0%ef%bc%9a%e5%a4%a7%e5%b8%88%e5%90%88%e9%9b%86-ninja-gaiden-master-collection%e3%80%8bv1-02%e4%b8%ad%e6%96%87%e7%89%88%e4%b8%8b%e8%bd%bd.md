@@ -1,0 +1,13 @@
+---
+title: "PC《忍者龙剑传：大师合集 NINJA GAIDEN: Master Collection》v1.02中文版下载【整合画集+原声音乐】"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "【顶】PC《忍者龙剑传大师合集》中文版版下载【免安装版+镜像版】!《忍者龙剑传三部曲》三部曲包括：《忍者龙剑传》、《忍者龙剑传2》、《忍者龙剑传3：刀锋边缘》 　　《忍者龙剑传》作为三大ACT游戏之一，。据香港游戏代理与发行商GSE官网显示(现已被删除)，《忍者龙剑传三部曲》将在2021年3月发售，&hellip;"
+layout: post
+---
+
+ <p>【顶】PC《忍者龙剑传大师合集》中文版版下载【免安装版+镜像版】!《忍者龙剑传三部曲》三部曲包括：《忍者龙剑传》、《忍者龙剑传2》、《忍者龙剑传3：刀锋边缘》</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=672638808&amp;bvid=BV1fU4y1h7JD&amp;cid=327585273&amp;page=1" width="410"></iframe></p> <p>　　《忍者龙剑传》作为三大ACT游戏之一，。据香港游戏代理与发行商GSE官网显示(现已被删除)，《忍者龙剑传三部曲》将在2021年3月发售，登陆PS4、Switch平台。三部曲包括：《忍者龙剑传》、《忍者龙剑传2》、《忍者龙剑传3：刀锋边缘》。</p> <p>　　零售商GSE泄露的消息显示《忍者龙剑传三部曲》售价39.99美元(约合人民币273元)，其中《忍者龙剑传》为英文版，《忍者龙剑传2》、《忍者龙剑传3：刀锋边缘》为中文版，2021年3月登陆PS4、Switch平台</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img src="https://www.2023game.com/d/file/p/2021/06-10/dc4d4bc0c837293976019d6fbb7da718.jpg" style="border-width: 0px; border-style: solid; height: 254px; width: 500px;" alt="PC《忍者龙剑传：大师合集 NINJA GAIDEN: Master Collection》v1.02中文版下载【整合画集+原声音乐】" /></td> </tr> </tbody> </table> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img src="https://www.2023game.com/d/file/p/2021/06-10/d38aa687e744ada1b870a3ae59076ce3.jpg" style="border-width: 0px; border-style: solid; height: 281px; width: 500px;" alt="PC《忍者龙剑传：大师合集 NINJA GAIDEN: Master Collection》v1.02中文版下载【整合画集+原声音乐】" /></td> </tr> <tr> <td align="center"><img src="https://www.2023game.com/d/file/p/2021/06-10/c09488248e77a45cb28b5be7dfe06bab.jpg" style="border-width: 0px; border-style: solid; height: 281px; width: 500px;" alt="PC《忍者龙剑传：大师合集 NINJA GAIDEN: Master Collection》v1.02中文版下载【整合画集+原声音乐】" /></td> </tr> </tbody> </table> <p>　　一口气享受&#39;忍龙&#39;系列的三部作品!</p> <p>　　令人怀念却毫不褪色的高速动作经典将在当前的主机上再次甦醒，尽情享受与强劲敌手们的热血战斗吧。</p> <p>　　收录大量过去发布的下载内容!</p> <p>　　包含各部作品在过去发布的游戏模式与服饰等下载内容。其中收录龙隼以及女性角色们的大量服装，能够以喜欢的搭配进行战斗。</p> <p>　　四名可操作女性角色也将登场!</p> <p>　　除&#39;龙隼&#39;外，还可操作四名女性角色&#39;绫音&#39;、&#39;瑞秋&#39;、&#39;红叶&#39;与&#39;霞&#39;。可以选择喜爱的角色组队，并在战斗途中切换操作角色。</p> <p><h4>下载地址(由网友<font color="red">pittchen</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/48338/](https://lad.sfcrom.cn/2024/03/48338/)

@@ -1,0 +1,13 @@
+---
+title: "switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版nsz/xci下载"
+date: 2024-04-04
+tags: []
+categories: ["nsz英日游戏"]
+excerpt: "　　switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版下载。一款高质量的隐藏物品冒险智力游戏，也是游戏系列的的第三作，专注于哥特式城市中恐怖场景的小游戏和解谜游戏，在手绘哥特式城市中猎杀怪物! 在手绘哥特式城市中猎杀怪物！ 　　西尔维娅，神秘的怪物猎&hellip;"
+layout: post
+---
+
+ <p>　　switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版下载。一款高质量的隐藏物品冒险智力游戏，也是游戏系列的的第三作，专注于哥特式城市中恐怖场景的小游戏和解谜游戏，在手绘哥特式城市中猎杀怪物!</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=58407309&amp;bvid=BV1d4411F7V1&amp;cid=101877024&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb04875439.webp" alt="switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版nsz/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb048d83ca.webp" alt="switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版nsz/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb04943ee5.webp" alt="switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版nsz/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb049bd810.webp" alt="switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版nsz/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb04a2ff18.webp" alt="switch《恐怖传奇3黑暗之城 Grim Legends 3: The Dark City》英文版nsz/xci下载" /></td> </tr> </tbody> </table> <p><strong>在手绘哥特式城市中猎杀怪物！</strong></p> <p>　　西尔维娅，神秘的怪物猎杀集团的成员，失去了她的记忆。一年以后，禁闭之石-约束梦魔，来自另一世界力量强大的神器-被盗了!</p> <p><strong>36个吸引人的手绘地图！</strong></p> <p>　　西尔维娅和她的导师，所罗门，开始了将他们带往Lichtenheim之城的一段冒险旅程，在那里他们将会面对身份不比丢失神器令人震惊的盗贼。</p> <p><strong>在36个小游戏和隐藏物品场景中测试你自己！</strong></p> <p>　　海洛因和她的朋友将需要开动他们的侦探头脑，面对的不仅仅是黑暗之城哥特式围墙内的邪恶力量，还有来自过去的黑幕。西尔维娅能否成功地找到禁闭之石并阻止梦魔的逃出?她会鼓起勇气拯救Lichtenheim之城和其居民吗?</p> <p><strong>从典藏版中的奖励冒险中帮助分开的情侣！</strong></p> <p>　　额外内容包含了能将你更深带入游戏的浸入式奖励冒险!</p> <p><strong>随身携带隐藏物品冒险智力游戏！</strong></p> <p>　　优化手机和平板应用程序，添加了隐藏物品，完美适合旅行。此离线游戏不要求连接WiFi!</p> <p><strong>注册我们的简讯每月获得新的探险游戏！</strong></p> <p>　　吸引人的探险、故事、传说和怪异神秘的事件在我们引人入胜的隐藏物品智力游戏中等待着您!</p> <p><h4>下载地址(由网友<font color="red">Bestow.</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/127296/](https://lad.sfcrom.cn/2024/04/127296/)

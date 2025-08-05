@@ -1,0 +1,13 @@
+---
+title: "【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &#038; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01"
+date: 2024-04-07
+tags: []
+categories: ["PS4最新破解"]
+excerpt: "　　【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &amp; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01!你扮演一位红发孤儿，生性奇葩，人见人厌，父母双亡。但是你拯救世界的机会来了。 　　你扮演一位红发孤儿，生性奇葩，人见人厌，父母&hellip;"
+layout: post
+---
+
+ <p>　　【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &amp; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01!你扮演一位红发孤儿，生性奇葩，人见人厌，父母双亡。但是你拯救世界的机会来了。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_6612874d5be64.webp" width="700" alt="【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &amp; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_6612874e076cc.webp" width="700" alt="【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &amp; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_6612874e8b892.webp" width="700" alt="【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &amp; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_6612874f0b1b5.webp" width="700" alt="【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &amp; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_6612874f9e49b.webp" width="700" alt="【9.0】PS4《氰化欢乐秀：末日通行证第一章 Cyanide &amp; Happiness Freakpocalypse: Part 1 》英文版PKG下载1.01" /></p></div> <p>　　你扮演一位红发孤儿，生性奇葩，人见人厌，父母双亡。但是你拯救世界的机会来了。</p> <p>　　你扮演的角色叫库珀&middot;麦卡锡，人称&ldquo;奇葩给老子滚远点儿&rdquo;。你的梦想是让这个世界好起来，但问题是根本没人喜欢你，学校又无聊得要死，你连毕业舞会的舞伴都找不到，大家都爱欺负你，连你老师都不放过你。你能活着从高中毕业吗?会有人爱你吗?你值得被爱吗?为什么这个游戏叫《氰化欢乐秀-末日通行证》?这些问题的答案都要等你去发掘，在这个氰化秀宇宙中，你可以到处看、到处摸、到处对话。</p> <p>　　游戏特性：</p> <p>　　- 好比在游玩充满是黑色幽默的《氰化欢乐秀》动画短片一样。</p> <p>　　- 对话都有配音，奇葩角色众多。</p> <p>　　- 和氰化欢乐秀宇宙里的角色互动，包括但不限于贝爷，鲨老爹，威猛先生!</p> <p>　　- 可互动的角色和物体众多，你可以看他们、摸他们、和他们对话。</p> <p>　　- 电影一般的过场动画，配上原创的音乐。</p> <p>　　- 可以解锁超多装扮，待你去发掘和试穿，等着你去丢自己脸。</p> <p>　　- 非强制的支线任务，完成后有特别奖励，让可玩性更高。</p> <p>　　- 可以走路也可以奔跑&mdash;和现实生活里一样呢!</p> <p>　　- 不管你玩得是好是烂，都能解锁不同的成就</p> <p>　　- 各种秘密死法!</p> <p>　　- 这是《氰化欢乐秀-末日通行证》的第一章故事哦!</p> <p>　　- 感谢在 Kickstarter 上为这个游戏众筹的 15000 名性感大屁股们，没了他们就没有这个游戏。</p> <p>　　- 体验当人见人厌的废物是什么感觉*</p> <p>　　*希望你是第一次体验</p> <p><h4>下载地址(由网友<font color="red">370902199602120015</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/131389/](https://lad.sfcrom.cn/2024/04/131389/)

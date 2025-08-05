@@ -1,0 +1,13 @@
+---
+title: "【SFC】《Super Troll Islands &#8211; Shiawase o Ageru》日版下载"
+date: 2024-03-25
+tags: []
+categories: ["SFC游戏"]
+excerpt: "　　【SFC】《Super Troll Islands - Shiawase o Ageru》日版下载，本作是一款动作冒险类型的游戏，玩家们将要出发前往巨魔岛进行探索。游戏的剧情相对来说还是比较丰富的，感兴趣的玩家快来下载挑战吧。 　　游戏背景 　　两年前，格兰尼契岛成了一场不明原因的大规模灾难的中&hellip;"
+layout: post
+---
+
+ <p>　　【SFC】《Super Troll Islands - Shiawase o Ageru》日版下载，本作是一款动作冒险类型的游戏，玩家们将要出发前往巨魔岛进行探索。游戏的剧情相对来说还是比较丰富的，感兴趣的玩家快来下载挑战吧。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_6600d41f90443.png" width="658" alt="【SFC】《Super Troll Islands - Shiawase o Ageru》日版下载" /></p> <p>　　游戏背景</p> <p>　　两年前，格兰尼契岛成了一场不明原因的大规模灾难的中心。&ldquo;新光&rdquo;集团掩盖了这起灾难事件 &mdash;&mdash; 现在他们打算尽可能地纠正其后果。</p> <p>　　一场大型活动正在展开，期间所谓的&ldquo;志愿者&rdquo; &mdash;&mdash; 其中大多数人从未拿过武器 &mdash;&mdash; 被送到了格兰尼契岛上。他们的任务是研究岛上的超自然活动，收集信息并承担危险的任务，这一切都旨在弥补过去的错误。他们中没有一个人对接下来发生的事有所准备。</p> <p>　　扮演志愿者的角色，探索一个充满着各种各样威胁的地方 &mdash;&mdash; 从怪物和疯子，到超自然异常现象，还有看似不可能的天气情况。走进这个被遗忘世界的现在，揭开它的秘密。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_6600d420c12a4.png" width="658" alt="【SFC】《Super Troll Islands - Shiawase o Ageru》日版下载" /></p> <p>　　游戏特色</p> <p>　　黑暗的过去</p> <p>　　探索充满了废弃定居点、军事基地和绝密设施的神秘岛屿。调查岛上的秘密 &mdash;&mdash; 从格兰尼契岛从前的定居者那里找到笔记和日记，揭开其神秘的历史。</p> <p>　　研究威胁</p> <p>　　在对抗怪物，掠夺者和士兵的公开战斗中为你的生命而战，或者使用潜行从阴影中造成暴击伤害。研究格兰尼契岛上的生物 &mdash;&mdash; 你对它们了解得更多，在战斗中就能获得优势。</p> <p>　　变废为宝茁壮成长</p> <p>　　加入由四名玩家组成的团队，这样可以使用独特的团队技能，例如复活倒下的队员，因此有更大的机会在危险中存活下来。或者你也可以做一个孤胆英雄，以证明你的勇气。</p> <p>　　变废为宝茁壮成长</p> <p>　　解锁新的技能并加以训练，以增加你的生存机会。收集配方和元件来制作、改造与升级你的武器和装备。在岛上的整个旅程中一路捡拾东西，用新的衣服和护甲自定义你的志愿者。</p> <p>　　对抗疯狂(或者让它毁灭你)</p> <p>　　你不仅要照顾好自己的身体状况，还要照顾好精神状态。格兰尼契岛的疯狂将会改变你周围的世界，也会改变你本身。</p> <p>　　生存、探索并调查《DESOLATE》的黑暗世界，无论是单独一人还是与朋友组成四人团队。</p> <p>　　以上就是小编为大家带来关于《Super Troll Islands - Shiawase o Ageru》的内容简介~</p> <p><h4>下载地址(由网友<font color="red">wzw30</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/17929/](https://lad.sfcrom.cn/2024/03/17929/)

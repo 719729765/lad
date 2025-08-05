@@ -1,0 +1,13 @@
+---
+title: "switch《虚时异境：迷离时空终极版（DYSCHRONIA: Chronos Alternate）》中文版nsz下载+1.0.3补丁"
+date: 2024-04-02
+tags: []
+categories: ["xci中文游戏"]
+excerpt: "switch《虚时异境：迷离时空终极版（DYSCHRONIA: Chronos Alternate）》中文版nsz下载+1.0.3补丁《DYSCHRONIA: Chronos Alternate - Definitive Edition》是款VR冒险游戏，以海上都市「AstrumClose」为故事背&hellip;"
+layout: post
+---
+
+ <p>switch《虚时异境：迷离时空终极版（DYSCHRONIA: Chronos Alternate）》中文版nsz下载+1.0.3补丁《DYSCHRONIA: Chronos Alternate - Definitive Edition》是款VR冒险游戏，以海上都市「AstrumClose」为故事背景，这个城市利用「梦境」防范事件于未然，然而在这个犯罪率仅有0.001%的城市中，却发生了一起杀人事件。该游戏通过玩家的搜查行动，解决具有深度的谜题和剧情。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=575997389&amp;bvid=BV16z4y1578s&amp;cid=1268095746&amp;p=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c3e3bb80.webp" width="700" alt="switch《虚时异境：迷离时空终极版（DYSCHRONIA: Chronos Alternate）》中文版nsz下载+1.0.3补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c3e97770.webp" width="700" alt="switch《虚时异境：迷离时空终极版（DYSCHRONIA: Chronos Alternate）》中文版nsz下载+1.0.3补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c3f18b39.webp" width="700" alt="switch《虚时异境：迷离时空终极版（DYSCHRONIA: Chronos Alternate）》中文版nsz下载+1.0.3补丁" /></p> <p>　　随着钟楼的钟声响起，你的命运悬而未决。在这款适用于 Nintendo Switch&trade; 的电影调查动作冒险中体验史诗般的故事。</p> <p>　　《DYSCHRONIA： Chronos Alternate - Definitive Edition》包含屡获殊荣的谋杀悬疑VR三部曲的全部三集，以及独家故事内容。</p> <p>　　你是特别主管哈尔&middot;斯皮恩，一个有能力改写过去的侦探。你的任务：解决一个理论上不可能的犯罪。揭开隐藏在人和地方、现实和梦想中的奥秘。如果你要在等待你的意外威胁中幸存下来，你需要保持你的智慧!</p> <p>　　一种预感预示着这座城市将在七天内被摧毁。</p> <p>　　你能揭开真相并改变未来的进程吗?</p> <p>　　■ 游戏系统</p> <p>　　[记忆潜水] 在尝试破案时，陷入过去并改变现实。</p> <p>　　[增强梦境] 进入一个令人惊叹的虚拟世界，里面充满了无数的数字鱼群。</p> <p>　　[可信赖的同伴] 你可能手上有这个城市见过的最棘手的案件之一，但你不必孤军奋战。Lily，您的导航机器人，在每一步都为您提供支持。如果你被卡住了，就和莉莉谈谈。你永远不知道你会发现什么!</p> <p>　　[高风险隐身] 在调查过程中，在生死攸关的时刻躲避危险。</p> <p>　　[谜题] 线索隐藏在城市各处等着你去寻找，但你挖得越深，你就会发现更多的谜团。四处寻找，高低低处，寻找重要的线索。</p> <p>　　[AI审判] 用你收集的证据重演犯罪，并毫无疑问地证明你的理论。</p> <p>　　【院友康复】通过节奏游戏，为遇到的焦虑院友提供心理辅导，让他们放心。</p> <p>　　■ 游戏机制 - Nintendo Switch 版本</p> <p>　　凭借直观的控制、为每个场景量身定制的相机，以及让您保持正轨的有用 HUD，享受只有 Nintendo Switch 才能提供的体验。</p> <p>　　VR版的振动、效果和自由度视图都经过优化，完全复制了完全沉浸感!</p> <p>　　■故事</p> <p>　　海洋城市，Astrum关闭。犯罪率：0.001%。</p> <p>　　在这里，梦想被用来确保在犯罪发生之前预防犯罪。</p> <p>　　当这个所谓的天堂的创始人在一场史无前例的、理论上不可能的事件中丧生时，特别监督员哈尔&middot;斯西恩的任务是解开这个可能使城市陷入灾难的谜团。</p> <p><h4>下载地址(由网友<font color="red">明月之殇</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/119920/](https://lad.sfcrom.cn/2024/04/119920/)

@@ -1,0 +1,13 @@
+---
+title: "switch《超疯狂节奏城堡 Super Crazy Rhythm Castle》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《超疯狂节奏城堡 Super Crazy Rhythm Castle》中文版nsz下载！游戏采用了独特的音乐节奏玩法，玩家需要根据音乐的节拍来进行操作。每个关卡都有不同的音乐风格，包括摇滚、流行、电子等，玩家需要在规定的时间内按照音乐的节奏点击屏 　　《Super Crazy Rhyth&hellip;"
+layout: post
+---
+
+ <p>switch《超疯狂节奏城堡 Super Crazy Rhythm Castle》中文版nsz下载！游戏采用了独特的音乐节奏玩法，玩家需要根据音乐的节拍来进行操作。每个关卡都有不同的音乐风格，包括摇滚、流行、电子等，玩家需要在规定的时间内按照音乐的节奏点击屏</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=530801673&amp;bvid=BV12u411j7BG&amp;cid=1194884485&amp;p=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d83657fa51.webp" width="700" alt="switch《超疯狂节奏城堡 Super Crazy Rhythm Castle》中文版nsz下载" /></p> <p>　　《Super Crazy Rhythm Castle》以角色节奏游戏为中心的同时也混搭了许多游戏类型，在玩家的音乐冒险中，残酷国王将竭尽所能打断你的节奏，让你在奇异城堡中展开一场非常独特的冒险。游戏更支援繁体中文、简体中文及韩文。</p> <p>　　不管是自己来还是找最多3个好友一起上都可以，你能够征服这城堡吗?从下方的预告片中找出你将要面临的挑战!</p> <p>　　由位于英国的微型游戏工作室 Second Impact Games 创作，《Super Crazy Rhythm Castle》历经超过 10 年雕琢才制作出足以称为&rdquo;超级疯狂&rdquo;的游戏! KONAMI 与 Second Impact Games 透过发行合作伙伴关系让游戏走向世界，登上 PS5、PS4、Xbox Series X|S、Xbox One、Steam、Nintendo Switch 等平台。</p> <p>　　《Super Crazy Rhythm Castle》已经在数位平台开放加入愿望清单，有关数位预购与上市日期等更多消息将在日后公开。</p> <p>　　游戏概述 荒诞不经大冒险</p> <p>　　您将与音乐和疯狂融合一体，以轻松心情和轻快脚步展开一段难忘的旅程。</p> <p>　　不像样的英雄，朝着Rhythm Castle前进!在城内等着的疯王斐迪南为了保住头上皇冠将让你日子难过，克服他的脑洞挑战并以其人之道回敬他吧。朝古老召唤仪式撒豆、关掉巨大茄子DJ，把肉汤淹过小肉人，我们保证你将会明白我们在说什么，只要仅记别让节拍乱掉就好!</p> <p>　　超级原音集</p> <p>　　超过30首乐曲 &ndash; 还有些额外隐藏乐曲 &ndash; 收听超洗脑的摇滚、嘻哈、回响贝斯还有许多其他类型音乐。</p> <p>　　一起来疯</p> <p>　　有趣又容易上手的乱糟糟共斗玩法。不太会玩节奏游戏?每位玩家都能各自用3键或4键模式演奏，也可在伙伴们推持节拍部分时全力解谜!不管是自己上还是找好友们一起来，准备好迎接疯狂面对Rhythm Castle的挑战。</p> <p>　　多重乱糟糟</p> <p>　　从音乐密室逃脱到升降机游乐场，您必须跳脱节奏并思考如何先下手为强，不让国王的诡计得逞。使用强烈的节拍感来解决棘手的任务，用音乐来通过所有关卡!</p> <p>　　重温节奏</p> <p>　　还在拼金牌?在音乐实验室解锁并播放每首歌曲。废话不多说，纯享节奏!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8366060ea.webp" width="700" alt="switch《超疯狂节奏城堡 Super Crazy Rhythm Castle》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d836674869.webp" width="700" alt="switch《超疯狂节奏城堡 Super Crazy Rhythm Castle》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8366d934e.webp" width="700" alt="switch《超疯狂节奏城堡 Super Crazy Rhythm Castle》中文版nsz下载" /></p> <p><h4>下载地址(由网友<font color="red">201314xixi</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/123998/](https://lad.sfcrom.cn/2024/04/123998/)

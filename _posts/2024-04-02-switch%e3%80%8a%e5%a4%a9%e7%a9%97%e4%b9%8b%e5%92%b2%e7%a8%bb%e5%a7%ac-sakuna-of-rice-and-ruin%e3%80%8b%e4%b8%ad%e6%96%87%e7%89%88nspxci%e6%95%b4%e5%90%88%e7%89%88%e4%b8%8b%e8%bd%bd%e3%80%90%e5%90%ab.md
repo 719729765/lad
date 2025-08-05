@@ -1,0 +1,13 @@
+---
+title: "switch《天穗之咲稻姬 Sakuna: Of Rice and Ruin》中文版nsp+xci整合版下载【含1.0..9补丁+魔改版+PC版+金手指】"
+date: 2024-04-02
+tags: []
+categories: ["xci中文游戏"]
+excerpt: "　　《天穗之咲稻姬》讲述武神&ldquo;武火&rdquo;与丰穰神&ldquo;丰花&rdquo;所生下的女儿佐久名，继承了父母双方的能力。由于自小父母就不在身边的缘故，导致她缺乏责任感，每天游手好闲非常贪玩。 因为激怒了主神，被命令和人类一起前往受到鬼族所支配的日之惠岛上进行调查。 &nbsp;&hellip;"
+layout: post
+---
+
+ <p>　　《天穗之咲稻姬》讲述武神&ldquo;武火&rdquo;与丰穰神&ldquo;丰花&rdquo;所生下的女儿佐久名，继承了父母双方的能力。由于自小父母就不在身边的缘故，导致她缺乏责任感，每天游手好闲非常贪玩。 因为激怒了主神，被命令和人类一起前往受到鬼族所支配的日之惠岛上进行调查。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=54803333&amp;bvid=BV1B4411K7eY&amp;cid=95854164&amp;page=1" width="410"></iframe></p> <p align="center">&nbsp;</p> <p>　　本作是一款动作RPG游戏，舞台为被鬼族所统治的&ldquo;日之惠岛&rdquo;。玩家将操作佐久名公主使用&ldquo;农具&rdquo;作为武器击退鬼族，同时藉由各式各样的&ldquo;武技&rdquo;施展华丽的连续攻击、使用伸缩自如的&ldquo;羽衣&rdquo;闯关。</p> <p>　　丰穰神佐久名公主将同时游戏还有另一项特色&ldquo;种稻&rdquo;，佐久名的父亲为武神，母亲则是丰穰神，只要培育出优良的稻米就能使自己的能力变强。</p> <p>　　玩家需仔细进行整地、插秧、收获、脫穀等作业来培育出优良的稻米，如此一来佐久名公主就能获得成长。</p> <p>　　作为一款动作游戏操作的爽快度和精准性，北通宙斯游戏手柄也是一个不错的选择。北通宙斯游戏手柄完美兼容NS版，其机械按键触发速度更快，手感更好。不同高度的摇杆组件满足玩家个性化的需求，背键、连发、宏都会让游戏过程更加便利。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c2f3a2cf.webp" alt="switch《天穗之咲稻姬 Sakuna: Of Rice and Ruin》中文版nsp+xci整合版下载【含1.0..9补丁+魔改版+PC版+金手指】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c2f89038.webp" alt="switch《天穗之咲稻姬 Sakuna: Of Rice and Ruin》中文版nsp+xci整合版下载【含1.0..9补丁+魔改版+PC版+金手指】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660b4c2fe1c59.webp" alt="switch《天穗之咲稻姬 Sakuna: Of Rice and Ruin》中文版nsp+xci整合版下载【含1.0..9补丁+魔改版+PC版+金手指】" /></td> </tr> </tbody> </table> <p><h4>下载地址(由网友<font color="red">qiaolei111</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/119908/](https://lad.sfcrom.cn/2024/04/119908/)

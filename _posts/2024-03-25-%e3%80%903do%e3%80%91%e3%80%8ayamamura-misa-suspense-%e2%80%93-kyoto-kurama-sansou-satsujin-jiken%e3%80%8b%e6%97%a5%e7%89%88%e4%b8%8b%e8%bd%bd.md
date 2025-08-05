@@ -1,0 +1,13 @@
+---
+title: "【3DO】《Yamamura Misa Suspense – Kyoto Kurama Sansou Satsujin Jiken》日版下载"
+date: 2024-03-25
+tags: []
+categories: ["3DO游戏"]
+excerpt: "　　【3DO】《Yamamura Misa Suspense &ndash; Kyoto Kurama Sansou Satsujin Jiken》日版下载，《Yamamura Misa Suspense &ndash; Kyoto Kurama Sansou Satsujin Jiken》是《Ya&hellip;"
+layout: post
+---
+
+ <p>　　【3DO】《Yamamura Misa Suspense &ndash; Kyoto Kurama Sansou Satsujin Jiken》日版下载，《Yamamura Misa Suspense &ndash; Kyoto Kurama Sansou Satsujin Jiken》是《Yamamura Misa Suspense》系列作品之一，喜欢本系列的玩家千万不要错过哦。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240324_6600a4c881638.webp" width="582" alt="【3DO】《Yamamura Misa Suspense – Kyoto Kurama Sansou Satsujin Jiken》日版下载" /></p> <p>　　英文名称：The Sims 2: Castaway</p> <p>　　游戏名称：模拟人生 2 生存游戏</p> <p>　　游戏版本：美版</p> <p>　　游戏类型：模拟类</p> <p>　　游戏语言：英文</p> <p>　　制作公司：Electronic Arts</p> <p>　　发行公司：Electronic Arts</p> <p>　　发售时间：2007年10月22日</p> <p>　　故事情节的内容朴素迷离，在野外生活毕竟要面临各种危险的环境，如何来正常求生确实需要玩家绞尽脑汁想办法来渡过一个个意想不到的难关。不同的玩家有不同的探险思路，每个人都可以根据自己特点来定制个性化的模拟人生。一旦有机会玩耍该作，就会自动将你带入到一个相当艰难的世界之中，在极其荒凉的不毛之地上，需要你帮助周围的人生存下来。无需担忧，不管面临什么样的艰难危机，世上总有解决的办法，只要玩家能尽心培养好自己的角色，一切问题自然会迎刃而解。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240324_6600a4c97ae5d.webp" width="572" alt="【3DO】《Yamamura Misa Suspense – Kyoto Kurama Sansou Satsujin Jiken》日版下载" /></p> <p><h4>下载地址(由网友<font color="red">tjc</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/16745/](https://lad.sfcrom.cn/2024/03/16745/)

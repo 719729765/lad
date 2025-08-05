@@ -1,0 +1,13 @@
+---
+title: "switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁!《Jurassic World Aftermath 侏罗纪世界遗迹》为之前在 Oculus Quest/Quest 2 等平台推出 Part.1&amp;2&hellip;"
+layout: post
+---
+
+ <p>　　switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁!《Jurassic World Aftermath 侏罗纪世界遗迹》为之前在 Oculus Quest/Quest 2 等平台推出 Part.1&amp;2 两个版本，以知名电影《侏罗纪世界》系列作为主题的 VR 生存冒险游戏。至于这次的收藏版，则是将 Part.1&amp;2 两部分全部同梱，并配合 Switch 主机的规格介面与内容重新调整后，移植推出的生存冒险游戏。、</p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9f3756582.jpg" style="width: 595px; height: 333px;" alt="switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁" /></p> <p>　　Coatsink 与 Universal Games and Digital Platforms 宣布，将预定自 2022 年 11 月 10 日起，在 Nintendo Switch 主机上推出一款生存冒险游戏《Jurassic World Aftermath Collection 侏罗纪世界遗迹收藏版》(ジュラシック・ワールド：アフターマスコレクション，中文名暂称)与玩家见面。</p> <p align="center">&nbsp;</p> <p>　　《Jurassic World Aftermath 侏罗纪世界遗迹》为之前在 Oculus Quest/Quest 2 等平台推出 Part.1&amp;2 两个版本，以知名电影《侏罗纪世界》系列作为主题的 VR 生存冒险游戏。至于这次的收藏版，则是将 Part.1&amp;2 两部分全部同梱，并配合 Switch 主机的规格介面与内容重新调整后，移植推出的生存冒险游戏。</p> <p>　　在游戏中，将会以位于电影系列中粉丝们熟悉的「Isla Nublar 努布拉岛」上崩坏的侏罗纪世界主题乐园作为舞台，玩家们将操纵为了从化为废墟的研究设施回收重要情报而来到岛上，但却因为任务失败而被关在设施中的主角们，为了求生一边回避岛上凶猛恐龙的猎食，一边进行解谜挑战来逃出这座封闭设施。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9f37e13b0.jpg" alt="switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9f385a804.jpg" alt="switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9f38cf731.jpg" alt="switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9f394df3e.jpg" alt="switch《侏罗纪世界遗迹收藏版 Jurassic World Aftermath Collection》英文版nsp下载+1.02补丁" /></td> </tr> </tbody> </table> <p align="center">&nbsp;</p> <p>　　而在游戏中，除了将会把电影里玩家们熟悉的各种恐龙收录登场外，也会把电影中玩家们所熟悉的各种景点，例如身为岛上恐龙制造研究科学家的吴亨利博士的实验室等一一收录，甚至还会有游戏版原创，隐藏在主题乐园地下深处的隐藏金库等各种关卡舞台登场，让玩家们仿佛重回电影世界，喜欢电影系列的玩家们届时务必要来挑战看看。</p> <p><h4>下载地址(由网友<font color="red">niemophs</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111583/](https://lad.sfcrom.cn/2024/04/111583/)

@@ -1,0 +1,13 @@
+---
+title: "switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版nsz下载+1.0.0b补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版下载，这是一款冒险解密游戏，密室逃脱主题的玩法，玩家被困在了一间工厂里，你要寻找线索，解开谜题逃离这里。 　　游戏介绍 　　你工作的装配线不太对劲&mdash;&mdash;你能查出真相吗? 　　常规&hellip;"
+layout: post
+---
+
+ <p>　　switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版下载，这是一款冒险解密游戏，密室逃脱主题的玩法，玩家被困在了一间工厂里，你要寻找线索，解开谜题逃离这里。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=938292387&amp;bvid=BV1gT4y1a7Qn&amp;cid=579370773&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7af5bc54e.webp" alt="switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版nsz下载+1.0.0b补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7af626f90.webp" alt="switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版nsz下载+1.0.0b补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7af67da79.webp" alt="switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版nsz下载+1.0.0b补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7af6da327.webp" alt="switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版nsz下载+1.0.0b补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7af74025d.webp" alt="switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版nsz下载+1.0.0b补丁" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　你工作的装配线不太对劲&mdash;&mdash;你能查出真相吗?</p> <p>　　常规工厂(Regular Factory)是一个测试逃生技能的密室。你需要解开谜题、破译密码、寻找隐藏物品，并且调查你工作的秘密工厂中的各个不同的房间，最终揭开黑暗的真相。</p> <p>　　通过探索这场冒险过程中的每个房间来解开最终的谜团，你能顺利逃脱吗?</p> <p>　　游戏特色</p> <p>　　解开逻辑谜团。</p> <p>　　探索不同的房间，寻找线索和隐藏物品。</p> <p>　　查出你工作的工厂的真实目的。</p> <p>　　享受充满着神秘氛围的环境。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7af789cdb.webp" width="355" alt="switch《常规工厂：密室逃脱 Regular Factory Escape Room》中文版nsz下载+1.0.0b补丁" /></p> <p>　　以上内容就是小编为大家带来的《常规工厂：密室逃脱 Regular Factory Escape Room》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">cjy20043624</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124195/](https://lad.sfcrom.cn/2024/04/124195/)

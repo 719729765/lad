@@ -1,0 +1,13 @@
+---
+title: "PC《近距离作战：最长的一日 Close Combat: The Longest Day》英文版下载（v5.50.34）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《近距离作战：最长的一日 Close Combat: The Longest Day》英文版下载，这是一款战争策略游戏，以历史上著名的诺曼底登陆为背景，为玩家带来了一场精彩的战斗，喜欢老游戏的玩家可以来看看哦。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：Strategy 3 Tact&hellip;"
+layout: post
+---
+
+ <p>　　PC《近距离作战：最长的一日 Close Combat: The Longest Day》英文版下载，这是一款战争策略游戏，以历史上著名的诺曼底登陆为背景，为玩家带来了一场精彩的战斗，喜欢老游戏的玩家可以来看看哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032b97c78ef.webp" alt="PC《近距离作战：最长的一日 Close Combat: The Longest Day》英文版下载（v5.50.34）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032b9850782.webp" alt="PC《近距离作战：最长的一日 Close Combat: The Longest Day》英文版下载（v5.50.34）" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Strategy 3 Tactics</p> <p>　　游戏发行：Slitherine LTD.</p> <p>　　二战策略游戏《近距离作战：最长的一日》(Close Combat: The Longest Day)，由Strategy 3 Tactics制作，以《近距离作战5：进攻诺曼底》为原型进行了大幅度增强，加入了新的地图和任务，并改进了操作界面。</p> <p>　　为了在二战中取得胜利，盟军在远征军最高指挥部及德怀特&middot;大卫&middot;艾森豪威尔将军的领导下，制定了果敢并且孤注一掷的计划来更大程度上消耗希特勒本已捉襟见肘的资源。侵入计划代号霸王行动，此计划中盟军将在法国北部的科唐坦半岛建立一个桥头堡。由美国，英国，加拿大和自由法国组成的军队将由空降兵为先导控制住对桥头堡扩张至关重要的桥梁，随后已集结的世界上最大规模的侵入部队进行登陆。几个主要城镇都被预定为登陆第一天或者是D+1日的目标。</p> <p>　　在1944年6月6日午夜后不久，也就是黑暗的黎明时分，空降行动揭开了侵入战的序幕。在密集的高射炮火中空降部队被驱散，不过，在延迟的情况下这些空降部队仍然集中在了一起并且有效的进行战斗，而且他梦淦鳐下了侵入战中的第一个城镇：圣米尔。相比之下，英国和加拿大的空降行动就顺利得多，损失也小得多。可是德军仍然借助地下工事拼死抵抗。</p> <p>　　清晨6：30，盟军军舰对海滩开始炮击。有1200多艘各式战舰像德军关键地域的堡垒开火以期在登录部队靠近海岸前削弱防守部队。盟军的第一批突击队将登上代号为犹他，奥马哈，金，朱诺和剑的海滩。美国将从犹他和奥马哈海滩登陆，英联邦国家则从金，朱诺和剑滩登陆。盟军总计伤亡在10000人，主要来自奥马哈海滩，这也就是&ldquo;血腥的奥马哈&rdquo;的由来。</p> <p>　　当第一天的战斗结束时，盟军发现他们大多没有完成他们的预定计划，4天后他们仍然没有占领所有目标。尽管如此，盟军仍然获得了一个日后足以解放全欧洲的桥头堡。就像隆美尔说的&ldquo;&hellip;&hellip;侵入战最初的24小时将至关重要&hellip;&hellip;德国未来的命运就看这天的结果&hellip;&hellip;对盟军来说，和德国一样，将会是最长的一日。&rdquo;而后的事实也证明了这一点。</p> <p>　　现在这部即时战术模拟经典又回来了，盟军钢铁雄狮和德军装甲精英的碰撞，究竟是胜是败，就掌握在玩家手里!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 8 / 10</p> <p>　　处理器: 400 MHz CPU (600 MHz or faster rec.)</p> <p>　　内存: 256MB RAM MB RAM</p> <p>　　显卡: 1MB Video RAM (8MB rec.)</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　声卡: 16bit DirectX 9.0 compatible sound card</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《近距离作战：最长的一日 Close Combat: The Longest Day》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Maton</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41203/](https://lad.sfcrom.cn/2024/03/41203/)

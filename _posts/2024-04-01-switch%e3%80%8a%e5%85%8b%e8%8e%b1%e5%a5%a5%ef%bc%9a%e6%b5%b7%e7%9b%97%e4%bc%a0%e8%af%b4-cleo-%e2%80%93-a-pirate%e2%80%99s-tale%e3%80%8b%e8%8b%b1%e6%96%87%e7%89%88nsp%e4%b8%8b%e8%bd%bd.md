@@ -1,0 +1,13 @@
+---
+title: "switch《克莱奥：海盗传说 Cleo – a pirate’s tale》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《克莱奥：海盗传说 Cleo &ndash; a pirate&rsquo;s tale》英文版下载，这是一款复古像素风的冒险游戏，以一个小女孩的海盗冒险为主线，剧情幽默搞笑，解谜的元素也很有趣，赶快来关注一下吧。 　　《克莱奥(Cleo - a pirate&#039;s tale)&hellip;"
+layout: post
+---
+
+ <p>　　switch《克莱奥：海盗传说 Cleo &ndash; a pirate&rsquo;s tale》英文版下载，这是一款复古像素风的冒险游戏，以一个小女孩的海盗冒险为主线，剧情幽默搞笑，解谜的元素也很有趣，赶快来关注一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=379982547&amp;bvid=BV1LZ4y1X7EF&amp;cid=464368986&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9840663c8.jpg" alt="switch《克莱奥：海盗传说 Cleo – a pirate’s tale》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9840cb4eb.jpg" alt="switch《克莱奥：海盗传说 Cleo – a pirate’s tale》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98414e858.jpg" alt="switch《克莱奥：海盗传说 Cleo – a pirate’s tale》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9841ca519.jpg" alt="switch《克莱奥：海盗传说 Cleo – a pirate’s tale》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a984241ee2.jpg" alt="switch《克莱奥：海盗传说 Cleo – a pirate’s tale》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　《克莱奥(Cleo - a pirate&#39;s tale)》是一款Christoph Schultz制作，Greycap Audiovisual Mediadesign UG发行的像素风冒险解谜游戏，游戏中包含了许多幽默剧情，玩家将扮演一位名为克莱奥的女孩。</p> <p>　　故事介绍</p> <p>　　克莱奥是一个愤世嫉俗的14岁女孩，和她的父亲在酒吧里过着日复一日的生活。她对海盗传奇人物卡贝卡船长的史诗般的冒险故事烂熟于心，但在她的日常生活中，她只是被无聊的渔民和失意的海盗所包围，终日打理着柜台。</p> <p>　　有一天，克莱奥发现了一本奇怪的海盗日志，突然从中出现的鬼魂给她留下了一份神秘的信息。她的无聊生活因此彻底颠覆。克莱奥陷入了一场危险的冒险中，发现自己进入了一个充满谎言、欺骗、贪婪和口臭的世界&mdash;&mdash;海盗的世界。他们中的大多数人都在追求一样东西：</p> <p>　　永恒记忆的宝藏。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a98428cd81.png" width="396" alt="switch《克莱奥：海盗传说 Cleo – a pirate’s tale》英文版nsp下载" /></p> <p>　　以上内容就是小编为大家带来的《克莱奥：海盗传说 Cleo &ndash; a pirate&rsquo;s tale》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Cicicipiu</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110428/](https://lad.sfcrom.cn/2024/04/110428/)

@@ -1,0 +1,13 @@
+---
+title: "switch《世界大战行动开始第一部 World War: D-Day PART ONE》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《世界大战 行动开始第一部 World War: D-Day PART ONE》中文版nsz下载!!以二战为背景的现实单人称射击游戏的第 3 部分!即将到来的行动是诺曼底海滩上的诺曼底登陆日!打败你的敌人，拿到你的武器! 　　历史上最著名的诺曼底登陆(霸王行动)开始了。《世界大战：序&hellip;"
+layout: post
+---
+
+ <p>　　switch《世界大战 行动开始第一部 World War: D-Day PART ONE》中文版nsz下载!!以二战为背景的现实单人称射击游戏的第 3 部分!即将到来的行动是诺曼底海滩上的诺曼底登陆日!打败你的敌人，拿到你的武器!</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d832de1cf5.webp" width="700" alt="switch《世界大战行动开始第一部 World War: D-Day PART ONE》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d832e6153d.webp" width="700" alt="switch《世界大战行动开始第一部 World War: D-Day PART ONE》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d832ee0fed.webp" width="700" alt="switch《世界大战行动开始第一部 World War: D-Day PART ONE》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d832f42259.webp" width="700" alt="switch《世界大战行动开始第一部 World War: D-Day PART ONE》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d832faa3e7.webp" width="700" alt="switch《世界大战行动开始第一部 World War: D-Day PART ONE》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8330291b8.webp" width="700" alt="switch《世界大战行动开始第一部 World War: D-Day PART ONE》中文版nsz下载" /></p></div> <p>　　历史上最著名的诺曼底登陆(霸王行动)开始了。《世界大战：序幕》第3部分&amp;《世界大战：战斗守护者》</p> <p>　　是一款以二战为背景的单人单人/FPS游戏，深受军事爱好者的青睐。在充满枪声和鲜血的战场上成为英雄!</p> <p>　　・将进行基于历史事实的有趣任务。</p> <p>　　在每个阶段，你都有一个基于故事的任务。您可以享受激动人心的游戏。</p> <p>　　・您可以收集和使用二战中使用的各种武器。</p> <p>　　・使用3D声音和3D物理引擎，您可以享受逼真而刺激的游戏。</p> <p>　　・该游戏提供各种3D效果和图形，您可以感受到世界大战。</p> <p>　　・您可以在战场上与AI盟友合作作战。</p> <p>　　・您可以在战斗中将身体隐藏/掩护到周围的物体上，并像真正的枪战一样战斗。</p> <p>　　・[EPISODE]模式旨在根据故事完成任务。</p> <p>　　・在[WAVE]模式下，你以清除25 WAVE为目标生存。</p> <p>　　・请使用您在战斗中获得的盟友和敌人的各种武器享受激动人心的 FPS 游戏。</p> <p>　　当你摆脱敌人并完成第二次世界大战历史场景中的所有情节和 25 波时，一个感人的结局等待着你。</p> <p>　　盟军即将开始在诺曼底的五个海滩(犹他州、奥马哈、戈尔德、朱诺和斯沃德)登陆行动。</p> <p>　　「演讲：盟军远征军的士兵、水手和飞行员!</p> <p>　　你们即将开始伟大的十字军东征，我们这几个月来一直在努力。</p> <p>　　全世界的目光都注视着你。</p> <p>　　世界各地热爱自由的人们的希望和祈祷与你们同行。</p> <p>　　与我们勇敢的同盟国和战友在其他战线上的伙伴们一起，你们将摧毁德国的战争机器，</p> <p>　　消除纳粹对欧洲被压迫人民的暴政。</p> <p><h4>下载地址(由网友<font color="red">a506935951</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/123879/](https://lad.sfcrom.cn/2024/04/123879/)

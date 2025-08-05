@@ -1,0 +1,13 @@
+---
+title: "switch《小武与小弘 Takeshi and Hiroshi》中文版1.1.0补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《小武与小弘 Takeshi and Hiroshi》中文版下载。《小武与小弘》是一款横版角色扮演类游戏，游戏中的主角就是两个木偶角色小武与小弘，你将会与他们一同前往异世界中去冒险，畅游各种神奇的世界。 　　《小武与小弘》结合了木偶动画与角色扮演游戏这两个世界。 　　它描述的是一对兄&hellip;"
+layout: post
+---
+
+ <p>　　switch《小武与小弘 Takeshi and Hiroshi》中文版下载。《小武与小弘》是一款横版角色扮演类游戏，游戏中的主角就是两个木偶角色小武与小弘，你将会与他们一同前往异世界中去冒险，畅游各种神奇的世界。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=76104580&amp;bvid=BV1AJ411m7L2&amp;cid=130186215&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/08-22/f5ff8a68a16846f0406c6b87d8e0bfcf.jpg" alt="switch《小武与小弘 Takeshi and Hiroshi》中文版1.1.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/08-22/9e65c6a80edbb2942313d9a87da2587a.jpg" alt="switch《小武与小弘 Takeshi and Hiroshi》中文版1.1.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/08-22/c203d6ff7b8f5ac184ec0bef75d675f9.jpg" alt="switch《小武与小弘 Takeshi and Hiroshi》中文版1.1.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/08-22/c06f8f87fa7967ffc9949e60a9d98b71.jpg" alt="switch《小武与小弘 Takeshi and Hiroshi》中文版1.1.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/08-22/99bbf3cf460e1510317e7d19f5c1aff2.jpg" alt="switch《小武与小弘 Takeshi and Hiroshi》中文版1.1.0补丁下载" /></td> </tr> </tbody> </table> <p>　　《小武与小弘》结合了木偶动画与角色扮演游戏这两个世界。</p> <p>　　它描述的是一对兄弟的日常生活以及他们的故事。</p> <p>　　14 岁的小武，未来的游戏设计家，正在为他身体不好的弟弟小弘制作一款游戏;</p> <p>　　小弘一直想要赶快玩到游戏里的下一章。</p> <p>　　做为这款游戏的玩家，你将会进入木偶动画与角色扮演的这两个世界中，追踪小武以及他的弟弟小弘的故事。</p> <p><h4>下载地址(由网友<font color="red">le66242423</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145303/](https://lad.sfcrom.cn/2024/04/145303/)

@@ -1,0 +1,13 @@
+---
+title: "switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版nsp/xci下载【含v1.0.8补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版下载，这是一款3D的动作冒险游戏，以印第安的神话为背景，又加入了很多未来科技的风格，是一款很有特色的赛博朋克风游戏。 　　《阿兹特克：遗忘的众神》是一款赛博石风格的动作冒险游戏。你将会体验Achtli，一个立&hellip;"
+layout: post
+---
+
+ <p>　　switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版下载，这是一款3D的动作冒险游戏，以印第安的神话为背景，又加入了很多未来科技的风格，是一款很有特色的赛博朋克风游戏。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=972571011&amp;bvid=BV17p4y1t76z&amp;cid=324276975&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9659ac6e2.webp" alt="switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版nsp/xci下载【含v1.0.8补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a965a3e427.webp" alt="switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版nsp/xci下载【含v1.0.8补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a965abd810.webp" alt="switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版nsp/xci下载【含v1.0.8补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a965b376a3.webp" alt="switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版nsp/xci下载【含v1.0.8补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a965ba5b3b.webp" alt="switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版nsp/xci下载【含v1.0.8补丁】" /></td> </tr> </tbody> </table> <p>　　《阿兹特克：遗忘的众神》是一款赛博石风格的动作冒险游戏。你将会体验Achtli，一个立志要战胜失落的众神的阿兹特克女人，为了揭露这个遥远未来版本的史前美洲城市的真相，她必须使用这些神和一个失传已久的圣物的力量来完成这宏伟大业。</p> <p>　　游戏特色</p> <p>　　令人振奋的垂直性和机动性：借助神秘的技术将自己付诸行动，这将使您在一个成熟的探索城市中发现古老的秘密。</p> <p>　　中美洲独特的未来主义环境：探索一座现代化的阿兹台克人城市，这座城市已经发展成为一个石制大都会，技术先进，但深深植根于古代传统。</p> <p>　　庞大的BOSS：在与类似于阿兹台克神殿的神灵的巨大生物进行的激战中，对峙。</p> <p>　　深度参与的叙事：加入阿赫特利(Achtli)的情感旅程，充满曲折，转折和高辛烷值的动作，她为保护自己的城市免受被遗忘的众神而战。</p> <p>　　关于阿兹台克人神话的全新观点：潜入迷人的中美洲风格世界</p> <p align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a965bedba8.png" style="width: 359px; height: 161px;" alt="switch《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版nsp/xci下载【含v1.0.8补丁】" /></p> <p>　　以上内容就是小编为大家带来的《阿兹特克：被遗忘的众神 Aztech Forgotten Gods》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">xxin</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112024/](https://lad.sfcrom.cn/2024/04/112024/)

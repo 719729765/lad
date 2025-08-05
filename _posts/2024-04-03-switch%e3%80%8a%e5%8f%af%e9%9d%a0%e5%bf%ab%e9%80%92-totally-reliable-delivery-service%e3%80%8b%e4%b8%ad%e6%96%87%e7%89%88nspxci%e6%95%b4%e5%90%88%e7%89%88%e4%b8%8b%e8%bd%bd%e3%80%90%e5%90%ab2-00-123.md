@@ -1,0 +1,13 @@
+---
+title: "switch《可靠快递 Totally Reliable Delivery Service》中文版nsp/xci整合版下载【含2.00.123补丁+DLC】"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "【内含原版+TX专用魔改版】switch《可靠快递 Totally Reliable Delivery Service》中文版。本作中，你将扮演一名快递小哥，你的主要任务就是将用户的快递准时安全的送到快递员的手中，想要赚取丰厚的报酬，除了接&ldquo;大单&rdquo;你还得合理的安排自己的配送路&hellip;"
+layout: post
+---
+
+ <p>【内含原版+TX专用魔改版】switch《可靠快递 Totally Reliable Delivery Service》中文版。本作中，你将扮演一名快递小哥，你的主要任务就是将用户的快递准时安全的送到快递员的手中，想要赚取丰厚的报酬，除了接&ldquo;大单&rdquo;你还得合理的安排自己的配送路线。</p> <p style="text-align: center;"><strong><span style="font-size:22px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=455028550&amp;bvid=BV19541167dx&amp;cid=172576696&amp;page=1" width="410"></iframe></p> <p>这款游戏类似于人类一败涂地，建模和操作方式都十分有趣。在这款游戏中我们需要模拟快递员，来完成各种派送订单的任务。下面就让开休我带大家来看一下这款游戏吧。</p> <p>靠谱快递一共有两种模式，一是单人模式，二是多人在线模式。本篇文章开休主要给大家讲解一下单人模式。在靠谱快递中我们一共有六个主要键位。分别是抬起，推拉，趴下和跳跃。这六个键位也是我们主要用来派送快递的键位。</p> <p>在游戏运送的快递中，我们有着不同的任务要求。比如说像薯片图书钉这种易碎物品，我们就需要小心谨慎的把它送达规定地点。我们在运送过程中一定要利用不同的动作来进行操作。比如说碰到一些易碎的物品可以利用抬起这个动作。而在派送一些比较沉重的物件时，我们可以直接拖拽来运送。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"> <p><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6ff65b0ea.webp" alt="switch《可靠快递 Totally Reliable Delivery Service》中文版nsp/xci整合版下载【含2.00.123补丁+DLC】" /></p> <p style="text-align: left;">在我们运送快递的途中还有许多新奇有趣的设定。比如说新手教程关里有一个油桶。当玩家在油桶附近或撞上油桶的时候，这个油桶就会爆炸，我们的人物就会腾飞。还有就是在我们运送图书钉的途中，还会碰见许多下水道井盖。这些井盖在当我们走过的时候会弹跳而起。巨大的冲击力会连我们也一并被弹开。这也是靠谱快递比较吸引人的地方。</p> <p style="text-align: left;"><br />然而游戏名叫靠谱快递，那游戏中一定少不了载具。靠谱快递中有着各种各样的载具。像我们在任务中经常出现的叉车推车。这两种载具是游戏中比较常见的，操作难度也是相对较低。但我们在操作途中还是需要注意一些细节的。比如要寻找适合放快递的位置，不要因我们在驾驶载具的过程中的高速度而丢掉包裹。</p></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6ff6b1fb8.webp" alt="switch《可靠快递 Totally Reliable Delivery Service》中文版nsp/xci整合版下载【含2.00.123补丁+DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6ff72f88d.webp" alt="switch《可靠快递 Totally Reliable Delivery Service》中文版nsp/xci整合版下载【含2.00.123补丁+DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6ff78f04b.webp" alt="switch《可靠快递 Totally Reliable Delivery Service》中文版nsp/xci整合版下载【含2.00.123补丁+DLC】" /></td> </tr> </tbody> </table> <p>　　<br />&nbsp;</p> <p><h4>下载地址(由网友<font color="red">137558359</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/125013/](https://lad.sfcrom.cn/2024/04/125013/)

@@ -1,0 +1,13 @@
+---
+title: "switch《动作街机摔跤 Action Arcade Wrestling》英文版1.2.0补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《Action Arcade Wrestling》英文版下载，这是一款以摔跤为主题的动作格斗游戏，游戏为玩家准备了丰富的内容，众多性格各异的选手可供选择，喜欢这类动作游戏的玩家可以来尝试一下。 　　这是一款格斗游戏，创建一个角色参与一场摔跤的盛宴，使用各种格斗技巧华丽的击败你的对手。&hellip;"
+layout: post
+---
+
+ <p>　　switch《Action Arcade Wrestling》英文版下载，这是一款以摔跤为主题的动作格斗游戏，游戏为玩家准备了丰富的内容，众多性格各异的选手可供选择，喜欢这类动作游戏的玩家可以来尝试一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=547155667&amp;bvid=BV1jq4y1n7Sr&amp;cid=386538044&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661545bd495fb.jpg" alt="switch《动作街机摔跤 Action Arcade Wrestling》英文版1.2.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661545bdb574c.jpg" alt="switch《动作街机摔跤 Action Arcade Wrestling》英文版1.2.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661545be35361.jpg" alt="switch《动作街机摔跤 Action Arcade Wrestling》英文版1.2.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661545beb833f.jpg" alt="switch《动作街机摔跤 Action Arcade Wrestling》英文版1.2.0补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661545bf41003.jpg" alt="switch《动作街机摔跤 Action Arcade Wrestling》英文版1.2.0补丁下载" /></td> </tr> </tbody> </table> <p>　　这是一款格斗游戏，创建一个角色参与一场摔跤的盛宴，使用各种格斗技巧华丽的击败你的对手。</p> <p>　　游戏特色</p> <p>　　- 力的明星</p> <p>　　超过30名官方摔跤手，以及其顶级的lucha自由滑稽动作，以忠实地代表CHIKARA Pro，包括Fire Ant，Solo Darling，Hallowicked，Dasher Hatfield等!</p> <p>　　- 复古的游戏动作满意度</p> <p>　　直观的2按钮控件，使各个年龄段和技能水平的玩家都可以轻松跳入街机摔跤混乱中。</p> <p>　　- 在线Ruckus</p> <p>　　最多10位玩家可以参加在线比赛-将击打带给全球各地的对手!</p> <p>　　- 每种风格的比赛</p> <p>　　计划超过25种可玩游戏模式，包括一对一，标签队，三方比赛，四方比赛，4-10人淘汰赛，龙卷风标签，皇家大战，三重奏之王锦标赛和更多!</p> <p>　　- CHIKARA Flair</p> <p>　　3D视觉效果带来充满活力的后退街机外观，捕捉了离奇的CHIKARA风格。</p> <p>　　- 疯狂动画</p> <p>　　超过700种手工制作的动画完美捕捉了动作和滑稽动作，使CHIKARA在摔跤界独树一帜。</p> <p>　　以上内容就是小编为大家带来的《Action Arcade Wrestling》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">645766829</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145907/](https://lad.sfcrom.cn/2024/04/145907/)

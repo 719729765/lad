@@ -1,0 +1,13 @@
+---
+title: "switch《镭射战机 复刻版 Layer Section &#038; Galactic Attack S-Tribute》中文版v1补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《Layer Section &amp; Galactic Attack S-Tribute》中文版下载，这是一款经典弹幕射击游戏的重制版，这款游戏当年在很多国家都深受欢迎。喜欢这款经典作品的玩家不要错过哦。 　　这款全称名为《Layer Section &amp; Galatic &hellip;"
+layout: post
+---
+
+ <p>　　switch《Layer Section &amp; Galactic Attack S-Tribute》中文版下载，这是一款经典弹幕射击游戏的重制版，这款游戏当年在很多国家都深受欢迎。喜欢这款经典作品的玩家不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=425647737&amp;bvid=BV1u3411n7B1&amp;cid=577124805&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153eaa7db98.jpg" alt="switch《镭射战机 复刻版 Layer Section &amp; Galactic Attack S-Tribute》中文版v1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153eaad7d92.jpg" alt="switch《镭射战机 复刻版 Layer Section &amp; Galactic Attack S-Tribute》中文版v1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153eab586b6.jpg" alt="switch《镭射战机 复刻版 Layer Section &amp; Galactic Attack S-Tribute》中文版v1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153eabc2af2.jpg" alt="switch《镭射战机 复刻版 Layer Section &amp; Galactic Attack S-Tribute》中文版v1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153eac3149f.jpg" alt="switch《镭射战机 复刻版 Layer Section &amp; Galactic Attack S-Tribute》中文版v1补丁下载" /></td> </tr> </tbody> </table> <p>　　这款全称名为《Layer Section &amp; Galatic Attack S-Tribute》的游戏，实际上就是经典街机游戏《RAY FORCE》的不同译名，其中《Layer Section》为游戏推出日本家用机版的命名，而《Galatic Attack》则是游戏在欧美市场推出家用机版时的命名。欧洲街机版则名为《Gunlock》。这些都是同一款游戏的不同版本。</p> <p>　　游戏介绍</p> <p>　　Layer Section于1995年由Taito发布，是街机游戏RayForce的家用游戏机版本，这是一款垂直射击游戏。</p> <p>　　玩家控制X-LAY，这是一种配备锁定激光的移动武器，并为了人类的生存而与骗子系统作战。</p> <p>　　你也可以玩银河攻击，海外发布的图层部分。</p> <p>　　在本书中，用立体声欣赏增强型BGM家庭游戏机游戏。</p> <p>　　混音后的主旋律与街机版有着不同的品味!</p> <p>　　新增了游戏回放、慢速模式和快速保存等实用功能。</p> <p>　　在新的在线排名模式下与其他人比较分数!</p> <p>　　以上内容就是小编为大家带来的《Layer Section &amp; Galactic Attack S-Tribute》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">kcmydjh</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143657/](https://lad.sfcrom.cn/2024/04/143657/)

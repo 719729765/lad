@@ -1,0 +1,13 @@
+---
+title: "switch《超级炸弹人R2（SUPER BOMBERMAN R 2）》中文版NSP/XCI整合版下载【含1.3.1补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《超级炸弹人R2（SUPER BOMBERMAN R 2）》中文版NSP/XCI整合版下载【含1.3.1补丁】！SUPER BOMBERMAN R 2》是一款经典的动作游戏，游戏的玩法非常简单，玩家需要在地图上放置炸弹，炸毁对手和障碍物，同时还需要收集各种道具，比如增加炸弹的威力、增加移&hellip;"
+layout: post
+---
+
+ <p>switch《超级炸弹人R2（SUPER BOMBERMAN R 2）》中文版NSP/XCI整合版下载【含1.3.1补丁】！SUPER BOMBERMAN R 2》是一款经典的动作游戏，游戏的玩法非常简单，玩家需要在地图上放置炸弹，炸毁对手和障碍物，同时还需要收集各种道具，比如增加炸弹的威力、增加移动速度、提高生命值等等。在游戏中，玩家可以选择单人模式或多人模式，与其他玩家或电脑对战，体验不同的游戏乐趣。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=685452021&amp;bvid=BV1ZU4y1Q7NG&amp;cid=758584999&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f0b54cdf4.webp" width="700" alt="switch《超级炸弹人R2（SUPER BOMBERMAN R 2）》中文版NSP/XCI整合版下载【含1.3.1补丁】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f0b5d4624.webp" width="700" alt="switch《超级炸弹人R2（SUPER BOMBERMAN R 2）》中文版NSP/XCI整合版下载【含1.3.1补丁】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f0b6584f0.webp" width="700" alt="switch《超级炸弹人R2（SUPER BOMBERMAN R 2）》中文版NSP/XCI整合版下载【含1.3.1补丁】" /></p></div> <p>　　派对战斗游戏系列的最新标题超级炸弹人R!</p> <p>　　凭借新的冒险和游戏模式，它拥有该系列历史上最大的内容量!</p> <p>　　该游戏不仅具有可以与家人和朋友一起玩的离线战斗，还具有连接来自世界各地的玩家的在线战斗以及单人游戏模式。</p> <p>　　除了众所周知的&ldquo;标准&rdquo;，&ldquo;大奖赛&rdquo;和&ldquo;战斗64&rdquo;之外，还有一个名为&ldquo;城堡&rdquo;的新战斗模式，玩家分为攻击方和城堡方争夺宝藏!</p> <p>　　还添加了&ldquo;舞台编辑器&rdquo;功能，允许玩家为&ldquo;城堡&rdquo;创建自己的舞台，并与全球玩家在线分享。</p> <p>　　让我们一起在&ldquo;超级炸弹人R 2&rdquo;中玩得开心!</p> <p>　　&bull; 战斗模式 享受4种战斗模式</p> <p>　　，包括新的&ldquo;城堡&rdquo;!</p> <p>　　&ldquo;城堡&rdquo;：保护宝箱的城堡方和旨在赢得宝箱的攻击方之间的不对称战斗!</p> <p>　　&ldquo;标准&rdquo;：深受粉丝喜爱的经典战斗模式!</p> <p>　　&ldquo;大奖赛&rdquo;：两支队伍的战斗!与你的盟友合作，打败对方的队伍!</p> <p>　　&ldquo;战斗64&rdquo;：最多64名玩家的生存之战!瞄准轰炸机一号!</p> <p>　　&bull; 具有相似能力的用户之间的等级匹配</p> <p>　　战斗!</p> <p>　　与来自世界各地的玩家在线战斗!</p> <p>　　&bull; 房间匹配</p> <p>　　自由设置战斗模式和规则!</p> <p>　　让您的朋友在线聚会，玩得开心!</p> <p>　　&bull; 离线战斗</p> <p>　　使用一台游戏机，您可以享受炸弹人!</p> <p>　　连接额外的控制器，与家人和朋友一起玩!</p> <p>　　*需要人数控制器。</p> <p>　　&bull;舞台编辑器</p> <p>　　带有积木和噱头的自定义舞台可以在线共享!</p> <p>　　使用舞台编辑器创建、播放、共享和探索各个关卡!</p> <p>　　&bull; 故事模式 享受已增强的故事模式</p> <p>　　!</p> <p>　　与炸弹人的新朋友&ldquo;Ellons&rdquo;一起访问新星球，面对宇宙的威胁!</p> <p><h4>下载地址(由网友<font color="red">hhbluestar</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101571/](https://lad.sfcrom.cn/2024/04/101571/)

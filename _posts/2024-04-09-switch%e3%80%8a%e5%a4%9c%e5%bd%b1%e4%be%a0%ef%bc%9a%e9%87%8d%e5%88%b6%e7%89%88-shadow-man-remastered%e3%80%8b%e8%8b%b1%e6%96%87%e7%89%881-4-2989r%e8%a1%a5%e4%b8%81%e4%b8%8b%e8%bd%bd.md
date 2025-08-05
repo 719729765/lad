@@ -1,0 +1,13 @@
+---
+title: "switch《夜影侠：重制版 Shadow Man Remastered》英文版1.4.2989r补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《夜影侠：重制版 Shadow Man Remastered》英文版下载，这是一款1999发售的3D动作冒险游戏，以一名拥有超能力的英雄为主角，重制版本在画质等方面有了十分大的提升。 　　《夜影侠》曾于1999年登陆PC、PS、N64以及DC平台。玩家将扮演&ldquo;夜影侠&amp;rd&hellip;"
+layout: post
+---
+
+ <p>　　switch《夜影侠：重制版 Shadow Man Remastered》英文版下载，这是一款1999发售的3D动作冒险游戏，以一名拥有超能力的英雄为主角，重制版本在画质等方面有了十分大的提升。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=328572912&amp;bvid=BV1uA411i7rU&amp;cid=201784944&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d5a09fab.jpg" alt="switch《夜影侠：重制版 Shadow Man Remastered》英文版1.4.2989r补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d5a641e2.jpg" alt="switch《夜影侠：重制版 Shadow Man Remastered》英文版1.4.2989r补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d5ac4f5b.jpg" alt="switch《夜影侠：重制版 Shadow Man Remastered》英文版1.4.2989r补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d5b32681.jpg" alt="switch《夜影侠：重制版 Shadow Man Remastered》英文版1.4.2989r补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153d5b844cb.jpg" alt="switch《夜影侠：重制版 Shadow Man Remastered》英文版1.4.2989r补丁下载" /></td> </tr> </tbody> </table> <p>　　《夜影侠》曾于1999年登陆PC、PS、N64以及DC平台。玩家将扮演&ldquo;夜影侠&rdquo;同世界的黑暗势力作斗争，夜影侠将穿梭在路易斯安那州的沼泽，纽约市的后巷，黑暗和恐怖的死亡之地以保护世界的和平。</p> <p>　　故事介绍</p> <p>　　他要来了，在精神世界和现实世界中跟踪罪犯。</p> <p>　　一个被附身的人要来了，他的胸口有一个巫毒面具，背上有力量的线条。夜影侠要来了，从活人区到死人区追踪邪恶。为了阻止一场天启。为了拯救你的灵魂。</p> <p>　　重制版特色</p> <p>　　3个新关卡：</p> <p>　　&ldquo;佛罗里达夏令营&rdquo;(白天和黑夜)</p> <p>　　&ldquo;救助场，莫哈韦沙漠&rdquo;(白天和黑夜)</p> <p>　　&ldquo;庇护站2-实验室&rdquo;</p> <p>　　新音乐(来自原始游戏作曲家蒂姆&middot;海伍德)</p> <p>　　重新制作的音乐和SFX</p> <p>　　恢复关卡的新音乐和SFX</p> <p>　　恢复关卡中未使用的剪辑和未使用的语音对话</p> <p>　　绘图更新：</p> <p>　　在原始纹理和新的高分辨率纹理之间切换</p> <p>　　适用于所有关卡和对象的高清纹理</p> <p>　　Nvidia介绍过场纹理</p> <p>　　高清HUD和背包图标，以及阴影枪的新图标</p> <p>　　恢复未使用的动画</p> <p>　　从原始关卡中还原了几个剪辑和模型</p> <p>　　以上内容就是小编为大家带来的《夜影侠：重制版 Shadow Man Remastered》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">649945902</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145665/](https://lad.sfcrom.cn/2024/04/145665/)

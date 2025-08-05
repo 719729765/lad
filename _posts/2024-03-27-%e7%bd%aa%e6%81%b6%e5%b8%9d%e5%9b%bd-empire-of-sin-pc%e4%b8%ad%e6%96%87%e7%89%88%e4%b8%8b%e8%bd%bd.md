@@ -1,0 +1,13 @@
+---
+title: "罪恶帝国 Empire of Sin PC中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　罪恶帝国 Empire of Sin PC中文版下载。战棋制策略游戏，游戏将带你回到20世纪20年代禁酒令时期的芝加哥，把你置于充斥着无情犯罪的黑社会的核心。你可以用威逼、魅惑和胁迫的方式爬上黑社会老大的宝座，并不择手段保住自己的地位。 　　《Empire of Sin》是一款由Romero G&hellip;"
+layout: post
+---
+
+ <p>　　罪恶帝国 Empire of Sin PC中文版下载。战棋制策略游戏，游戏将带你回到20世纪20年代禁酒令时期的芝加哥，把你置于充斥着无情犯罪的黑社会的核心。你可以用威逼、魅惑和胁迫的方式爬上黑社会老大的宝座，并不择手段保住自己的地位。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=885410817&amp;bvid=BV1UK4y1j7VG&amp;cid=259948788&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660388699331f.jpg" width="600" alt="罪恶帝国 Empire of Sin PC中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603886a48f33.jpg" width="600" alt="罪恶帝国 Empire of Sin PC中文版下载" /></p> <p>　　《Empire of Sin》是一款由Romero Games和Paradox Interactive推出的全新策略游戏，您将进入禁酒时期的芝加哥，也就是1920年代各种黑社会残暴犯罪活动盛行的中心。您可以从Al Capone、Stephanie St. Clair或Goldie Garneau等14位真实历史人物为灵感发想出的黑社会老大中选择一位扮演，集结一支龙蛇杂处的帮派、打造并管理您的犯罪帝国，同时对抗敌对帮派，保卫您的地盘。您可以选择通过威逼、利诱或震慑对手来攀上权力顶峰，然后不择手段地守住自己的地位。</p> <p>　　游戏介绍</p> <p>　　建造犯罪帝国： 选择你想经营的生意(秘密酒吧、工会保护等)从零开始建造你的犯罪帝国，招募暴徒打造一支对你忠心耿耿的队伍，让大街小巷的人们都记住你们。你为自己打响名声后，通过占领对手地盘并增加更多店面的方式来扩大你的影响力。</p> <p>　　保卫并扩张地盘： 假设战斗在所难免且你的手下打算表明立场，那就在无情的回合制战斗中一决胜负吧。讲究策略地招募打手，并使你的手下相互之间关系融洽可以最大化战斗伤害，并帮助你姥姥控制住城市。</p> <p>　　鲜活的世界： 探索20世纪20年代芝加哥生机勃勃的街道，与一系列鲜活的角色互动。你可以根据每名角色的人生经历判断他们会对你的行为(或不作为)作何反应。你可以选择闲谈、强迫、勾引、威胁或杀死他们的方式达到目的。</p> <p>　　运用你的影响力： 你可以缔结或背弃盟约、贿赂警察以及在黑市上做买卖以提升你的派系评分并扩张你的犯罪家族。但要时刻密切留意你的对手，确保其他团伙里有你的内应，且到处都要有你的眼线。</p> <p>　　多种取胜策略： 无论是靠暴力、社会影响力还是在城里的恶名度，你可以通过多种途径登上芝加哥之王的宝座。游戏拥有各种各样的起始条件，手下团队的状态也在时刻变化，确保游戏体验不会千篇一律。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows&reg; 8.1 64 bit or Windows&reg; 10 Home 64 bit</p> <p>　　处理器: Intel&reg; Core&trade;i3-530 or AMD&reg; Phenom&trade; II X3 720</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Nvidia&reg; GeForce&trade; GTX 460 (1GB) or AMD&reg; Radeon&trade; R7 250 (2GB), AMD&reg; Radeon&trade; Vega 11</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　操作系统: Windows&reg; 10 Home 64 bit</p> <p>　　处理器: Intel&reg; Core&trade; i5-4460 or AMD&reg; Ryzen&trade; 5 3400G</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Nvidia&reg; GeForce&trade; GTX 770 (2GB) or AMD&reg; Radeon&trade; RX 470 (4GB)</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">mickoko</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/47682/](https://lad.sfcrom.cn/2024/03/47682/)

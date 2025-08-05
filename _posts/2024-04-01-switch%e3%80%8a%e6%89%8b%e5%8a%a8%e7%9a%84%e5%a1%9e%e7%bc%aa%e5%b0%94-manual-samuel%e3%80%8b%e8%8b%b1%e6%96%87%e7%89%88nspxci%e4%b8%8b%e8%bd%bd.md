@@ -1,0 +1,13 @@
+---
+title: "switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载，今天要为大家推荐的一款独立游戏，这款游戏是冒险解谜风格的，大家一起来看看吧。 　　《手动的塞缪尔(Manual Samuel)》是Perfectly Paranormal制作的一款奇葩搞笑风格的冒险解谜游戏。在这款游&hellip;"
+layout: post
+---
+
+ <p>　switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载，今天要为大家推荐的一款独立游戏，这款游戏是冒险解谜风格的，大家一起来看看吧。</p> <p>　　《手动的塞缪尔(Manual Samuel)》是Perfectly Paranormal制作的一款奇葩搞笑风格的冒险解谜游戏。在这款游戏中，玩家将控制一名刚刚死去的富二代，其死后遇见死神并与其作了一个交易：再活24小时，但他整个人必须被手动控制，否则他将永远在地狱中遭受折磨。而这位富二代就是由玩家在游戏中控制的。在这24时中，玩家将控制其衣食住行各个方面，当然这不是那么容易的。同时游戏还支持和好友一起本地联机控制主角塞缪尔的身体，非常有意思。</p> <p style="text-align: center;"><strong><span style="font-size:22px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=6558640&amp;bvid=BV1Xs411x7Ak&amp;cid=10670038&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2cc5d46ad.webp" style="border-width: 0px; border-style: solid; width: 600px; height: 337px;" alt="switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载" /></p> <p align="center"><img align="" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2cc633e8b.webp" style="border-width: 0px; border-style: solid; width: 600px; height: 337px;" alt="switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载" /></p> <p>&nbsp;</p> <p>　　独特的手绘二维艺术画面。</p> <p>　　控制的山姆的身体与一个朋友的地方合作的乐趣。</p> <p>　　掌握野蛮的时间攻击模式。</p> <p>　　一个有趣的关于爱与救赎的故事。</p> <p>　　超过600行配音演员完美对话。</p> <p>　　玩法介绍</p> <p>　　1、玩家将控制一名刚刚死去的富二代，其死后遇见死神并与其作了一个交易再活24小时。</p> <p>　　2、但他整个人必须被手动控制，否则他将永远在地狱中遭受折磨。</p> <p>　　3、而这位富二代就是由玩家在游戏中控制的。</p> <p>　　4、在这24时中，玩家将控制其衣食住行各个方面。</p> <p>　　5、你还能与好友一同控制助教的身体。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2cc6a36b6.webp" alt="switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2cc6e5ff7.webp" alt="switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2cc74ec92.webp" alt="switch《手动的塞缪尔 Manual Samuel》英文版NSP+XCI下载" /></td> </tr> </tbody> </table> <p>　　这款游还是很好玩的，虽然没有炫丽的画面，但是也能够让大家感到快快乐。</p> <p><h4>下载地址(由网友<font color="red">tttttt1</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109002/](https://lad.sfcrom.cn/2024/04/109002/)

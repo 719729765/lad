@@ -1,0 +1,13 @@
+---
+title: "switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载!格林奇有个绝妙但又可怕的主意&mdash;&mdash;用他的潜行圣诞老人服装和拐杖糖套索等小玩意儿，偷走无名镇上的所有礼物。在这款充满节日气氛的平台游戏中，帮助主角四处潜行，&hellip;"
+layout: post
+---
+
+ <p>　　switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载!格林奇有个绝妙但又可怕的主意&mdash;&mdash;用他的潜行圣诞老人服装和拐杖糖套索等小玩意儿，偷走无名镇上的所有礼物。在这款充满节日气氛的平台游戏中，帮助主角四处潜行，用雪球冻结各种生物，一路之上了解圣诞节真正的意义!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=747113797&amp;bvid=BV1PC4y1G7Dn&amp;cid=1298087916&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d82b022477.webp" width="700" alt="switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d82b07f9c5.webp" width="700" alt="switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d82b0dff0b.webp" width="700" alt="switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d82b1492e5.webp" width="700" alt="switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d82b1a276a.webp" width="700" alt="switch《圣诞怪杰：圣诞大冒险 The Grinch: Christmas Adventures》中文版NSZ下载" /></p></div> <p>　　关于这款游戏</p> <p>　　尝试在这款充满节日气氛的平台游戏中将圣诞节偷走，享受一段愉快的格林奇时光&mdash;&mdash;顺道帮助格林奇那颗小心脏长大一丢丢!</p> <p>　　无名镇里人人都爱唱歌、礼物和盛宴，而这些正是格林奇最无法容忍的事情。所以，你必须出手帮助格林奇和他的狗狗麦克斯，前去偷走无名镇上的所有礼物。你必须偷偷摸摸地避开颂歌歌手令人讨厌的喋喋不休、永远热情满满的无名镇民众，还有充斥着圣诞季的各种金属丝、装饰品和配饰物。好在格林奇总能想出绝妙又可怕的主意&mdash;&mdash;比如用于偷偷潜行的圣诞老人服装、荡来荡去的拐杖糖套索、能够到达特殊比赛区域的快速滑雪板等等。而且格林奇可以扔出雪球，冻住任何挡道的烦人家伙。</p> <p>　　《圣诞怪杰：圣诞大冒险》色彩斑斓的视觉效果受苏斯博士的原创插画启发而设计，本地多人游戏模式支持两名玩家同乐，分别控制格林奇和麦克斯，游戏控制方法和谜题专为年轻玩家而设计，对于享受经典圣诞故事而言，本作可谓是种妙趣横生的新方式。</p> <p>　　畅享乐趣 &ndash; 扮演格林奇和他的狗狗麦克斯，偷偷摸摸地去偷礼物。</p> <p>　　解锁格林奇的小玩意儿 &ndash; 解开谜题，获得能力!扔雪球、伪装圣诞老人、使用拐杖糖套索或跳跃喷气背包，可谓花样繁多!</p> <p>　　乐在其中 &ndash; 格林奇想阻止圣诞节，但你可以帮助他的心脏长大三倍!</p> <p>　　体验经典 &ndash; 视觉效果灵感源自苏斯博士的著作，控制方法适合年轻小玩家。</p> <p><h4>下载地址(由网友<font color="red">seraphim001</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124882/](https://lad.sfcrom.cn/2024/04/124882/)

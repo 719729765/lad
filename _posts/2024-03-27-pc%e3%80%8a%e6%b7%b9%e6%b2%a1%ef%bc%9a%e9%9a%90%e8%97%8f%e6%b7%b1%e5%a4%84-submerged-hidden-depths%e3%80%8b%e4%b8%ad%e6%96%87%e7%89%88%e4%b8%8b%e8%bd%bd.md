@@ -1,0 +1,13 @@
+---
+title: "PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载，这是一款3D的动作冒险游戏，为玩家呈现了一个神秘而且美丽的开放世界，游戏的自由度很高，感兴趣的玩家不要错过。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Uppercut Games Pty Ltd 　　&hellip;"
+layout: post
+---
+
+ <p>　　PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载，这是一款3D的动作冒险游戏，为玩家呈现了一个神秘而且美丽的开放世界，游戏的自由度很高，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=593525296&amp;bvid=BV1Yq4y187uf&amp;cid=496129741&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3f7c0f68.webp" alt="PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3f84c501.webp" alt="PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3f8a4c93.webp" alt="PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3f923a0a.webp" alt="PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Uppercut Games Pty Ltd</p> <p>　　游戏发行：Uppercut Games Pty Ltd</p> <p>　　一款非战斗式第三视角&ldquo;休闲探索&rdquo;冒险游戏，带你探寻美丽的水中废墟世界中隐藏的奥秘。你可以扮演Miku和Taku的角色&mdash;&mdash;其中一个受到神秘力量的诅咒，但一心向善;另外一个则矢志不让邪恶的力量将人类摧毁。</p> <p>　　游戏特色</p> <p>　　船穿过宁静的水域和风暴驱动的白色帽子</p> <p>　　探索、攀登和与曾经高耸的城市的遗迹互动</p> <p>　　收集遥远的过去的神秘遗迹</p> <p>　　在建筑物中寻找救恩的种子。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: 4 Core 3.0+ GHz</p> <p>　　内存: 6 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 780 - AMD Radeon R7 260X</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 12 GB 可用空间</p> <p>　　声卡: DirectX Compatible</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制FLT文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b3f96fe84.webp" width="572" alt="PC《淹没：隐藏深处 Submerged Hidden Depths》中文版下载" /></p> <p>　　以上内容就是小编为大家带来的《淹没：隐藏深处 Submerged Hidden Depths》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">帅到被人砍</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53303/](https://lad.sfcrom.cn/2024/03/53303/)

@@ -1,0 +1,13 @@
+---
+title: "PC《维京人的土地/Land of the Vikings》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《维京人的土地/Land of the Vikings》中文版下载Land of the Vikings 是一款生存殖民类模拟游戏。打造并统领你的村庄，一步步扩张为繁华的城市。一名明智的领主必须细心管理资源，抵御恶劣的环境与敌人的劫掠，并引领自己的维京族人求同存异，携手共进。加油! 　　砍伐&hellip;"
+layout: post
+---
+
+ <p>　　PC《维京人的土地/Land of the Vikings》中文版下载Land of the Vikings 是一款生存殖民类模拟游戏。打造并统领你的村庄，一步步扩张为繁华的城市。一名明智的领主必须细心管理资源，抵御恶劣的环境与敌人的劫掠，并引领自己的维京族人求同存异，携手共进。加油!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=704497494&amp;bvid=BV1Lm4y1g7nx&amp;cid=1294793483&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b8e2b86e3.webp" width="700" alt="PC《维京人的土地/Land of the Vikings》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b8e32814d.webp" width="700" alt="PC《维京人的土地/Land of the Vikings》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b8e3947a8.webp" width="700" alt="PC《维京人的土地/Land of the Vikings》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b8e406dd4.webp" width="700" alt="PC《维京人的土地/Land of the Vikings》中文版下载" /></p></div> <p>　　砍伐树木，种植作物，狩猎野兽，开采矿石，并从周围的海洋与峡湾中捕鱼。谨慎地管理您的资源，确保挺过严冬，并随着四季变换不断扩张您的聚居点。</p> <p>　　了解您的维京子民</p> <p>　　每一位村民都是独一无二。您的村民拥有 20 多种特性，他们可能是身强力壮的壮汉和妇女，也可能是伶牙俐齿的演员。在给村民分配任务时要注意他们的技能和能力。不是所有的维京人都一样，也不是所有的工作他们都擅长!</p> <p>　　随着聚居点的扩大，会有更多的维京人寻求加入。您可以选择欢迎或拒绝他们。随着时间的推移，您的维京人将会建立新的家庭，产下后代，延续血脉，壮大您的聚居点。</p> <p>　　抵御恶劣天气与突发事件</p> <p>　　从地震到阿斯加德天降雷霆引发的大火，这片土地会给您的聚居点带来重重挑战。团结您麾下的维京人，尽力抵御这些灾害。</p> <p>　　四季的挑战各不相同，事件和灾害千变万化。准备好面对风暴和暴风雪，以及致命的漫漫长冬。准备好柴火和食物，保证您麾下的维京人吃饱穿暖!</p> <p>　　周边贸易</p> <p>　　您的邻居是货物和黄金的绝佳来源。一旦您建造了贸易码头，载着各种货物的船只将造访您的聚居点。您也可以派出自己的贸易船队，前提是有足够的村民驾驭船只&mdash;&mdash;以及足够的啤酒驾驭村民!</p> <p>　　劫掠和掠夺</p> <p>　　在所有优秀的领主看来，武力是获取荣耀的最佳途径。集结您麾下的维京人，劫掠其他村庄，掠夺他们的金银财宝，并获得声望点。通过训练强化维京人，借助全新的战斗指挥系统，赢得胜利，并抵御其他村庄对您聚居点发起的攻击!</p> <p>　　随着您的聚居点日益兴旺，英勇的维京英雄们也会加入您的麾下。这些英雄将带领您的部队战斗，激发战士们的信心，并提供各种奖励。</p> <p>　　庆祝与装饰</p> <p>　　您可以随心所欲地建造自己的聚居点，无需受限于网格!按照自己的喜好设计聚居点，增加维京人的幸福度。建造奥丁或芙蕾雅神像，定制维京舰船的外观。您甚至可以使用建筑编辑器修改房屋的外观。该内置的编辑器功能强大，您可以无限建造和定制的建筑和装饰!</p> <p>　　世界树&mdash;生命之树，科技之树</p> <p>　　在生命之树中使用&ldquo;声望点&rdquo;可解锁新的建筑和奖励。探索啤酒酿造技术，建造酒馆，供村民休闲。投资牧羊业，收集羊毛，织出更好的布料。随着您提升资源的质量和生活品质，您麾下的维京人将会变得更加健康，更加幸福，您的聚居点也会更加繁荣!</p> <p><h4>下载地址(由网友<font color="red">yifan0418</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53727/](https://lad.sfcrom.cn/2024/03/53727/)

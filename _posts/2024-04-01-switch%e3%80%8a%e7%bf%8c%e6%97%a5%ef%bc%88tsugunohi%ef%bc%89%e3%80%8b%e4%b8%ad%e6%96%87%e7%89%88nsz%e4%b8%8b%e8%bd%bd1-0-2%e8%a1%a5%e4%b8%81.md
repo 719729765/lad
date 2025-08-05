@@ -1,0 +1,13 @@
+---
+title: "switch《翌日（Tsugunohi）》中文版NSZ下载+1.0.2补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《翌日（Tsugunohi）》中文版呢nsp下载！游戏的背景设定在一个神秘的小镇上，这个小镇的中心是一座废弃的大厦，被传说中的诅咒笼罩着。据说，任何进入这座大厦的人都会遭遇不同的诅咒和恶魔，而且很少有人能存活下来。但是，作为一名勇敢的探险家，你决定进入这座大厦，揭开其中的秘密。 　　相关&hellip;"
+layout: post
+---
+
+ <p>switch《翌日（Tsugunohi）》中文版呢nsp下载！游戏的背景设定在一个神秘的小镇上，这个小镇的中心是一座废弃的大厦，被传说中的诅咒笼罩着。据说，任何进入这座大厦的人都会遭遇不同的诅咒和恶魔，而且很少有人能存活下来。但是，作为一名勇敢的探险家，你决定进入这座大厦，揭开其中的秘密。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=956790860&amp;bvid=BV1ep4y1V7Rk&amp;cid=1221531582&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f2fe0286c.webp" width="700" alt="switch《翌日（Tsugunohi）》中文版NSZ下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f2fe492fb.webp" width="700" alt="switch《翌日（Tsugunohi）》中文版NSZ下载+1.0.2补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f2fe9ff20.webp" width="700" alt="switch《翌日（Tsugunohi）》中文版NSZ下载+1.0.2补丁" /></p> <p>　　相关视频观看量超过100亿次!备受喜爱的J恐怖游戏终于来到任天堂开关&trade;了!</p> <p>　　在YouTube和Niconico上非常受欢迎的恐怖游戏&ldquo;Tsugunohi&rdquo;终于进入了Nintendo Switch&trade;️!</p> <p>　　&ldquo;Tsugunohi&rdquo;一直是恐怖游戏逐个播放视频的主要内容，并由众多著名的逐个播放艺术家和Vtubers分发。这款恐怖游戏让玩家体验陷入一个循环，他们的日常生活逐渐被侵蚀成一个可怕的世界。</p> <p>　　■唯一的操作是&ldquo;向左走&rdquo;!</p> <p>　　游戏最显着的特点是&ldquo;向左走&rdquo;的控制。尽管这就是您所要做的一切，但许多人对正常的日常生活逐渐变成恐怖体验的方式着迷!您可以享受&ldquo;蠕动的恐惧&rdquo;，这是J恐怖片最好的部分。</p> <p>　　你能把棍子放在左边吗?...</p> <p>　　■该系列中的10款恐怖游戏包括此集合!</p> <p>　　&ldquo;Tsugunohi&rdquo;是一个简短的游戏，只有一个完整的故事。每场比赛只需 15 到 30 分钟即可玩，但激烈而浓缩的恐怖体验将一个接一个地打击您。</p> <p>　　Nintendo Switch版本包括10个短篇故事，其中包括与知名Vtuber的合作。</p> <p>　　我们希望您能借此机会为自己玩流行的恐怖游戏&ldquo;Tsugunohi&rdquo;。</p> <p><h4>下载地址(由网友<font color="red">轻松生活1</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101770/](https://lad.sfcrom.cn/2024/04/101770/)

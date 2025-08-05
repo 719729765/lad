@@ -1,0 +1,13 @@
+---
+title: "switch《隐形球 Invisiballs》NSP-1.01补丁下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《隐形球 Invisiballs》NSP下载，今天小编为大家带来了一款非常有趣的游戏，下面我们先来看一看这款游戏的内容吧。 　　英文名称：Invisiballs 　　游戏语言：英文 　　游戏版本：美版 　　游戏类型：动作类(ACT) 　　开发厂商：Digital Kingdom 　　&hellip;"
+layout: post
+---
+
+ <p>　　switch《隐形球 Invisiballs》NSP下载，今天小编为大家带来了一款非常有趣的游戏，下面我们先来看一看这款游戏的内容吧。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=22842238&amp;bvid=BV14W41137ZB&amp;cid=37944819&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2cc1e6a36.webp" width="533" alt="switch《隐形球 Invisiballs》NSP-1.01补丁下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a2cc23fa67.webp" width="533" alt="switch《隐形球 Invisiballs》NSP-1.01补丁下载" /></p> <p>　　英文名称：Invisiballs</p> <p>　　游戏语言：英文</p> <p>　　游戏版本：美版</p> <p>　　游戏类型：动作类(ACT)</p> <p>　　开发厂商：Digital Kingdom</p> <p>　　发售日期：2018-05-17</p> <p>　　《隐形球》是一款类似贪食蛇的游戏，支持多人对战，唯一不同的是，你在移动的时候，其他玩家是看不到你的路径的，你的隐形球走过之后，稍后才会显示路径。最先撞到金黄色路径的玩家赢。</p> <p>　　这样一款游戏不知道大家是否感兴趣呢?我们还为大家准备了很多优质的主机游戏哦!</p> <p><h4>下载地址(由网友<font color="red">chentiankai1996</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/108996/](https://lad.sfcrom.cn/2024/04/108996/)

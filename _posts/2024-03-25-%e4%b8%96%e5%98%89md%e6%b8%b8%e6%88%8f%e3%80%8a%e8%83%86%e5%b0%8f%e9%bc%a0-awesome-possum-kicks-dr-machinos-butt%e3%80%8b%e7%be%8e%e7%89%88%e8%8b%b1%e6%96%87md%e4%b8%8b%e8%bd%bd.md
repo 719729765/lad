@@ -1,0 +1,13 @@
+---
+title: "世嘉MD游戏《胆小鼠 Awesome Possum&#8230; &#8230;Kicks Dr. Machino&#039;s Butt》美版英文MD下载"
+date: 2024-03-25
+tags: []
+categories: ["MD游戏"]
+excerpt: "　　世嘉MD游戏《胆小鼠 Awesome Possum... ...Kicks Dr. Machino&#039;s Butt》美版英文MD下载，这是一款非常有趣的动作冒险游戏，在这款游戏中你将体验到真正的乐趣，感兴趣的小伙伴快来看看吧。 　　《Awesome Possum... ...Kicks D&hellip;"
+layout: post
+---
+
+ <p>　　世嘉MD游戏《胆小鼠 Awesome Possum... ...Kicks Dr. Machino&#39;s Butt》美版英文MD下载，这是一款非常有趣的动作冒险游戏，在这款游戏中你将体验到真正的乐趣，感兴趣的小伙伴快来看看吧。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_66011f7631caf.webp" width="700" alt="世嘉MD游戏《胆小鼠 Awesome Possum... ...Kicks Dr. Machino&amp;#039;s Butt》美版英文MD下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240325_66011f768f8d1.webp" width="700" alt="世嘉MD游戏《胆小鼠 Awesome Possum... ...Kicks Dr. Machino&amp;#039;s Butt》美版英文MD下载" /></p> <p>　　《Awesome Possum... ...Kicks Dr. Machino&#39;s Butt》是一款由Tengen公司开发的动作冒险游戏，于1993年发布在世嘉MD(Mega Drive)和世嘉创世纪平台上。在游戏中，玩家扮演一只名叫Awesome Possum的负鼠，奋力对抗邪恶的Dr. Machino和他的机器人军团，他们正破坏着环境。这款游戏以其精彩的关卡设计和刺激的战斗场面而受到玩家们的喜爱。此外，世嘉MD(Mega Drive)是世嘉公司在1988年推出的一款家用游戏机，其性能在当时非常出众，凭借出色的处理性能以及大量的经典游戏，如《刺猬索尼克》、《梦幻之星》等，世嘉MD在全球取得了巨大的成功，尤其在北美市场，它一度占据了市场的主导地位。</p> <p><h4>下载地址(由网友<font color="red">突突兔</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/19357/](https://lad.sfcrom.cn/2024/03/19357/)

@@ -1,0 +1,13 @@
+---
+title: "PC《伊苏9：怪人之夜 Ys IX: Monstrum Nox》免安装中文版下载（v1.1.3）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《伊苏9：怪人之夜 Ys IX: Monstrum Nox》免安装中文版下载，伊苏系列作为经典的角色扮演游戏一直深受玩家喜爱，下面为玩家朋友们带来了这款游戏的第九代作品。 　　《伊苏9》以被称为监狱都市的巨大城市为舞台，新冒险将从这里开始，玩家将揭开监狱背后隐藏的秘密。新作会有特殊能力&amp;ld&hellip;"
+layout: post
+---
+
+ <p>　　PC《伊苏9：怪人之夜 Ys IX: Monstrum Nox》免安装中文版下载，伊苏系列作为经典的角色扮演游戏一直深受玩家喜爱，下面为玩家朋友们带来了这款游戏的第九代作品。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=77205621&amp;bvid=BV1QJ411X7JS&amp;cid=132064602&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603aa6d2b2bd.webp" width="600" alt="PC《伊苏9：怪人之夜 Ys IX: Monstrum Nox》免安装中文版下载（v1.1.3）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603aa6d8acae.webp" width="600" alt="PC《伊苏9：怪人之夜 Ys IX: Monstrum Nox》免安装中文版下载（v1.1.3）" /></p> <p>　　《伊苏9》以被称为监狱都市的巨大城市为舞台，新冒险将从这里开始，玩家将揭开监狱背后隐藏的秘密。新作会有特殊能力&ldquo;异能动作&rdquo;以及&ldquo;公会运营&rdquo;等新要素。玩家可以利用特殊技能在野外探索，也可以用技能攻击，冲刺，跳跃等。</p> <p>　　故事就围绕着这里拥有特殊能力的&ldquo;怪人&rdquo;(MONSTRUM)以及监狱中隐藏的秘密而展开。本作除了保持《伊苏》系列一直以来作为APRG的特色外，还将追加利用怪人特殊能力探索场景的&ldquo;异能动作&rdquo;以及在监狱都市内进行&ldquo;工会运营&rdquo;等各种全新的要素。</p> <p>　　游戏介绍</p> <p>　　害怕的保护者</p> <p>　　扮演六个臭名昭著的怪人，每一个都有自己独特的天赋，给予能力，如攀登陡峭的墙壁或探测隐藏的物体，以保护城市免受阴影生物。</p> <p>　　城墙内的世界</p> <p>　　探索这座巨大的城市，接受帮助城镇居民的任务，进入格里姆瓦尔德诺克斯，战胜对巴尔杜克的威胁。</p> <p>　　夜之力量</p> <p>　　熟悉的技能，如闪避和闪避守卫，可以让你超越你的敌人，而新增加的礼物和增强模式，进一步增强你的战斗能力。</p> <p><h4>下载地址(由网友<font color="red">1127263585</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51745/](https://lad.sfcrom.cn/2024/03/51745/)

@@ -1,0 +1,13 @@
+---
+title: "PC《幻想新国度：全扇飞 Asterix &#038; Obelix Slap them All》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《幻想新国度：全扇飞 Asterix &amp; Obelix Slap them All》中文版下载，这是一款十分有趣的动作游戏，2D横版的玩法，游戏将玩家带入了卡通风格的古代高卢，爆笑的剧情等你来体验。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Mr. Nutz Studio&hellip;"
+layout: post
+---
+
+ <p>　　PC《幻想新国度：全扇飞 Asterix &amp; Obelix Slap them All》中文版下载，这是一款十分有趣的动作游戏，2D横版的玩法，游戏将玩家带入了卡通风格的古代高卢，爆笑的剧情等你来体验。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=890118313&amp;bvid=BV12P4y1p74C&amp;cid=395566741&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f4f42594.webp" alt="PC《幻想新国度：全扇飞 Asterix &amp; Obelix Slap them All》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f4fa6e81.webp" alt="PC《幻想新国度：全扇飞 Asterix &amp; Obelix Slap them All》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f5012d89.webp" alt="PC《幻想新国度：全扇飞 Asterix &amp; Obelix Slap them All》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f5082fb9.webp" alt="PC《幻想新国度：全扇飞 Asterix &amp; Obelix Slap them All》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Mr. Nutz Studio</p> <p>　　游戏发行：Microids</p> <p>　　故事介绍</p> <p>　　公元前 50 年，高卢被罗马人全面占领。额，也不能说全面&hellip;&hellip;</p> <p>　　在一个小村庄，不屈不饶的高卢人仍在坚持抵抗入侵者。</p> <p>　　一切都在分崩离析!我们的两位英雄将环游世界，在 2D 横版 Beat Them Up 游戏中与罗马帝国作战，这款游戏为纯手绘作品，并采用该类游戏最纯粹的传统制作。</p> <p>　　敌人和野猪要小心了!Asterix 和 Obelix 回来了&hellip;&hellip;这将是另一场伟大的战斗!</p> <p>　　游戏特色</p> <p>　　扮演 Asterix 和 Obelix，与家人或朋友一起合作(本地多人模式)!</p> <p>　　采用为每个角色提供的大量动作和独特组合，击退成千上万的罗马人!</p> <p>　　冒险模式章节根据现有的 Asterix &amp; Obelix 专辑设计。游戏还具有专为游戏创作的独家章节。</p> <p>　　除了主要冒险外，还可以参与小游戏，完成我们高卢朋友的盛宴!</p> <p>　　享受手绘设计，这些设计完全忠于原创漫画书系列和专为游戏创作的动画。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7/8/10</p> <p>　　处理器: Intel Core i3-2125 (3,3 GHz) AMD FX 4100 (3.6GHz)</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: 2 GB (Geforce GTX 760/ Radeon R7 370)</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　声卡: Coming soon</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《幻想新国度：全扇飞 Asterix &amp; Obelix Slap them All》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">寒醉意</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51499/](https://lad.sfcrom.cn/2024/03/51499/)

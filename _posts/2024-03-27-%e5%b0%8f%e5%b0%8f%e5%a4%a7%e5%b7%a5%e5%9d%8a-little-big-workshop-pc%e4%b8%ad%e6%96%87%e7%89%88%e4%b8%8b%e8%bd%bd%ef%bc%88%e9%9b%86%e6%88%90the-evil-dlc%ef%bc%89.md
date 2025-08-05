@@ -1,0 +1,13 @@
+---
+title: "小小大工坊 Little Big Workshop PC中文版下载（集成The Evil DLC）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　小小大工坊 Little Big Workshop PC中文版下载。这是一款乐高风格的模拟经营游戏，游戏中你将会经营一个微缩版的大型工厂，它迷你到甚至可以放在你的卧室里。管理你的工人、工作站和机器，规划和生产超赞的产品，让你的小小车间，成长为梦想中的工厂! 　　设想一下，一座经过精心设计的神奇工&hellip;"
+layout: post
+---
+
+ <p>　　小小大工坊 Little Big Workshop PC中文版下载。这是一款乐高风格的模拟经营游戏，游戏中你将会经营一个微缩版的大型工厂，它迷你到甚至可以放在你的卧室里。管理你的工人、工作站和机器，规划和生产超赞的产品，让你的小小车间，成长为梦想中的工厂!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660382e533c7a.webp" width="600" alt="小小大工坊 Little Big Workshop PC中文版下载（集成The Evil DLC）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660382e5ade11.webp" width="600" alt="小小大工坊 Little Big Workshop PC中文版下载（集成The Evil DLC）" /></p> <p>　　设想一下，一座经过精心设计的神奇工厂就出现在您的卧室里。在这座工厂中，勤奋的工人们会打造出顾客想要的一切东西，小黄鸭、连衣裙、无人机、电吉他、滑板车等等形形色色且用料各异的商品。</p> <p>　　出售所得的现金可以用来为工厂添置更多的机器设备，增加更多的员工，从而进一步拓展您的业务。在《Little Big Workshop》中，您将会成为一名工厂大亨!</p> <p>　　游戏玩法</p> <p><strong>真实的工厂&mdash;&mdash;制造乐趣</strong></p> <p>　　您是老板，这座桌上的工厂全部由您说了算。布置工厂的楼层，管理手下的工人，购买机械设备，还有设计高效的生产线&mdash;&mdash;一切都要在时间限制之内完成，还要满足客户的需求!</p> <p><strong>开放式结局的沙盒体验</strong></p> <p>　　尽情放松，在这沙盒式的体验中您可以随心所欲地摆布所有东西。通过各种各样的零部件(都可以利用不同的材料和制作方法)，制作超过50种独特的产品，满足顾客和不断变化的市场需求。没有哪两座工厂是完全一样的。</p> <p><strong>小小的双手，大大的梦想</strong></p> <p>　　从一个狭小的车间发展壮大到一座复杂的工厂。解锁更华丽的机械设备，添加更多的生产方法，更重要的是进一步扩大空间。很快，您就会同时运营着多条生产线，每天会生产数百件高端的货物，看着您可爱的工人们勤劳地工作着。</p> <p>　　游戏特色</p> <p>　　真实的工厂 &ndash; 制造乐趣</p> <p>　　开放式结局的沙盒体验</p> <p>　　小小的双手，大大的梦想</p> <p>　　不同的行业和广泛的产品</p> <p>　　可爱的模型小镇画风</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: Dual Core CPU</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: Intel HD 4000, GeForce GT 330M, Radeon HD 4670 or equivalent</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　这款游戏就为玩家朋友们介绍到这里了，喜欢的话大家不妨来关注一下吧。</p> <p><h4>下载地址(由网友<font color="red">t695160387</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/47504/](https://lad.sfcrom.cn/2024/03/47504/)

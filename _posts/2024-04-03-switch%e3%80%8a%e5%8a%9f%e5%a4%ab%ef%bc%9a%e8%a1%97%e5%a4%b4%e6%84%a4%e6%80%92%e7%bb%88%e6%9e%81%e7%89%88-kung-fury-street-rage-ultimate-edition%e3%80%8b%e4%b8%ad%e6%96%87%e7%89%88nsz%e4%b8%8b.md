@@ -1,0 +1,13 @@
+---
+title: "switch《功夫：街头愤怒终极版 Kung Fury Street Rage &#8211; ULTIMATE EDITION》中文版nsz下载+1.4.4补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《功夫：街头愤怒终极版 Kung Fury Street Rage - ULTIMATE EDITION》中文版nsz下载!根据80年代经典动作电影《功之怒(Kung Fury)》改编的同名游戏，同电影一样，该作由于相当霸气，混合恶搞、B级、怀旧电影，涉及功夫、机器人、恐龙、雷神、维&hellip;"
+layout: post
+---
+
+ <p>　　switch《功夫：街头愤怒终极版 Kung Fury Street Rage - ULTIMATE EDITION》中文版nsz下载!根据80年代经典动作电影《功之怒(Kung Fury)》改编的同名游戏，同电影一样，该作由于相当霸气，混合恶搞、B级、怀旧电影，涉及功夫、机器人、恐龙、雷神、维京海盗、电子游戏、动作片、变种人元素。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=4437855&amp;bvid=BV1gs41167CF&amp;cid=7190402&amp;page=1" width="410"></iframe></p> <p>　　详细介绍</p> <p>　　根据80年代经典动作电影《功之怒(Kung Fury)》改编的同名游戏已经登陆Steam平台，同电影一样，该作由于相当霸气，混合恶搞、B级、怀旧电影，涉及功夫、机器人、恐龙、纳粹、雷神、维京海盗、电子游戏、动作片、变种人元素。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7a58441e3.webp" width="700" alt="switch《功夫：街头愤怒终极版 Kung Fury Street Rage - ULTIMATE EDITION》中文版nsz下载+1.4.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7a58aed3e.webp" width="700" alt="switch《功夫：街头愤怒终极版 Kung Fury Street Rage - ULTIMATE EDITION》中文版nsz下载+1.4.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7a5922001.webp" width="700" alt="switch《功夫：街头愤怒终极版 Kung Fury Street Rage - ULTIMATE EDITION》中文版nsz下载+1.4.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7a5994616.webp" width="700" alt="switch《功夫：街头愤怒终极版 Kung Fury Street Rage - ULTIMATE EDITION》中文版nsz下载+1.4.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7a5a0a3b9.webp" width="700" alt="switch《功夫：街头愤怒终极版 Kung Fury Street Rage - ULTIMATE EDITION》中文版nsz下载+1.4.4补丁" /></p></div> <p>　　游戏背景</p> <p>　　让自己沉浸前所未有的《KUNG FURY》情境之中，与主人公及其盟友们进入了一个新的冒险环境之中。游戏充满立体声音乐和丰富多彩的先进图形。与所选的角色及其团队一起，通过语音对话，在这款街机游戏中打败对手，赢得世纪之战。击败纳粹。行动起来!维护正义!</p> <p>　　游戏特色</p> <p>　　升级后的HT-3000游戏包括：</p> <p>　　* 新的游戏人物</p> <p>　　* 史诗故事中的终极高手对决</p> <p>　　* 原班演员配音</p> <p>　　* 您在上一款游戏中喜欢的所有好东西</p> <p>　　融合了独特的战斗模式：</p> <p>　　* BARBARIANNA</p> <p>　　* HACKERMAN</p> <p>　　* TRICERACOP</p> <p>　　* 当然还有KUNG FURY自己</p> <p><h4>下载地址(由网友<font color="red">gisyps</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124078/](https://lad.sfcrom.cn/2024/04/124078/)

@@ -1,0 +1,13 @@
+---
+title: "PC《死灵法师之剑 Sword of the Necromancer》英文版下载（v2.1b）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《死灵法师之剑 Sword of the Necromancer》英文版下载，这是一款Roguelike类型的动作冒险游戏，像素画风，以地牢探索为主要内容，游戏的世界观设定和战斗内容都很不错。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Grimorio of Games 　　游戏&hellip;"
+layout: post
+---
+
+ <p>　　PC《死灵法师之剑 Sword of the Necromancer》英文版下载，这是一款Roguelike类型的动作冒险游戏，像素画风，以地牢探索为主要内容，游戏的世界观设定和战斗内容都很不错。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=627704880&amp;bvid=BV1qt4y1e7o2&amp;cid=252433196&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66031fcdd010f.jpg" alt="PC《死灵法师之剑 Sword of the Necromancer》英文版下载（v2.1b）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66031fce40e47.jpg" alt="PC《死灵法师之剑 Sword of the Necromancer》英文版下载（v2.1b）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66031fceada45.jpg" alt="PC《死灵法师之剑 Sword of the Necromancer》英文版下载（v2.1b）" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Grimorio of Games</p> <p>　　游戏发行：JanduSoft S.L/Game Seer Ventures</p> <p>　　《死灵法师之剑(Sword of the Necromancer)》是一款带有Roguelike风格地牢探险类的角色扮演游戏。在游戏中你将扮演一名死灵法师，探索不同的地牢关卡，打开身亡与复生典礼，在求得专业知识与报仇的路面上逐渐沉浸于黑喑的死灵法力里。</p> <p>　　召集一支由怪物组成的小军队，给自己配备武器和遗物，并提升等级，以对付挡在你和目标之间的守护者。</p> <p>　　游戏特色</p> <p>　　将你的敌人变成盟友：使用死灵法师之剑复活被打败的怪物，让他们与你并肩作战。</p> <p>　　收集武器和遗物：由于程序化的武器生成系统，每件武器都与其他武器不同，赋予它们不同的效果和属性。</p> <p>　　全力以赴地战斗：使用各种武器和物品击败你的敌人，并在流畅的正面战斗系统中占据主导地位。</p> <p>　　提升等级：通过与敌人战斗来增强你的角色，升级你的数据。通过与召唤的怪物并肩作战来改善你的召唤怪物。</p> <p>　　死亡不是终点。每次尝试都会让你更接近死灵法师。你将失去所有装备的武器和怪物，但你将保留你在运行中达到的一半水平。</p> <p>　　了解真相：随着你在地牢中的前进，发现Tama和Koko的过去。</p> <p>　　本地合作游戏。使用 &quot;同人之瓶 &quot;创建一个可玩角色的副本，并与朋友在本地合作游戏中进行游戏。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 8/8.1/10</p> <p>　　处理器: 2.50 GHz</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: 128 MB</p> <p>　　DirectX 版本: 9.0c</p> <p>　　存储空间: 需要 800 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制Crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《死灵法师之剑 Sword of the Necromancer》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">838671048</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/42583/](https://lad.sfcrom.cn/2024/03/42583/)

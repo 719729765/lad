@@ -1,0 +1,13 @@
+---
+title: "switch《Pretty Girls Breakers》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《Pretty Girls Breakers》中文版下载，这是一款美少女主题的打砖块游戏，在经典打砖块玩法的基础上加入了解谜等元素，还有丰富多彩的剧情内容，喜欢休闲益智小游戏的玩家不要错过。 　　经典的破砖动作新体验，在《Pretty Girls Breakers》中将变得更可爱!在&hellip;"
+layout: post
+---
+
+ <p>　　switch《Pretty Girls Breakers》中文版下载，这是一款美少女主题的打砖块游戏，在经典打砖块玩法的基础上加入了解谜等元素，还有丰富多彩的剧情内容，喜欢休闲益智小游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=894435615&amp;bvid=BV1ZP4y1u7Ud&amp;cid=700166551&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe4d896ef.jpg" alt="switch《Pretty Girls Breakers》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe4e3849f.jpg" alt="switch《Pretty Girls Breakers》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe4ee2a4d.jpg" alt="switch《Pretty Girls Breakers》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe4f96f40.jpg" alt="switch《Pretty Girls Breakers》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe506b698.jpg" alt="switch《Pretty Girls Breakers》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　经典的破砖动作新体验，在《Pretty Girls Breakers》中将变得更可爱!在这款经典的街机风格动作解谜游戏中，扮演一名挥舞光束军刀的双尾战士。你必须精准地击打来球来摧毁你上方的方块图案，同时避免敌人的攻击并收集能量提升来占据上风!</p> <p>　　在 20 多个具有挑战性的关卡中，您需要适应新的方块和敌人类型，制定策略将它们从战场上清除掉，而不会失去所有的心或时间不够用!随着关卡的通关，你的女性同伴的服装会逐渐改变。如果您在战斗中取得成功，新的服装将被揭开并解锁，以便在迷人的更衣室模式中随时查看。你能把它们都收集起来吗?</p> <p>　　游戏特色</p> <p>　　&bull; 掌握超过 20 个独特的战斗阶段!</p> <p>　　&bull; 连锁成功的打击以获得速度和力量提升。</p> <p>　　&bull; 即时制定策略，粉碎不同类型的方块!</p> <p>　　&bull; 认识 7 个具有可爱动物特征的女性角色。</p> <p>　　&bull; 解锁新服装，在更衣室模式下随意观看!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe50c000b.png" width="564" alt="switch《Pretty Girls Breakers》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《Pretty Girls Breakers》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">重甲骑兵</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101425/](https://lad.sfcrom.cn/2024/04/101425/)

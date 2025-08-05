@@ -1,0 +1,13 @@
+---
+title: "PC 《库库斯：丢失的宠物 Kukoos Lost Pets》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC 《库库斯：丢失的宠物 Kukoos Lost Pets》中文版下载。这是一款3D的平台动作游戏，控制可爱的卡通小人来闯关，十分有趣的关卡等待玩家前来挑战，感兴趣的话一定不要错过哦。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Petit Fabrik 　　游戏发行：Modus G&hellip;"
+layout: post
+---
+
+ <p>　　PC 《库库斯：丢失的宠物 Kukoos Lost Pets》中文版下载。这是一款3D的平台动作游戏，控制可爱的卡通小人来闯关，十分有趣的关卡等待玩家前来挑战，感兴趣的话一定不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=295103405&amp;bvid=BV1tF411B77M&amp;cid=468546282&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d9896e88.jpg" alt="PC 《库库斯：丢失的宠物 Kukoos Lost Pets》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d9914d7e.jpg" alt="PC 《库库斯：丢失的宠物 Kukoos Lost Pets》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d997d141.jpg" alt="PC 《库库斯：丢失的宠物 Kukoos Lost Pets》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039d99db671.jpg" alt="PC 《库库斯：丢失的宠物 Kukoos Lost Pets》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Petit Fabrik</p> <p>　　游戏发行：Modus Games</p> <p>　　在这个惊人的3D平台游戏中发现库库斯的宇宙。探索神秘的世界，揭开神秘面纱，释放被洗脑的宠物。遇到伟大的人物，玩大量的新机械，疯狂的地方和有很多的乐趣!</p> <p>　　这个3D平台将玩家带到一个无限冒险的新世界，加入库库斯一家，进行一场轻松愉快的冒险，拯救被洗脑的宠物。走进库库树和它无限的大门，带你进入难以想象的危险和奇迹。</p> <p>　　扮演K或Kika，遇到许多友好的库库人，不是那么友好的海洋生物，并与5个不可思议的宠物联手，这将改变你的游戏，邀请你学习适应，释放新的力量和思考水平的方式。</p> <p>　　游戏特色</p> <p>　　扮演不同的角色。</p> <p>　　参观4个不同的世界，森林、古庙、超现代城市、美味的冰激凌山和古老闹鬼的比萨店+准备测试您的技能的特殊区域。</p> <p>　　在每一个世界里遇见不同的宠物，让它们免于洗脑。</p> <p>　　通过增加挑战级别击败5名老板。</p> <p>　　与5种不同的宠物联手，它们具有不同的游戏风格、优势和劣势。</p> <p>　　解决光难题和棘手的情况。</p> <p>　　找到所有隐藏的植物，成为秘密大师。</p> <p>　　收集硬币以解锁更多内容。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 8.1/10</p> <p>　　处理器: Intel Core i5 4570 @ 3.2 GHz / AMD FX - 8350</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: GeForce GTX 970 / Radeon RX 480</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《库库斯：丢失的宠物 Kukoos Lost Pets》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">笑圣恶魔</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52975/](https://lad.sfcrom.cn/2024/03/52975/)

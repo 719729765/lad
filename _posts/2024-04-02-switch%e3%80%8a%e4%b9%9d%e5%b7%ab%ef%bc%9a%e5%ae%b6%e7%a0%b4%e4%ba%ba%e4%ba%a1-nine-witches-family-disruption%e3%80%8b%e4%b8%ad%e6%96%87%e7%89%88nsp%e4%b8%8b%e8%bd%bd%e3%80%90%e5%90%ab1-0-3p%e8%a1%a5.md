@@ -1,0 +1,13 @@
+---
+title: "switch《九巫：家破人亡 Nine Witches: Family Disruption》中文版nsp下载【含1.0.3P补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　switch《九巫：家破人亡 Nine Witches: Family Disruption》中文版! 实机视频 　　二战期间，德军某只研究玄学的部队放出了一道古老的诅咒，超自然的问题自然需要超自然的方法解决。控制两位角色，走进架空历史，开启一段令人捧腹的冒险之旅，体验别具一格的原创故事(99.&hellip;"
+layout: post
+---
+
+ <p>　　switch《九巫：家破人亡 Nine Witches: Family Disruption》中文版!</p> <p style="text-align: center;"><strong><span style="font-size:18px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=713014001&amp;bvid=BV1wD4y197qC&amp;cid=263593154&amp;page=1" width="410"></iframe></p> <p>　　二战期间，德军某只研究玄学的部队放出了一道古老的诅咒，超自然的问题自然需要超自然的方法解决。控制两位角色，走进架空历史，开启一段令人捧腹的冒险之旅，体验别具一格的原创故事(99.9999%可以保证)</p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bebbe21e60.jpg" style="width: 460px; height: 215px;" alt="switch《九巫：家破人亡 Nine Witches: Family Disruption》中文版nsp下载【含1.0.3P补丁】" /></p> <p>　　【游戏介绍】</p> <p>　　1944 年 10 月，在一个挪威的乡村小镇 - 圣代镇 - 发生了怪事：一轮神秘暗月悬于天空，令居民们的心中产生了不确定之感。</p> <p>　　随着二战的不断推进，德意志第三帝国的一支秘密编队&ldquo;神秘-SS&rdquo;抵达了圣代镇，意图释放一道远古诅咒，迫切希望扭转战场颓势。</p> <p>　　一位四肢瘫痪，研究邪教的教授 Alexei Krakovitz 和他忠实的助手 Akiro Kagasawa 被派往挪威，身负秘密任务，揭晓背后的神秘，从纳粹的手中拯救世界。</p> <p>　　原创剧情，融汇荒诞黑色幽默，充满各色古怪角色、恶魔发明、谜题、邪教、灵媒、女巫、蠕虫、纳粹、神秘结社和一道远古诅咒。</p> <p>　　这是一场虚妄历险，您将在此为狂乱本身狂热不已!</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bebbe96109.jpg" alt="switch《九巫：家破人亡 Nine Witches: Family Disruption》中文版nsp下载【含1.0.3P补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bebbf0aed9.jpg" alt="switch《九巫：家破人亡 Nine Witches: Family Disruption》中文版nsp下载【含1.0.3P补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bebbf805ed.jpg" alt="switch《九巫：家破人亡 Nine Witches: Family Disruption》中文版nsp下载【含1.0.3P补丁】" /></td> </tr> </tbody> </table> <p>　　【游戏特点】</p> <p>　　&bull;真实独特的原创剧情</p> <p>　　&bull;带解谜要素的单人双角色动作冒险</p> <p>　　&bull;加入 Alexi Krakovitz 教授和他忠实的日本籍助手 Akiro Kagasawa 的行列，踏上共同抵抗纳粹的英雄远征</p> <p>　　&bull;复古像素风美工</p> <p>　　&bull;各色古怪角色</p> <p>　　&bull;访问挪威西北海岸上一座保守纳粹压迫的村庄 - 圣代镇</p> <p>　　&bull;与亡者交谈</p> <p><h4>下载地址(由网友<font color="red">ranchen</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/122277/](https://lad.sfcrom.cn/2024/04/122277/)

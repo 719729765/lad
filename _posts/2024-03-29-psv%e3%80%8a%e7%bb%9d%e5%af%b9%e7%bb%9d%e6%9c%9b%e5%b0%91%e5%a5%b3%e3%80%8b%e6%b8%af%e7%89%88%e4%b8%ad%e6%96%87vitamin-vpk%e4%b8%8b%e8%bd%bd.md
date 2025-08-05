@@ -1,0 +1,13 @@
+---
+title: "psv《绝对绝望少女》港版中文Vitamin vpk下载"
+date: 2024-03-29
+tags: []
+categories: ["PSV中文游戏"]
+excerpt: "　　psv《绝对绝望少女》港版中文Vitamin vpk下载，弹丸论破番外篇的外传游戏，和本篇不同本作是一块动作游戏，下面放出破解版下载，感兴趣的玩家不要错过哦。 　　游戏名称：Zettai Zetsubou Shoujo - Dangan-Ronpa - Another Episode 　　中文名&hellip;"
+layout: post
+---
+
+ <p>　　psv《绝对绝望少女》港版中文Vitamin vpk下载，弹丸论破番外篇的外传游戏，和本篇不同本作是一块动作游戏，下面放出破解版下载，感兴趣的玩家不要错过哦。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_66066c53c6dc3.png" width="539" alt="psv《绝对绝望少女》港版中文Vitamin vpk下载" /></p> <p>　　游戏名称：Zettai Zetsubou Shoujo - Dangan-Ronpa - Another Episode</p> <p>　　中文名称：绝对绝望少女 弹丸论破番外篇</p> <p>　　游戏版本：港版</p> <p>　　游戏类型：动作类</p> <p>　　游戏语言：中文</p> <p>　　制作公司：Spike Chunsoft</p> <p>　　发行公司：Spike Chunsoft</p> <p>　　发行日期：2015/07/24</p> <p>　　这款作品和系列传统不同，采用了类似射击游戏的玩法。本作战斗画面中会有基本的血量、迷魂枪能量残余量、弹的类型等，其中不同类型的弹还会影响到游戏过程中的解谜部分。玩家的血量如果为零之后受到攻击的话，就会进入&ldquo;绝望时间&rdquo;，只要在适当的时机按对QTE的话就能够复活，否则就会被吃掉导致GAME OVER了。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_66066c54e0998.png" width="429" alt="psv《绝对绝望少女》港版中文Vitamin vpk下载" /></p> <p><h4>下载地址(由网友<font color="red">年轮7xCCG</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/84924/](https://lad.sfcrom.cn/2024/03/84924/)

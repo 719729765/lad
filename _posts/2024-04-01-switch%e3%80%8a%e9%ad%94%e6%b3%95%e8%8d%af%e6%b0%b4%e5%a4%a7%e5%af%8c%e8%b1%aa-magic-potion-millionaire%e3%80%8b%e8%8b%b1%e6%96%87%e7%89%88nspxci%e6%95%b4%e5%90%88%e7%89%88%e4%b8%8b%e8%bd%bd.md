@@ -1,0 +1,13 @@
+---
+title: "switch《魔法药水大富豪  Magic Potion Millionaire》英文版nsp/xci整合版下载【含2.12补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《魔法药水大富豪 Magic Potion Millionaire》英文版下载，Magic Potion Millionaire是一款像素风格的游戏，结合了模拟经营和2D横版动作玩法，玩家要通过制作药水来发家致富。 　　游戏故事描述在小镇附近的森林中，有个女孩Pastel为了拯救弟弟&hellip;"
+layout: post
+---
+
+ <p>　　switch《魔法药水大富豪 Magic Potion Millionaire》英文版下载，Magic Potion Millionaire是一款像素风格的游戏，结合了模拟经营和2D横版动作玩法，玩家要通过制作药水来发家致富。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=670779981&amp;bvid=BV1Va4y1p77r&amp;cid=272600300&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8b859ddb4.jpg" alt="switch《魔法药水大富豪  Magic Potion Millionaire》英文版nsp/xci整合版下载【含2.12补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8b864ce1d.jpg" alt="switch《魔法药水大富豪  Magic Potion Millionaire》英文版nsp/xci整合版下载【含2.12补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8b8755e04.jpg" alt="switch《魔法药水大富豪  Magic Potion Millionaire》英文版nsp/xci整合版下载【含2.12补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8b880e00a.jpg" alt="switch《魔法药水大富豪  Magic Potion Millionaire》英文版nsp/xci整合版下载【含2.12补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8b88ad9e7.jpg" alt="switch《魔法药水大富豪  Magic Potion Millionaire》英文版nsp/xci整合版下载【含2.12补丁】" /></td> </tr> </tbody> </table> <p>　　游戏故事描述在小镇附近的森林中，有个女孩Pastel为了拯救弟弟当上魔法药师，开了魔法药水商店，后来因为附近没有其他替代，生意一直非常兴隆，结果Pastel有天突然说，「 一切都过得很好，我很喜欢做这行，因为没有其他对手!&rdquo;结果被一名看似怪异的客人听到了，对方突然说...&ldquo;听起来你想要个搭配，是吗 ?&rdquo;</p> <p>　　就在一个月后，镇上新开了一家魔法药水商店，原本Pastel的许多客人都被新商店所吸引，她开始反省自己过往的傲慢心态，并决定从头开始努力。</p> <p>　　游戏内容</p> <p>　　1、进入地下城收集材料!</p> <p>　　进入地下城，并用近战攻击、各种范围攻击和魔法药剂征服程序生成的地下城。</p> <p>　　你可以用从地下城里的怪物上获取材料制造药剂。</p> <p>　　药剂不仅仅可以用来治疗，你也能制造其它的种类，比如爆炸药剂(炸弹)。</p> <p>　　2、酿造药剂来赚钱!</p> <p>　　使用你从地下城收集到的材料，制造客户订购的药剂。</p> <p>　　你的药剂商店有很多订单要完成，有很多钱要赚。</p> <p>　　3、购买道具，变得更强!</p> <p>　　你获取的黄金有很多用处。</p> <p>　　购买装备提升属性，购买配方获取更多药剂，寻找新的地下城来探索，等等</p> <p>　　这些一定会帮你赚更多的钱!</p> <p><h4>下载地址(由网友<font color="red">lin11218</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111058/](https://lad.sfcrom.cn/2024/04/111058/)

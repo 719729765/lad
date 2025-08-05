@@ -1,0 +1,13 @@
+---
+title: "[XBOX 360]《战争机器：审判（Gears of War：Judgment）》英文版 下载"
+date: 2024-03-30
+tags: []
+categories: ["xbox360英日游戏"]
+excerpt: "　　[XBOX 360]《战争机器：审判(Gears of War：Judgment)》英文版 下载是一款第三人称射击类(TPS)游戏，超大的世界观。 　　游戏名称：战争机器：审判 　　英文名称：Gears of War：Judgment 　　游戏类型：第三人称射击类(TPS)游戏 　　游戏制作：E&hellip;"
+layout: post
+---
+
+ <p>　　[XBOX 360]《战争机器：审判(Gears of War：Judgment)》英文版 下载是一款第三人称射击类(TPS)游戏，超大的世界观。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240330_6607d7744562c.webp" width="887" alt="[XBOX 360]《战争机器：审判（Gears of War：Judgment）》英文版 下载" /></p> <p>　　游戏名称：战争机器：审判</p> <p>　　英文名称：Gears of War：Judgment</p> <p>　　游戏类型：第三人称射击类(TPS)游戏</p> <p>　　游戏制作：Epic Games、People Can Fly</p> <p>　　游戏发行：Microsoft Studio</p> <p>　　游戏平台：Xbox360</p> <p>　　发售时间：2013年3月19日</p> <p>　　官方网站：http://gearsofwar.com/</p> <p>　　游戏介绍</p> <p>　　战争机器：审判》由Epic Games、People Can Fly制作，Microsoft Studio发行，是专为终极《战争机器》粉丝打造的典藏级巨献，全新设计架构起关键性的《战争机器》新篇章，更扣人心弦、更令玩</p> <p>　　家血脉喷张。</p> <p>　　创意鬼才Tom Bissell与RobAuten联手打造惊心动魄的惊险剧情，玩家首度见证事变日</p> <p>　　《战争机器：审判》全新故事由Tom Bissell与RobAuten共同操刀，本身就是超级玩家的Tom Bissell曾获美国文学奖The Rome Prize和古根汉学术奖助，RobAuten则是跨电影及电玩界，不仅是许多大作的</p> <p>　　游戏监制，亦负责过&ldquo;阿凡达&rdquo;以及&ldquo;异形&rdquo;等经典电影的创意设计。由两位鬼才带来的《战争机器：审判》故事采用倒叙手法，将带领玩家来到《战争机器》时空最重大的灾变现场&ldquo;事变日&rdquo;(Emergence</p> <p>　　Day)，揭开许多《战争机器》故事轴当中的关键真相，是众多《战争机器》粉丝绝不能错过的重要环节。</p> <p>　　《战争机器：审判》将带来最具吸引力的战役，包括全新的角色、武器、敌人、场景，以及独特的多人对战体验，特别是在战役模式与多人连线模式中推出的智能重生系统(Smart Spawn System，简称S3)</p> <p>　　让每一场对战中的敌人都会有不同的类型、时机与地点的变化，玩家绝不能有一刻松懈。而目前已公布的以兵种为基础的全新&ldquo;全面攻佔&rdquo;与&ldquo;存活战&rdquo;模式，则重新定义了&ldquo;战争机器&rdquo;合作模式的乐趣，是</p> <p>　　喜爱《战争机器》粉丝们所从未体验过、既紧张又刺激的战斗。</p> <p><h4>下载地址(由网友<font color="red">m5555022</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/92069/](https://lad.sfcrom.cn/2024/03/92069/)

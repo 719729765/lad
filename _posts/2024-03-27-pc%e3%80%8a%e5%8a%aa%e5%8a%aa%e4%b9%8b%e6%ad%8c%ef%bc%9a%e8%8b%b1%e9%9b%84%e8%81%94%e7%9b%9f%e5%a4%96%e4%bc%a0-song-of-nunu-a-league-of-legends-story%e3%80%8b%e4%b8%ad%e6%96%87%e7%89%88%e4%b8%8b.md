@@ -1,0 +1,13 @@
+---
+title: "PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载！这是一款单人冒险游戏，玩家将扮演努努，一个寻找他失踪母亲的小男孩和雪人朋友挖掘深埋于冻原之下的奥秘、神话和传说，并一一解开激励人心的剧情难题。 　　在这个单人冒险中，冒险进入&hellip;"
+layout: post
+---
+
+ <p>PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载！这是一款单人冒险游戏，玩家将扮演努努，一个寻找他失踪母亲的小男孩和雪人朋友挖掘深埋于冻原之下的奥秘、神话和传说，并一一解开激励人心的剧情难题。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=617667623&amp;bvid=BV1Dh4y1K7Hz&amp;cid=1244972039&amp;p=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc837a783.webp" alt="PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc83e0599.webp" alt="PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc8447dbf.webp" alt="PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc849a79e.webp" alt="PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bc8502fbb.webp" alt="PC《努努之歌：英雄联盟外传 (Song of Nunu: A League of Legends Story)》中文版下载" /></td> </tr> </tbody> </table> <p>　　在这个单人冒险中，冒险进入田园诗般的但危险的弗雷尔约德世界，扮演努努，一个寻找他失踪母亲的小男孩。与你最好的朋友，一个名叫Willump的聪明而顽皮的雪人一起挖掘深埋在冰冻苔原中的秘密、神话和传说，一次一个谜题展开一个鼓舞人心的故事。</p> <p>　　由RiME背后的工作室龙舌兰酒工厂开发，《努努之歌：英雄联盟故事&trade;》邀请新老玩家从全新的视角体验英雄联盟宇宙。</p> <p>　　主要特点</p> <p>　　探索一个非凡的世界 &mdash; 发现弗雷峡湾的惊人奇观(和危险)。进入一个神奇的世界，在穿越冰冻的苔原时发掘其从未见过的奇迹。 揭开一个情感故事 &mdash; 展开一个关于在霜冻中建立的希望、失落和友谊的迷人故事。当您与努努和威尔隆普一起旅行时，发现弗雷尔峡湾最精心保护的秘密背后的真相。 发现新的传奇 - 英雄联盟的世界等你去探索!新手和老玩家都可以第一次近距离体验弗雷尔峡湾的世界。</p> <p><h4>下载地址(由网友<font color="red">czjacky</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51696/](https://lad.sfcrom.cn/2024/03/51696/)

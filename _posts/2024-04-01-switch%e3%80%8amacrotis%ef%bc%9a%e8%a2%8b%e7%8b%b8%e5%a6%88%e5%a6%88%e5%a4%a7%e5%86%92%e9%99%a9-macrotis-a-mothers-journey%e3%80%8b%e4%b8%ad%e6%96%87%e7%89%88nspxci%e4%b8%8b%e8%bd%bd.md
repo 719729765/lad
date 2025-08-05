@@ -1,0 +1,13 @@
+---
+title: "switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&#039;s Journey》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　【内含原版+TX专用魔改版】switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&#039;s Journey》中文版下载，这是一款童画般风格的动作冒险游戏，玩家要帮助袋狸妈妈找到她的孩子。 　　体验一场充满挑战的奇幻之旅&hellip; 　　在游戏里，你将成为袋狸妈&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用魔改版】switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&#39;s Journey》中文版下载，这是一款童画般风格的动作冒险游戏，玩家要帮助袋狸妈妈找到她的孩子。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=842413441&amp;bvid=BV1c54y1C7Yz&amp;cid=247283394&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-26/45ef750d02939d14ea63f1f2a698b1f5.jpg" alt="switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&amp;#039;s Journey》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-26/57329035fc7889971228f299f9964ab1.jpg" alt="switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&amp;#039;s Journey》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-26/f1074009b82ff666c76ab0c777f12b20.jpg" alt="switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&amp;#039;s Journey》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-26/fd56ca84e254ad5f66a54779c08cd5eb.jpg" alt="switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&amp;#039;s Journey》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/08-26/8b225a92d04c5b4292a9a126562e8695.jpg" alt="switch《Macrotis：袋狸妈妈大冒险 Macrotis A Mother&amp;#039;s Journey》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　体验一场充满挑战的奇幻之旅&hellip;</p> <p>　　在游戏里，你将成为袋狸妈妈，踏上这场令人心潮澎湃的冒险之旅。一场倾盆的大雨带来了泛滥的洪水，将你和宝宝们冲散了，雨水还是不停的落下。你不顾一切的要寻回自己的宝贝们：跳跃、攀爬、用牙齿在地下世界啃出一条生路。这就是《Macrotis：袋狸妈妈大冒险》，2.5D解谜闯关游戏。你将在这个美若蓬莱仙境，却险象重生的世界中寻找线索，躲避致命机关。</p> <p>　　在这场冒险的旅行中，你会逐渐发现一些超自然的能力，它们将助你一臂之力。你能帮助这位绝望的母亲营救自己的可爱的宝宝们嘛?</p> <p>　　游戏特色</p> <p>　　■ 体验一场几十小时的冒险，充满引人深思的解谜</p> <p>　　■ 加入一场引人入胜、令人心潮澎湃的冒险</p> <p>　　■ 一路收获的魔法将助你一臂之力，穿墙、越脊、飞檐走壁、用魔法移动障碍</p> <p>　　■ 一路用牙齿和利爪过关斩将</p> <p>　　■ 将物理常识为己所用，巧妙的越过水域的阻挡</p> <p>　　■ 感受风景秀美却危机四伏的世界</p> <p>　　■ 尽情享受游戏美妙的背景音乐</p> <p>　　■ 通过积累精美的藏品，掌握Macrotis世界的奇妙传说</p> <p><h4>下载地址(由网友<font color="red">qqqqq77878878</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101426/](https://lad.sfcrom.cn/2024/04/101426/)

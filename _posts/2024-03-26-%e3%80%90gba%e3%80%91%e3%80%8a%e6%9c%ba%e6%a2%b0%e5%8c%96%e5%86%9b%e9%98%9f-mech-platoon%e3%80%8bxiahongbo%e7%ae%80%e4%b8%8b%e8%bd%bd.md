@@ -1,0 +1,13 @@
+---
+title: "【GBA】《机械化军队 &#8211; Mech Platoon》[Xiahongbo](简)下载"
+date: 2024-03-26
+tags: []
+categories: ["GBA游戏"]
+excerpt: "　　【GBA】《机械化军队 - Mech Platoon》[Xiahongbo](简)下载，此作中的各个种族都有其相对应的能力，不同的种族，战斗路线也不同，登场的兵种会变化，有时连游戏胜利失败条件也全变了，大大增强了耐玩性。 　　机械化军队-MechPlatoon 　　MechPlatoon(以下简&hellip;"
+layout: post
+---
+
+ <p>　　【GBA】《机械化军队 - Mech Platoon》[Xiahongbo](简)下载，此作中的各个种族都有其相对应的能力，不同的种族，战斗路线也不同，登场的兵种会变化，有时连游戏胜利失败条件也全变了，大大增强了耐玩性。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6602641426129.jpg" width="550" alt="【GBA】《机械化军队 - Mech Platoon》[Xiahongbo](简)下载" /></p> <p>　　机械化军队-MechPlatoon</p> <p>　　MechPlatoon(以下简称MP)是非常出色的。MP的装备收集系统非常成功，大大增强了游戏性。登场的独特兵种数目多达53种，各类装备52个，大小战斗31场。还提供不同的路线可供选择。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66026414992e4.jpg" width="550" alt="【GBA】《机械化军队 - Mech Platoon》[Xiahongbo](简)下载" /></p> <p><h4>下载地址(由网友<font color="red">Sayofa</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/36361/](https://lad.sfcrom.cn/2024/03/36361/)

@@ -1,0 +1,13 @@
+---
+title: "switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】"
+date: 2024-04-04
+tags: []
+categories: ["Switch魔改版"]
+excerpt: "　　switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】！switch《阿玛拉王国：惩罚重制版》是一款角色扮演类游戏，作为第一位从死亡之中复活的战士，拯救被恶性战争所摧毁的世界，并控制永生的钥匙。 　　上市时间：&hellip;"
+layout: post
+---
+
+ <p>　　switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】！switch《阿玛拉王国：惩罚重制版》是一款角色扮演类游戏，作为第一位从死亡之中复活的战士，拯救被恶性战争所摧毁的世界，并控制永生的钥匙。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=969590388&amp;bvid=BV18p4y1e7XB&amp;cid=236311106&amp;page=1" width="410"></iframe></p> <hr /> <p>　　上市时间：2021-03-16</p> <p>　　游戏类型：角色扮演</p> <p>　　官方中文：支持</p> <p>　　制作发行：KAIKO,Big Huge Games,38 Studios/THQ Nordic</p> <hr /> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ece29f1842.webp" width="500" alt="switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ece2a87b65.webp" width="500" alt="switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】" /></p> <p>　　《阿玛拉王国：惩罚重制版》经过重新制作，展现给玩家更加令人惊叹的视觉效果以及精致的游戏玩法，Re-Reckoning为玩家在庞大的游戏世界中提供了激烈且可定制的RPG战斗。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ece2b19e2e.webp" style="border-width: 0px; border-style: solid; height: 281px; width: 500px;" alt="switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ece2b73bbf.webp" alt="switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ece2bcfe8f.webp" alt="switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ece2c3bf2a.webp" alt="switch《阿玛拉王国：惩罚重制版 Kingdoms of Amalur Reckoning》中文版nsz下载【1.0.7补丁+1DLC】" /></td> </tr> </tbody> </table> <p><h4>下载地址(由网友<font color="red">lihao08</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/129659/](https://lad.sfcrom.cn/2024/04/129659/)

@@ -1,0 +1,13 @@
+---
+title: "PC《神界：原罪2 终极版 Divinity: Original Sin 2 &#8211; Definitive Edition》中文版下载【v3.6.117.3735终极版|集成全DLC】"
+date: 2024-03-27
+tags: []
+categories: ["2020年游戏"]
+excerpt: "　　神界：原罪2终极版 Divinity: Original Sin 2 PC免安装中文版下载。来自《博德之门3》的开发团队，倍受好评的本作提升了RPG业界标杆。召集你的队伍，驾驭富有深度和挑战性的战斗。以最多四人的队伍进行冒险 - 但是请记住，只有其中一人才能成神。 　　&ldquo;在这个诸神已&hellip;"
+layout: post
+---
+
+ <p>　　神界：原罪2终极版 Divinity: Original Sin 2 PC免安装中文版下载。来自《博德之门3》的开发团队，倍受好评的本作提升了RPG业界标杆。召集你的队伍，驾驭富有深度和挑战性的战斗。以最多四人的队伍进行冒险 - 但是请记住，只有其中一人才能成神。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=20507738&amp;bvid=BV18W411W7JW&amp;cid=33532823&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660444992ce1f.webp" width="600" alt="PC《神界：原罪2 终极版 Divinity: Original Sin 2 - Definitive Edition》中文版下载【v3.6.117.3735终极版|集成全DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660444999fcd8.webp" width="600" alt="PC《神界：原罪2 终极版 Divinity: Original Sin 2 - Definitive Edition》中文版下载【v3.6.117.3735终极版|集成全DLC】" /></p> <p>　　&ldquo;在这个诸神已经逝去的世界，你扮演一个使用禁忌魔法的地下党，被隔离在Joy Fort的殖民监狱里。神圣教团想&rdquo;治疗&ldquo;你身上的黑魔法。不过，教团有不可告人的秘密。这个秘密威胁着所有人。如果这个世界保持无神化，混乱会统治一切，现在是时候结束一切，建立新的神界。</p> <p>　　游戏特色</p> <p>　　选择你的种族和起源。从6个预设起源的角色中，根据他们独特的背景故事和人生目标进行挑选。或是创造你自己的角色：人类，蜥蜴人，精灵，矮人，亡灵等等。你所做出的任何选择，都会影响游戏的进程。</p> <p>　　毫无限制的探索与实验。你可以去任何地方，与任何人交谈，与一切事物互动!杀掉游戏中的NPC并不会终止你前进的道路，某些鬼魂还可能隐藏着一两个小秘密&hellip;在这个神奇的世界里，你甚至可以和每一只动物进行交流!</p> <p>　　新一代的回合制战斗。你可以组合各种元素，让你的对手尝尝它们的厉害，你可以利用高地优势来创造有利的格局。你可以精通12门技能学派的总计200多种技能。但要小心&mdash;&mdash;游戏中的AI 2.0版是我们迄今为止最狡黠的发明。</p> <p>　　支持最多4名玩家联机或是本地协作。你可以和你的朋友们在线联机，或在同一台电脑上用手柄分屏游玩。本游戏支持各种手柄类型。</p> <p>　　游戏大师模式：拓展你的冒险，提高游戏体验。你可以用本模式来制作独属于你自己的故事，也可以从Steam创意工坊下载由其他玩家制作的战役或是插件。</p> <p><h4>下载地址(由网友<font color="red">傻根</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/61947/](https://lad.sfcrom.cn/2024/03/61947/)

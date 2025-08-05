@@ -1,0 +1,13 @@
+---
+title: "switch《毒枭：卡特尔崛起 Narcos: Rise of the Cartels》中文版xci整合版下载【含1.04补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　switch《毒枭：卡特尔崛起》中文版下载。一款残酷的回合制动作策略游戏。游戏根据知名连续剧《毒枭》改编，游戏记录了二十世纪八十年代哥伦比亚大毒枭巴勃罗&middot;埃斯科巴传奇的一生。 　　欢迎来到哥伦比亚，20世纪80年代&mdash;&mdash;El Patr&oacute;n的帝国之&hellip;"
+layout: post
+---
+
+ <p>　　switch《毒枭：卡特尔崛起》中文版下载。一款残酷的回合制动作策略游戏。游戏根据知名连续剧《毒枭》改编，游戏记录了二十世纪八十年代哥伦比亚大毒枭巴勃罗&middot;埃斯科巴传奇的一生。</p> <p><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=68609187&amp;cid=118907693&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be4a175c73.webp" width="576" alt="switch《毒枭：卡特尔崛起 Narcos: Rise of the Cartels》中文版xci整合版下载【含1.04补丁】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be4a1ddb7f.webp" width="576" alt="switch《毒枭：卡特尔崛起 Narcos: Rise of the Cartels》中文版xci整合版下载【含1.04补丁】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660be4a24e7b7.webp" width="576" alt="switch《毒枭：卡特尔崛起 Narcos: Rise of the Cartels》中文版xci整合版下载【含1.04补丁】" /></p> <p>　　欢迎来到哥伦比亚，20世纪80年代&mdash;&mdash;El Patr&oacute;n的帝国之火已经点燃，它跨越国界的影响力和扩张丝毫未减。恶势力和腐败肆虐盛行;警察、卫兵、政客和在此之间游走的人都落入了麦德林集团的口袋，经过多年的产品流入，美国终于注意到了这一点。</p> <p>　　《毒枭：卡特尔崛起》讲述了Netflix热播连续剧的故事，El Patr&oacute;n兴亡成败的一生。选择你的阵营，是与禁毒署结盟，还是与毒枭们结盟。探索剧中那些高辨识度的地点，并且参与改变世界的关键事件和战斗，这些事件和战斗将定义并改变禁毒战争。</p> <p>　　用不同的职业角色组成团队，加入领导角色，提升技能，参加残酷的回合制战斗，所有行动都会产生后果。</p> <p>　　要钱还是要子弹?</p> <p>　　游戏特色</p> <p>　　基于NETFLIX热播连续剧</p> <p>　　真实性是《毒枭》游戏体验的核心，可以控制和扮演电视剧中El Mexicano、Murphy、Pena、Primo等等些高辨识度和标志性的角色。每个&ldquo;领导&rdquo;角色都具备独特的游戏能力和额外收入，可以帮助扭转战争的局势。</p> <p>　　快节奏的策略战斗</p> <p>　　《毒枭：卡特尔崛起》将回合制策略战斗提升到全新的水平，各单位可以在一个回合内独自单次移动或多次移动，这意味着速度总是在加快。明智地计划行动，但要谨慎，因为任何行动都会产生后果。</p> <p>　　每一场战争都有两个阵营</p> <p>　　两场截然不同的战役&mdash;&mdash;在《毒枭：卡特尔崛起》里，你可以作为对立双方分别体验这场战争。选择站在禁毒署一边，与Steve Murphy并肩打击毒品帝国;或者选择站在毒枭一边，在El Patr&oacute;n的领导下建立、发展和扩张毒品帝国。</p> <p>　　还击并给出致命一击</p> <p>　　创新的游戏机制使这款回合制游戏充满新鲜感，你能够以第三人视角控制你的单位，以便直接与敌人交战，让你有机会在最佳时机制造致命伤害。</p> <p>　　这款游戏就为大家介绍到这里了，感兴趣的话大家不妨来体验一下吧</p> <p><h4>下载地址(由网友<font color="red">nick4wd</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/121915/](https://lad.sfcrom.cn/2024/04/121915/)

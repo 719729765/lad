@@ -1,0 +1,13 @@
+---
+title: "switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版1.7补丁+4DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版下载，这是一款融合了音游玩法的2D跑酷游戏，以英雄联盟中的角色为主角，感兴趣的玩家不要错过。 　　游戏介绍 　　在这款快节奏音乐节拍跑酷游戏中，每个行动都会触发爆炸反&hellip;"
+layout: post
+---
+
+ <p>　　switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版下载，这是一款融合了音游玩法的2D跑酷游戏，以英雄联盟中的角色为主角，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=719085569&amp;bvid=BV18Q4y1m7Rn&amp;cid=439519596&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153edd3e812.jpg" alt="switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版1.7补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153edda85a1.jpg" alt="switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版1.7补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153ede24dd7.jpg" alt="switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版1.7补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153ede97e3f.jpg" alt="switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版1.7补丁+4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153edf0fc1c.jpg" alt="switch《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版1.7补丁+4DLC下载" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　在这款快节奏音乐节拍跑酷游戏中，每个行动都会触发爆炸反应，混乱没有太多，只有更多!扮演约德尔海克斯爆破专家吉格斯，一路炸过皮尔特沃夫的大街小巷。</p> <p>　　跟随音乐节拍，爆破、弹跳、飞跃，躲避障碍物、消灭敌人、点燃引信，造成最大混乱!躲避扫兴鬼黑默丁格的追击，造成无穷音乐混乱，完成自己的使命&mdash;&mdash;制造史上最伟大的巨型炸弹!</p> <p>　　使用自由炸欢天系统，即兴加入额外爆炸，获取额外分数&hellip;&hellip;小心别被扫兴的家伙追上，让他们看看自己错过了多少乐趣!</p> <p>　　游戏特色</p> <p>　　唤醒你的音乐细胞</p> <p>　　跟随音乐节拍，透出炸弹、飞跃障碍，躲避敌人，用疯狂音乐点缀全城!</p> <p>　　自由炸欢天</p> <p>　　喜欢即兴发挥?使用自由炸欢天系统，利用提示外时机，创造属于你自己的混乱。更多爆炸，更多得分!</p> <p>　　视觉盛宴</p> <p>　　一路穿越充满魔法与科学的皮尔特沃夫，将一切点燃!亲眼见证自己随着节奏引发爆炸，组成令人难忘的爆破演出!</p> <p>&nbsp; &nbsp; &nbsp;&nbsp;以上内容就是小编为大家带来的《海克斯炸欢天：英雄联盟外传 Hextech Mayhem A League of Legends Story》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">1281947898</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143853/](https://lad.sfcrom.cn/2024/04/143853/)

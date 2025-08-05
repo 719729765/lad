@@ -1,0 +1,13 @@
+---
+title: "PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载!广受好评的动作冒险游戏的续集。体验华丽的全新第三人称 3D 视角，开启一段史诗般的旅程，揭开 1000 年前发生的神秘事件。 　　这次您不是孤军奋战 　　您不会独自进行这段征&hellip;"
+layout: post
+---
+
+ <p>　　PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载!广受好评的动作冒险游戏的续集。体验华丽的全新第三人称 3D 视角，开启一段史诗般的旅程，揭开 1000 年前发生的神秘事件。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=744373393&amp;bvid=BV1nk4y1g76q&amp;cid=1220326810&amp;page=1" width="410"></iframe></p> <p>　　这次您不是孤军奋战</p> <p>　　您不会独自进行这段征程。特兰，阿卡迪亚领导人阿基米德的孙女，还有詹，一台使用古代武士武器的神秘机器人，会加入您的队伍，并与您共同抵御魅摩罗斯的黑暗军队。情境相关的指令会让您指挥这些盟友参加战斗，或让他们帮您解开游戏中最巧妙的谜题!</p> <p>　　战斗、解谜、探索</p> <p>　　更大，更好，还充满了新的特色&mdash;&mdash;《Oceanhorn 2》不仅是市面上视觉效果最棒的冒险游戏，但它还站在经典电子游戏的肩膀上，构建了一种独特的体验。收集强大的物品，使用魔法枪，解开古代神秘的谜题，并探索阿卡迪亚和其领近王国所提供的一切。接受挑战并成为真正的英雄。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5bd4d0eb.webp" width="700" alt="PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5bdb8ac4.webp" width="700" alt="PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5be2c0aa.webp" width="700" alt="PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5be8b29e.webp" width="700" alt="PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5bf04eea.webp" width="700" alt="PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5bf72a73.webp" width="700" alt="PC《海之号角2：失落王国的骑士 Oceanhorn 2 Knights of the Lost Realm》中文版下载" /></p></div> <p>　　完整的体验</p> <p>　　此版本包括所有核心品质和内容更新。</p> <p>　　特色</p> <p>　　一款主线任务时长20小时以上的史诗级角色扮演游戏</p> <p>　　大量的boss战，挑战您的反应能力和战斗技巧</p> <p>　　数十个带有丰厚奖励的支线任务</p> <p>　　解开巧妙的谜题，探索神秘的地牢</p> <p>　　手工绘制的美丽图像，描绘了一个传说和阴谋的世界</p> <p><h4>下载地址(由网友<font color="red">dahei666</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53758/](https://lad.sfcrom.cn/2024/03/53758/)

@@ -1,0 +1,13 @@
+---
+title: "麦克斯与混沌之书 Max and the Book of Chaos PC英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　麦克斯与混沌之书 Max and the Book of Chaos PC英文版下载。一款具有奔跑，射击和射击元素的街机2D动作游戏，具有强烈的街机感觉。 一个将掌握世界命运的孩子。 将不得不面对这场灾难浪潮，拯救世界并释放您的好友。 　　故事发生在一座古老的城堡中，该城堡已成为暑期学校。但是城&hellip;"
+layout: post
+---
+
+ <p>　　麦克斯与混沌之书 Max and the Book of Chaos PC英文版下载。一款具有奔跑，射击和射击元素的街机2D动作游戏，具有强烈的街机感觉。 一个将掌握世界命运的孩子。 将不得不面对这场灾难浪潮，拯救世界并释放您的好友。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=841460238&amp;bvid=BV1T54y1B7zR&amp;cid=215859273&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2020/08-06/de1cdf21d63aa7d3e8676075c37c29bb.jpg" width="600" alt="麦克斯与混沌之书 Max and the Book of Chaos PC英文版下载" /></p> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2020/08-06/464970ae40b784301ace714798d3d1fd.jpg" width="600" alt="麦克斯与混沌之书 Max and the Book of Chaos PC英文版下载" /></p> <p>　　故事发生在一座古老的城堡中，该城堡已成为暑期学校。但是城堡掩藏了很多秘密。一本具有传奇色彩的老书，可以打开时空之间的门户。这本书充满了暗物质的力量，隐藏了数千年。但是现在有人释放了力量。门户网站已经打开，成群的陌生，有趣和混乱的敌人入侵了我们的世界。是的，Max Racoon是我们唯一真正的希望。</p> <p>　　游戏内容</p> <p>　　游戏发生在封闭的阶段。每个阶段都有6个难度级别，从低到高。因此，我们为休闲和轻松的体验提供了等级，为追求挑战的铁杆玩家提供了其他等级。</p> <p>　　关卡主要目的是要在一定时间内生存以抵抗敌人的袭击。此外，玩家必须营救锁在监狱中的最大数量的朋友。玩家拯救的朋友越多，他获得的星星就越多。星星解锁新的阶段和最终的老板。此外，通过杀死敌人，玩家将获得可用于购买装备，能力和超酷物品的硬币。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 / 8 / 10</p> <p>　　处理器: 3.0 GHz Dual Core CPU or better</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: GPU with at least 1GB of VRAM or better</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">fpjofpjo</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41694/](https://lad.sfcrom.cn/2024/03/41694/)

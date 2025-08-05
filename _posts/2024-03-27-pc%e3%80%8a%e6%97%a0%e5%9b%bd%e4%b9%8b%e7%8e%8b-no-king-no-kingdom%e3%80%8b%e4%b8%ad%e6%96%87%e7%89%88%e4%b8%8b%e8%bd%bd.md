@@ -1,0 +1,13 @@
+---
+title: "PC《无国之王 No King No Kingdom》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《无国之王 No King No Kingdom》中文版下载，这是一款即时策略游戏，拥有第一人称视角的玩法，玩家在一个魔幻的世界中，带领你的士兵和神兽进行战斗，对这款游戏感兴趣的玩家不要错过。 　　游戏类型：策略类(SLG)游戏 　　游戏制作：Fullmetal Developer 　　游戏&hellip;"
+layout: post
+---
+
+ <p>　　PC《无国之王 No King No Kingdom》中文版下载，这是一款即时策略游戏，拥有第一人称视角的玩法，玩家在一个魔幻的世界中，带领你的士兵和神兽进行战斗，对这款游戏感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=937464612&amp;bvid=BV1cT4y1i7wa&amp;cid=554951717&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cd90440c.jpg" alt="PC《无国之王 No King No Kingdom》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cd969ab0.jpg" alt="PC《无国之王 No King No Kingdom》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cd9c6ba1.jpg" alt="PC《无国之王 No King No Kingdom》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039cda2ca13.jpg" alt="PC《无国之王 No King No Kingdom》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：策略类(SLG)游戏</p> <p>　　游戏制作：Fullmetal Developer</p> <p>　　游戏发行：Fullmetal Developer</p> <p>　　《No King No Kingdom》是一款第一人称视角的策略游戏。骑飞龙!指挥农民!建城镇!征兵!驯服神兽!和士兵并肩战斗，拿起你的剑去打boss吧!</p> <p>　　游戏特色</p> <p>　　第一人称即时策略游戏&mdash;&mdash;对游戏中的每一个人都有直接控制权。</p> <p>　　基地建筑&mdash;&mdash;建造墙壁，塔楼，农场，营房等。</p> <p>　　可在全球范围内建设你的王国&mdash;&mdash;建设村庄、开矿、伐木厂、种植园等。</p> <p>　　完全实时&mdash;&mdash;当地和全球时间都从不停止。</p> <p>　　可用沙盒模式中的选项生成独一无二的地图。</p> <p>　　雇佣人口，升级平台。</p> <p>　　可与各种英勇善战的群族或boss一较高下。</p> <p>　　可以骑龙或大象。</p> <p>　　收集各种神器解锁不可思议的力量。</p> <p>　　可以驯化各种生物，像泥人、蜘蛛、蛇。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 or newer. (32x or 64x)</p> <p>　　处理器: Dual core from Intel or AMD at 2.3 GHz</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: nVidia GeForce 8600/9600GT, ATI/AMD Radeon HD2600/3600</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　附注事项: Work in progress: new features may raise the bar, optimizations may lower the bar</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《无国之王 No King No Kingdom》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">13969328235</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52311/](https://lad.sfcrom.cn/2024/03/52311/)

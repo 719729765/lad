@@ -1,0 +1,13 @@
+---
+title: "PC《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版下载（Beta v2）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版下载，这是一款冒险解谜类玩法的游戏，游戏为玩家带来了很有恐怖感的冒险，许多神秘的内容等待你来探索，感兴趣的话不要错过哦。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Andrew Quist 　&hellip;"
+layout: post
+---
+
+ <p>　　PC《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版下载，这是一款冒险解谜类玩法的游戏，游戏为玩家带来了很有恐怖感的冒险，许多神秘的内容等待你来探索，感兴趣的话不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=978206164&amp;bvid=BV1K44y1L7G6&amp;cid=484320050&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347f9899a3.jpg" alt="PC《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版下载（Beta v2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347f9edca2.jpg" alt="PC《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版下载（Beta v2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347fab378c.jpg" alt="PC《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版下载（Beta v2）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660347fb27169.jpg" alt="PC《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版下载（Beta v2）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Andrew Quist</p> <p>　　游戏发行：Andrew Quist</p> <p>　　一个关于边缘空间的简短的大气恐怖游戏。逃离一个地下街区的控制，这个地下街区既让人感到舒适又让人不安。如果你曾经探索过一个死气沉沉的商场，一个被拍卖的游泳池，或者一个晚上的学校，你可能已经知道在Anemoiapolis是什么感觉。</p> <p>　　游戏介绍</p> <p>　　遇到</p> <p>　　你掉进了一个超现实的闹鬼的地下社区。发现它的起源并带着你的生命和理智逃离。</p> <p>　　观察</p> <p>　　还记得你在工作场所或学校发现的走廊吗?你之前没有意识到的那个。没有人去过那里，它没有窗户，而且似乎没有任何目的。灯可能亮着，地板通常很干净，但它是为任何人而存在的。</p> <p>　　这个过渡的地方是 Anemoiapolis 的命脉：一个没有阳光也没有人性的世界，充斥着荧光冷漠。它不在乎你，但它专心地注视着你。</p> <p>　　存活</p> <p>　　以第一人称体验 Anemoiapolis 地牢般的商场、游泳池、走廊和地下室。利用平台和解谜来导航贫瘠的商业地下墓穴。如果您开始感到自满，那么您可能还没有为即将到来的事情做好准备。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: 6 GB VRAM</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《Anemoiapolis 第1章 Anemoiapolis Chapter 1》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">zms174</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39662/](https://lad.sfcrom.cn/2024/03/39662/)

@@ -1,0 +1,13 @@
+---
+title: "switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载+1.0.2补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载!《浪漫沙加：吟游诗人之歌》于 1992 年在 SFC 首次推出，2005 年在 PS2 推出重制版，目前仍深受欢迎并迎来高清化版本。 　　英文名：《Romancin&hellip;"
+layout: post
+---
+
+ <p>switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载!《浪漫沙加：吟游诗人之歌》于 1992 年在 SFC 首次推出，2005 年在 PS2 推出重制版，目前仍深受欢迎并迎来高清化版本。</p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a529da2027.webp" style="width: 640px; height: 360px;" alt="switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载+1.0.2补丁" /></p> <p>　　英文名：《Romancing SaGa Minstrel Song Remastered》</p> <p>　　首发平台：1992年1月28日登陆SFC</p> <p>　　重制/复刻版发售日期：12月1日</p> <p>　　发售价格：166元</p> <p>　　发售平台：NS/PC/手机</p> <p>　　游戏类型：角色扮演</p> <p>　　游戏语言：英文/日文</p> <p>　　游戏人数：单人</p> <p>　　开发商：Square Enix</p> <p>　　发行商：Square Enix</p> <p>　　游戏介绍：《浪漫沙加：吟游诗人之歌》于 1992 年在 SFC 首次推出，2005 年在 PS2 推出重制版，目前仍深受欢迎并迎来高清化版本。本作采用「自由剧本」系统，玩家可以在八名主角中选择一名主角，并能享受随着选择而变化的剧情，另外在保有《沙加》系列特有的「闪悟」和「连携」等战斗系统的同时，还提升了图像品质、增加了各种便利功能与新元素，让游玩体验更加舒适。不仅是原本就喜欢《沙加》系列的玩家，就连首次接触系列作的新玩家也能轻松进行游戏。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a529e1bead.webp" style="border-width: 0px; border-style: solid;" alt="switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载+1.0.2补丁" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a529e8d7e2.webp" style="border-width: 0px; border-style: solid;" alt="switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载+1.0.2补丁" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a529f02018.webp" style="border-width: 0px; border-style: solid;" alt="switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载+1.0.2补丁" /></td> </tr> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a529f88121.webp" style="border-width: 0px; border-style: solid;" alt="switch《浪漫沙加：吟游诗人之歌 Romancing SaGa Minstrel Song Remastered》中文版xci下载+1.0.2补丁" /></td> </tr> </tbody> </table> <p><h4>下载地址(由网友<font color="red">13477682762</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109876/](https://lad.sfcrom.cn/2024/04/109876/)

@@ -1,0 +1,13 @@
+---
+title: "switch《JETBOY &#038; the Randomizer of DOOM》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《JETBOY &amp; the Randomizer of DOOM》英文版下载。这是一款复古像素风的动作射击游戏，很经典的街机风格，玩家将体验到一场有趣的冒险之旅，喜欢这个类型游戏的玩家不要错过哦。 　　Jetboy是一款复古增压的jetpacking像素射击游戏，配有泵送金属&hellip;"
+layout: post
+---
+
+ <p>　　switch《JETBOY &amp; the Randomizer of DOOM》英文版下载。这是一款复古像素风的动作射击游戏，很经典的街机风格，玩家将体验到一场有趣的冒险之旅，喜欢这个类型游戏的玩家不要错过哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a948404e6b.jpg" alt="switch《JETBOY &amp; the Randomizer of DOOM》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a94849b718.jpg" alt="switch《JETBOY &amp; the Randomizer of DOOM》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9485158bc.jpg" alt="switch《JETBOY &amp; the Randomizer of DOOM》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9485aa083.jpg" alt="switch《JETBOY &amp; the Randomizer of DOOM》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a948639b7d.jpg" alt="switch《JETBOY &amp; the Randomizer of DOOM》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　Jetboy是一款复古增压的jetpacking像素射击游戏，配有泵送金属音轨。</p> <p>　　3020年，全球大流行席卷盖亚星球。。。</p> <p>　　戴夫住在盖亚&amp;戴夫很无聊。。。生活没有那么有趣。。。</p> <p>　　戴夫想离开，有点孤独，有点&ldquo;我&rdquo;的时间。。。</p> <p>　　也许有一点喷气背包、激光爆破&amp;这是他穿紧身太空服的一个很好的理由。</p> <p>　　戴夫决定休假。。。</p> <p>　　不幸的是，戴夫预订了一次雾化器度假旅行，去了末日星云及其臭名昭著的随机发生器带。。。</p> <p>　　故事模式</p> <p>　　帮助Dave远离这一切，去臭名昭著的厄运星云度假</p> <p>　　随机发生器拱廊模式</p> <p>　　可选控制台主题，随机发生器行星、坏人、老板、武器、加电和难度。。。意味着每个剧本都是独一无二的。</p> <p>　　坏人和老板</p> <p>　　太空虫，疯狂的跳跃的眼睛，旋转的东西，奇怪的东西，太空的东西，杀人羊和可骑的鸡。</p> <p>　　武器</p> <p>　　激光枪、火箭发射器、手榴弹等等。。</p> <p>　　通电</p> <p>　　减速、智能炸弹、盾牌等。。</p> <p>　　车辆</p> <p>　　骑着战败老板的幽灵。。秘密</p> <p>　　控制台主题</p> <p>　　GB Mononboy、Speccy、C64bin、Mega GenDrive、SNOS等。。。</p> <p>　　其他功能</p> <p>　　10轨金属配乐</p> <p>　　操纵杆和键盘控制</p> <p>　　设计为256x144像素，与过去一样。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a948689c12.png" width="422" alt="switch《JETBOY &amp; the Randomizer of DOOM》英文版nsp下载" /></p> <p>　　以上内容就是小编为大家带来的《JETBOY &amp; the Randomizer of DOOM》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">rainyer006</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110912/](https://lad.sfcrom.cn/2024/04/110912/)

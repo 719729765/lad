@@ -1,0 +1,13 @@
+---
+title: "[藏经阁]PS2 SD高达G世代 SEED SDガンダム GGENERATION SEED[免费分享]"
+date: 2024-02-13
+tags: []
+categories: ["GAME藏经阁"]
+excerpt: "2004年12月19日发售的PS2游戏，主打《SEED》系列的《G世代》，而部分《SEED ASTRAY》也有登场，不过不包括《SEED MSV》及续作《SEED DESTINY》。游戏SD高达G世代 SEED日文SDガンダム GGENERATION SEED类型战争平台PlayStation 2开&hellip;"
+layout: post
+---
+
+ <div><ul>   <ul>  </ul> </ul> </div><p>2004年12月19日发售的PS2游戏，主打《SEED》系列的《G世代》，而部分《SEED ASTRAY》也有登场，不过不包括《SEED MSV》及续作《SEED DESTINY》。</p><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/02/20240213_65cb4bf8f2c00.jpg" title="PS2 SD高达G世代 SEED" alt="PS2 SD高达G世代 SEED SDガンダム GGENERATION SEED" style="display:block; margin-left:auto; margin-right:auto;width:100%;height:auto;"></p><table><thead><tr><th>游戏</th><th>SD高达G世代 SEED</th></tr></thead><tbody><tr><td>日文</td><td>SDガンダム GGENERATION SEED</td></tr><tr><td>类型</td><td>战争</td></tr><tr><td>平台</td><td>PlayStation 2</td></tr><tr><td>开发商</td><td>TOM CREATE</td></tr><tr><td>发行商</td><td>BANDAI</td></tr><tr><td>系列</td><td>SD高达G世代系列</td></tr><tr><td>模式</td><td>单人游戏</td></tr><tr><td>发行日</td><td>2004年12月19日</td></tr></tbody></table><p>《SD Gundam GGeneration SEED》是一款由日本游戏公司Banpresto制作和发行的PlayStation 2游戏。它是GGeneration系列的一部分，该系列以Bandai的SD Gundam玩具为基础，将机甲战争的题材和机械设定融入到游戏中。</p><p>《SD Gundam GGeneration SEED》是基于机甲战争动画片《机动战士高达SEED》的故事情节和角色设定开发的。游戏中的故事背景设定在一个由种子级别的人工智能控制的人类殖民地和地球联邦之间的战争时代。玩家可以扮演不同的角色，参与各种战斗和任务，体验战争的残酷和机甲战斗的激烈。</p><p>游戏的玩法主要分为两个方面：战略地图和战斗场景。在战略地图上，玩家可以管理自己的基地、研究和开发新的机体、招募和培训角色等。玩家需要谨慎选择战术和部署自己的部队，以取得战争的胜利。</p><p><b></em></b>而在战斗场景中，玩家会控制自己的机体参与紧张刺激的战斗。游戏采用回合制战斗系统，玩家需要使用各种武器、技能和策略来击败敌人。战斗过程中可以利用地形和队友的协助来获得优势，同时要小心敌方的进攻和战术。</p><p>游戏中收录了大量来自《机动战士高达SEED》系列的角色和机体，玩家可以解锁和使用多种不同的机型和战舰。除了主线故事之外，还有许多支线任务和隐藏内容可以解锁。</p><p>总体而言，《SD Gundam GGeneration SEED》是一款深受机甲战斗和高达系列粉丝喜爱的游戏。它通过丰富的剧情和战斗系统，让玩家可以亲身体验高达系列的魅力和机甲战争的刺激。无论是喜欢高达系列还是机甲战斗游戏的玩家，都能在《SD Gundam GGeneration SEED》中找到乐趣。</p><a name="ci_title0" ></a><h2>登场作品</h2><ul></ul><a name="ci_title1" ></a><h2>游戏资源</h2><a name="ci_title2" ></a><h3>SD Gundam G Generation Seed [NTSC-J] [SLPS-25531]</h3><p><p><svg xmlns="http://www.w3.org/2000/svg" width="24" height="24" viewbox="0 0 36 36"><path fill="#AAB8C2" d="M18 0c-4.612 0-8.483 3.126-9.639 7.371l3.855 1.052A5.999 5.999 0 0 1 18 4a6 6 0 0 1 6 6v10h4V10c0-5.522-4.477-10-10-10"/><path fill="#FFAC33" d="M31 32a4 4 0 0 1-4 4H9a4 4 0 0 1-4-4V20a4 4 0 0 1 4-4h18a4 4 0 0 1 4 4z"/></svg><span>您已登录，可以阅读以下内容：</span></p> <div><div></strong></div> 链接：http://download.9ioldgame.com/f/30740061-884652309-76ccb3<br>链接：https://www.123pan.com/s/7biA-T6Q7A.html 提取码<code>cW2Y</code><br>链接：https://pan.huang1111.cn/s/jMWDCy<br>链接：https://pan.quark.cn/s/173ec3629c6b</div></p><b></em></b> </div> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/02/440/](https://lad.sfcrom.cn/2024/02/440/)

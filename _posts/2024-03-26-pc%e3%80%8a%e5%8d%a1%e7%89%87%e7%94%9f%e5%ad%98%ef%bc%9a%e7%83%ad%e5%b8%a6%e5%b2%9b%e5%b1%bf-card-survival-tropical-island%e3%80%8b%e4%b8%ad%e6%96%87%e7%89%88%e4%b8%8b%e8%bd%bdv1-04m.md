@@ -1,0 +1,13 @@
+---
+title: "PC《卡片生存：热带岛屿 Card Survival Tropical Island》中文版下载v1.04M"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "PC《卡片生存：热带岛屿 Card Survival Tropical Island》中文版下载v1.04K版，这是一款采用了策略卡牌玩法的生存冒险游戏，以卡牌的形式在一个荒岛上进行冒险，感兴趣的玩家不要错过哦。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：WinterSpring Gam&hellip;"
+layout: post
+---
+
+ <p>PC《卡片生存：热带岛屿 Card Survival Tropical Island》中文版下载v1.04K版，这是一款采用了策略卡牌玩法的生存冒险游戏，以卡牌的形式在一个荒岛上进行冒险，感兴趣的玩家不要错过哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603564413e77.webp" alt="PC《卡片生存：热带岛屿 Card Survival Tropical Island》中文版下载v1.04M" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660356446b9be.webp" alt="PC《卡片生存：热带岛屿 Card Survival Tropical Island》中文版下载v1.04M" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035644d908d.webp" alt="PC《卡片生存：热带岛屿 Card Survival Tropical Island》中文版下载v1.04M" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035645543bc.webp" alt="PC《卡片生存：热带岛屿 Card Survival Tropical Island》中文版下载v1.04M" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：WinterSpring Games</p> <p>　　游戏发行：WinterSpring Games</p> <p>　　《卡牌生存：热带岛屿(Card Survival: Tropical Island)》是一款基于卡牌的生存游戏。搁浅在一个荒岛上，你必须用你的智慧和技能来维持生命。使用卡牌并将它们组合在一起，以探索、收集资源和制作有用的工具。</p> <p>　　游戏介绍</p> <p>　　主要特点</p> <p>　　简单但有深度的系统：所有的互动都是通过使用卡片或将它们组合在一起完成的。</p> <p>　　大量的内容。从一个衣衫褴褛的饥饿的弃儿到一个繁荣的岛屿农民。</p> <p>　　真实的模拟。追踪一切，从体重到手脚上的老茧，甚至你的大便浓度。</p> <p>　　探索沙漠之岛</p> <p>　　探索一个有8种不同环境的大岛，包括海滩、丛林、草原和红树林。</p> <p>　　学习与岛上许多不同的动物共处，做捕食者和猎物，甚至学习驯化和繁殖它们。</p> <p>　　了解岛上各种植物的不同烹饪和药用用途，发现如何种植的秘密。</p> <p>　　通过大量的活动让自己忙碌起来</p> <p>　　加工木材、石头、铜、纤维、皮革和粘土，为自己制作许多不同的工具、武器、衣服和容器。</p> <p>　　用木头和泥巴建造自己的家和其他结构，包括动物围栏、庄稼地和水库。</p> <p>　　烘烤、熏制和腌制不同的肉类，自己制作面包、油、奶酪、糖、酒和烹饪许多不同的食谱。</p> <p>　　复杂的卫生系统</p> <p>　　遭受脚和手的溃疡、背痛、晒伤，甚至被虫子咬伤。制作防护服并使用多种药用植物来治疗这些疾病。</p> <p>　　扭伤、骨折、擦伤、出血性裂伤和动物咬伤是你可能受伤的众多方式中的一部分。清洗和处理你的伤口，以避免感染和促进愈合。</p> <p>　　岛上的细菌和寄生虫会让你发烧、腹泻、恶心、头痛和起疹子。</p> <p>　　好好养活自己，保持高昂的士气，帮助加强你的免疫系统。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7, 8, 10+</p> <p>　　处理器: SSE2 instruction set support</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: DirectX11 compatible graphics card</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《卡片生存：热带岛屿 Card Survival Tropical Island》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">zhanglixiang</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39059/](https://lad.sfcrom.cn/2024/03/39059/)

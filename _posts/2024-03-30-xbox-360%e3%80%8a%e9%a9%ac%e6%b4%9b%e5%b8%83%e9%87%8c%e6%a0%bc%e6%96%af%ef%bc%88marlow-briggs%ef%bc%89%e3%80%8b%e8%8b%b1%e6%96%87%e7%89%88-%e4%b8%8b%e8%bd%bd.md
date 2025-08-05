@@ -1,0 +1,13 @@
+---
+title: "[XBOX 360]《马洛布里格斯（Marlow Briggs）》英文版 下载"
+date: 2024-03-30
+tags: []
+categories: ["xbox360英日游戏"]
+excerpt: "　　[XBOX 360]《马洛布里格斯(Marlow Briggs)》英文版 下载是一款动作冒险类(ACT)游戏，在动作电影和英雄漫画中受到的创作灵感。 　　游戏名称：马洛布里格斯 　　英文名称：Marlow Briggs 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Zootfly 　　游&hellip;"
+layout: post
+---
+
+ <p>　　[XBOX 360]《马洛布里格斯(Marlow Briggs)》英文版 下载是一款动作冒险类(ACT)游戏，在动作电影和英雄漫画中受到的创作灵感。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240330_6607d96c06f3d.webp" width="736" alt="[XBOX 360]《马洛布里格斯（Marlow Briggs）》英文版 下载" /></p> <p>　　游戏名称：马洛布里格斯</p> <p>　　英文名称：Marlow Briggs</p> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Zootfly</p> <p>　　游戏发行：505 Games</p> <p>　　游戏平台：XBOX360</p> <p>　　发售时间：2013年9月20日</p> <p>　　官方网站：http://store.steampowered.com/app/249680/</p> <p>　　游戏介绍</p> <p>　　战士回归，我们的英雄马洛从不逃避任何麻烦和危险，但他现在要面对终极挑战了。深入中美洲，他要打败一个与玛雅死亡面具密切相关的恶灵。游戏显然从动作电影和英雄漫画中获得了启发，流程火爆爽快。</p> <p><h4>下载地址(由网友<font color="red">swing0</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/92321/](https://lad.sfcrom.cn/2024/03/92321/)

@@ -1,0 +1,13 @@
+---
+title: "PC《Mahluk：暗黑恶魔 Mahluk: Dark demon》英文版下载（v1.46）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《Mahluk：暗黑恶魔 Mahluk: Dark demon》英文版下载，这是一款像素风的横版动作闯关游戏，玩家将以打败恶魔为目标进行战斗，游戏的美术风格很有特色，赶快来体验一下吧。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Serkan Bakar 　　游戏发行：Serkan&hellip;"
+layout: post
+---
+
+ <p>　　PC《Mahluk：暗黑恶魔 Mahluk: Dark demon》英文版下载，这是一款像素风的横版动作闯关游戏，玩家将以打败恶魔为目标进行战斗，游戏的美术风格很有特色，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=5434639&amp;bvid=BV1Ks41117TK&amp;cid=8833638&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032138a9f10.jpg" alt="PC《Mahluk：暗黑恶魔 Mahluk: Dark demon》英文版下载（v1.46）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660321391c6a9.jpg" alt="PC《Mahluk：暗黑恶魔 Mahluk: Dark demon》英文版下载（v1.46）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603213981c65.jpg" alt="PC《Mahluk：暗黑恶魔 Mahluk: Dark demon》英文版下载（v1.46）" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Serkan Bakar</p> <p>　　游戏发行：Serkan Bakar</p> <p>　　远在人类之前的黑暗文明，足以统治文明、人类和世界的邪恶魔王金达，以他残酷的方式统治了世界3000年。他把那些不服从他的人送到了充满痛苦、折磨和苦难的地下王国。没有人能回来，只有一个神秘的人逃了出来。传说，他是刺客或流放的国王。他正在克服路上的每一个障碍，带着从他通红的眼睛中可以看出的愤怒和复仇走向金达的城堡。邪恶势力已经无法阻止他了。</p> <p>　　游戏特色</p> <p>　　大冒险</p> <p>　　- 探索一个充满地牢、山脉、宝藏......和可怕的怪物的神奇境界。</p> <p>　　- 获得经验，提升等级，为你的角色提供能量。</p> <p>　　- 大量的黑暗区域需要探索，怪物需要对峙。</p> <p>　　空灵的魔法和锋利的剑</p> <p>　　- 寻找强大的武器、物品和发现伟大的法术，以不同的方式击败你的敌人。</p> <p>　　- 冒险进入阴暗的山洞和地牢，发现强大的隐藏宝藏。</p> <p>　　- 根据你的喜好定制控制。</p> <p>　　配置要求</p> <p>　　MINIMUM:</p> <p>　　OS: Windows XP SP2 or newer</p> <p>　　Processor: 2.0 GHz equivalent or faster processor</p> <p>　　Memory: 128 MB RAM</p> <p>　　Graphics: 256 Mb</p> <p>　　Storage: 250 MB available space</p> <p>　　Sound Card: DirectX 9.0 Compatible Sound</p> <p>　　RECOMMENDED:</p> <p>　　OS: Windows XP SP2 or newer</p> <p>　　Processor: 2.0 GHz equivalent or faster processor</p> <p>　　Memory: 128 MB RAM</p> <p>　　Graphics: 256 Mb</p> <p>　　Storage: 250 MB available space</p> <p>　　Sound Card: DirectX 9.0 Compatible Sound</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《Mahluk：暗黑恶魔 Mahluk: Dark demon》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">风羽秋</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39297/](https://lad.sfcrom.cn/2024/03/39297/)

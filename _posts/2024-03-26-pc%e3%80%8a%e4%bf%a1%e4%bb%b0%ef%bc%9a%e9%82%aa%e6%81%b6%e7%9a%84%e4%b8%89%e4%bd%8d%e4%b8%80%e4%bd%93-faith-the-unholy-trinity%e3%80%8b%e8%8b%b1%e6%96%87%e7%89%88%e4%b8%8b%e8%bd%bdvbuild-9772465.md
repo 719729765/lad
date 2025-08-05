@@ -1,0 +1,13 @@
+---
+title: "PC《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版下载vBuild 9772465"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版下载，这是一款像素风的恐怖游戏，画面非常的简约，游戏讲述了牧师和恶魔之间的故事，喜欢老式风格的玩家可以尝试一下。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Airdorf Games 　　游戏发行：&hellip;"
+layout: post
+---
+
+ <p>　　PC《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版下载，这是一款像素风的恐怖游戏，画面非常的简约，游戏讲述了牧师和恶魔之间的故事，喜欢老式风格的玩家可以尝试一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=79124439&amp;bvid=BV1kJ411C7nF&amp;cid=135411064&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603538f49ed9.jpg" alt="PC《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版下载vBuild 9772465" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603538fa7be0.jpg" alt="PC《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版下载vBuild 9772465" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603539030ded.jpg" alt="PC《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版下载vBuild 9772465" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035390a800f.jpg" alt="PC《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版下载vBuild 9772465" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Airdorf Games</p> <p>　　游戏发行：New Blood Interactive</p> <p>　　你要做的事情没有得到梵蒂冈的批准。作为一个年轻的牧师，在这个像素恐怖游戏中与恶魔、疯狂的邪教分子和你自己不断削弱的信仰作斗争，其灵感来自于经典的8位游戏时代和80年代的 &quot;撒旦恐慌&quot;。</p> <p>　　游戏介绍</p> <p>　　信仰-一位年轻的牧师被噩梦所困扰，并在寻找答案，他回到了一年前一次驱魔严重失败的房子。</p> <p>　　信仰：第二章-在面对无法形容的超自然实体并险些逃脱后，一位年轻的牧师陷入了一场新的噩梦。</p> <p>　　信仰：第三章-在一个神秘的陌生人的帮助下，一位年轻的牧师在黑暗的乡村旅行，阻止撒旦崇拜召唤一个可怕的强大恶魔。</p> <p>　　✞ 老式的恐怖方式✞</p> <p>　　粗粗的像素</p> <p>　　手工制作的旋转镜动画</p> <p>　　幽灵复古音轨</p> <p>　　多重/秘密结尾</p> <p>　　20世纪80年代的宗教偏执狂</p> <p>　　通过弃置语音合成器引导恶魔EVP</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 64-bit</p> <p>　　处理器: 64-bit Intel compatible Dual Core CPU</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: DX 11 compliant graphics card</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 200 MB 可用空间</p> <p>　　附注事项: There is no seventh floor</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《信仰：邪恶的三位一体 FAITH: The Unholy Trinity》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">bleatter</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40863/](https://lad.sfcrom.cn/2024/03/40863/)

@@ -1,0 +1,13 @@
+---
+title: "PC《霍布巴罗的挖掘 The Excavation of Hob&#039;s Barrow》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《霍布巴罗的挖掘 The Excavation of Hob&#039;s Barrow》英文版下载，这是一款像素画风的冒险解谜游戏，互动小说形式，故事则是来自民间的恐怖传说，感兴趣的玩家可以尝试一下。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Cloak and Dagger G&hellip;"
+layout: post
+---
+
+ <p>　　PC《霍布巴罗的挖掘 The Excavation of Hob&#39;s Barrow》英文版下载，这是一款像素画风的冒险解谜游戏，互动小说形式，故事则是来自民间的恐怖传说，感兴趣的玩家可以尝试一下。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-29/c60b8e4bc3529cec41cc21c648fa8bb9.jpg" alt="PC《霍布巴罗的挖掘 The Excavation of Hob&amp;#039;s Barrow》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-29/18563efd7feb8b45b597d0bda7ed8a0c.jpg" alt="PC《霍布巴罗的挖掘 The Excavation of Hob&amp;#039;s Barrow》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-29/bf3ab359e4f1127f66cce79084450d0b.jpg" alt="PC《霍布巴罗的挖掘 The Excavation of Hob&amp;#039;s Barrow》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/09-29/dec100b4e0a41642fed87bea2ff0868e.jpg" alt="PC《霍布巴罗的挖掘 The Excavation of Hob&amp;#039;s Barrow》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Cloak and Dagger Games</p> <p>　　游戏发行：Wadjet Eye Games</p> <p>　　《霍布巴罗的挖掘》是一部由民间恐怖故事驱动的冒险故事。探索维多利亚时代英格兰乡村的荒原，揭开霍布巴罗的神秘面纱。答案就在土壤里。。。</p> <p>　　故事介绍</p> <p>　　古董商托马西娜&middot;贝特曼正在英国手推车上写一本书，记录她发现的埋藏在里面的珍宝。当一封耐人寻味的信把她召唤到隐蔽在偏远乡村的贝莱小村庄时，一天后，她和助手乘火车出发。</p> <p>　　然而，当她到达时，却找不到召唤她的神秘男子。她的助手从未到过。一个固执的地主拒绝使用手推车，当地人对这个独自旅行的女人很警惕穿着裤子。</p> <p>　　霍布巴罗的挖掘工作开始得很艰难。然后托马西纳开始做奇怪的梦&hellip;</p> <p>　　游戏特色</p> <p>　　一个黑暗、复杂和不断演变的故事情节，以真实的英国民间传说为特色。</p> <p>　　传统的点击式冒险游戏拼图和互动，具有简单的现代界面。</p> <p>　　一群有趣的角色，从可疑的村民到生病的牧师，再到傲慢的地主，都有自己独特的故事和动机。</p> <p>　　独特的民间恐怖音调和背景。</p> <p>　　令人激动的像素艺术图形，具有剪切场景和迷人的动画。</p> <p>　　《机器》(The Machine)的一首适合大气的原声曲目。恶魔。-二人组中的一半在获奖的《足球比赛》配乐后面。</p> <p>　　犁沟里的恶魔，潮湿土壤的气味，还有一两只猫。最低配置:</p> <p>　　操作系统: Windows XP or higher</p> <p>　　处理器: Pentium or higher</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: 640x360, 32-bit colour: 700 Mhz system minimum</p> <p>　　DirectX 版本: 5.2</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　声卡: Any</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《霍布巴罗的挖掘 The Excavation of Hob&#39;s Barrow》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">zhangzhu594</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39879/](https://lad.sfcrom.cn/2024/03/39879/)

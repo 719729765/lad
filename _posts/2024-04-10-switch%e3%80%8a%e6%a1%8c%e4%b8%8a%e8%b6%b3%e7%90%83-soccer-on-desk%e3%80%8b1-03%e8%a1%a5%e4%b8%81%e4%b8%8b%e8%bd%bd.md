@@ -1,0 +1,13 @@
+---
+title: "switch《桌上足球 Soccer On Desk》1.03补丁下载"
+date: 2024-04-10
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《桌上足球 Soccer On Desk》日文版NSP下载，实体的桌上足球大家都玩过，但是大家知不知道在switch上也能玩到桌上足球呢? 　　英文名称：Soccer On Desk 　　游戏语言：日文 　　游戏版本：日版 　　游戏类型：体育类(SPG) 　　开发厂商：SAT-BOX&hellip;"
+layout: post
+---
+
+ <p>　　switch《桌上足球 Soccer On Desk》日文版NSP下载，实体的桌上足球大家都玩过，但是大家知不知道在switch上也能玩到桌上足球呢?</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615c202a37c3.webp" alt="switch《桌上足球 Soccer On Desk》1.03补丁下载" /></p> <p>　　英文名称：Soccer On Desk</p> <p>　　游戏语言：日文</p> <p>　　游戏版本：日版</p> <p>　　游戏类型：体育类(SPG)</p> <p>　　开发厂商：SAT-BOX</p> <p>&nbsp;</p> <p>　　这是一款好玩的聚会游戏，对这种类型的游戏有需要的玩家们一定要来试试。</p> <p><h4>下载地址(由网友<font color="red">2367113286</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144066/](https://lad.sfcrom.cn/2024/04/144066/)

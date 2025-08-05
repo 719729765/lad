@@ -1,0 +1,13 @@
+---
+title: "switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁"
+date: 2024-04-05
+tags: []
+categories: ["Switch汉化游戏"]
+excerpt: "switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁！本作的舞台在2102年的阿罗尔德修人民共和国，由马卡杰中校率领的士兵发起了叛乱，发出了从欧西亚纳共同联合的独立宣言。本次的主角亚修隶属于OCU军，他们也将接近政变背后的巨大阴谋。 &hellip;"
+layout: post
+---
+
+ <p>switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁！本作的舞台在2102年的阿罗尔德修人民共和国，由马卡杰中校率领的士兵发起了叛乱，发出了从欧西亚纳共同联合的独立宣言。本次的主角亚修隶属于OCU军，他们也将接近政变背后的巨大阴谋。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=738018092&amp;bvid=BV1PD4y1M78B&amp;cid=1042946753&amp;p=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed409c4d08.webp" alt="switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁" /></td> </tr> </tbody> </table><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed40a27a0b.webp" alt="switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed40a9e903.webp" alt="switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed40b01007.webp" alt="switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ed40b68398.webp" alt="switch《前线任务2：重制版(FRONT MISSION 2: Remake)》中文NSZ下载+1.0.4.2补丁" /></td> </tr> </tbody> </table> <p>　　经典战术角色扮演游戏回归!前线任务主线故事情节中的第二款游戏终于首次在日本以外的地方推出。</p> <p>　　《前线任务2》将激烈的策略与深刻而复杂的故事情节融为一体。</p> <p>　　自第二次霍夫曼冲突以来已经过去了12年。自战争结束以来，贫穷的阿洛德什人民共和国一直遭受严重的经济衰退。2102年&lt;&gt;月，阿洛德什军队的士兵起义，在文&middot;麦卡格的带领下，宣布从O.C.U.(大洋洲合作联盟)独立。</p> <p>　　Ash是一名O.C.U.士兵，设法在随后的战斗中幸存下来，但Alordesh完全被革命军占领。小智和他幸存的队友潜入阿洛德什混乱的地下，试图逃离这个国家。然而，他们很快发现政变背后有一个巨大的阴谋。</p> <p>　　在《前线任务2》中，视角在三个角色之间切换：小智、丽莎和托马斯，创造了一种超越善恶之间简单二分法的世界观。</p> <p>　　前线任务2：重制版保留了原版的成熟故事，战略回合制战斗和Wanzer自定义选项。享受焕然一新的经典，更新的视觉效果和新功能和增强功能!</p> <p>　　- 支持许多新语言</p> <p>　　- 新的&ldquo;免费相机&rdquo;选项，可在游戏过程中放大并详细</p> <p>　　查看Wanzers- 新的颜色和伪装选项</p> <p>　　- 现代游戏内效果</p> <p>　　- 更新的配乐</p> <p><h4>下载地址(由网友<font color="red">669322</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/130150/](https://lad.sfcrom.cn/2024/04/130150/)

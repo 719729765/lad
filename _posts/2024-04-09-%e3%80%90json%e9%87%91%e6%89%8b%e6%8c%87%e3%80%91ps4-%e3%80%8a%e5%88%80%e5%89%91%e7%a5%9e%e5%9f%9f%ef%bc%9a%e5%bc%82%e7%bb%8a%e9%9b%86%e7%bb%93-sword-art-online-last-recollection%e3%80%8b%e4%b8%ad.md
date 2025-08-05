@@ -1,0 +1,13 @@
+---
+title: "【JSON金手指】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "【5.05】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】!这是一款为了拯救终焉步步逼近的虚拟世界《Underworld》，您将化身为动画《刀剑神域》的主角&ldquo;桐人&rdquo;，与伙伴一同&hellip;"
+layout: post
+---
+
+ <p>【5.05】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】!这是一款为了拯救终焉步步逼近的虚拟世界《Underworld》，您将化身为动画《刀剑神域》的主角&ldquo;桐人&rdquo;，与伙伴一同展开冒险的动作RPG。</p> <p>&nbsp;</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=517297246&amp;bvid=BV1Hg411B7NT&amp;cid=883611866&amp;p=1" width="410"></iframe></p> <p>　　灵魂、热情，以及由此编织而成的生命物语。</p> <p>　　为了开发出极致AI《A.L.I.C.E.》所创造出的世界──《Underworld》，终焉正逐渐逼近这里。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec8f30cc3.webp" width="700" alt="【JSON金手指】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec8f89370.webp" width="700" alt="【JSON金手指】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec8feca9f.webp" width="700" alt="【JSON金手指】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec905b96e.webp" width="700" alt="【JSON金手指】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614ec90c010d.webp" width="700" alt="【JSON金手指】PS4 《刀剑神域：异绊集结 Sword Art Online: Last Recollection》中文版PKG下载【含1.10补丁+5DLC】" /></p></div> <p>　　&ldquo;Underworld大战&rdquo;──</p> <p>　　一场《人界》以及《黑暗领域》居民们互相厮杀的最终战争。</p> <p>　　而就在这时，一名带着年幼少女的暗黑骑士从《黑暗领域》飞行而来。</p> <p>　　对这场注定无法改变的悲剧命运而言，他会是带来&ldquo;终焉&rdquo;的灾厄吗──</p> <p>　　这是一款为了拯救终焉步步逼近的虚拟世界《Underworld》，您将化身为动画《刀剑神域》的主角&ldquo;桐人&rdquo;，与伙伴一同展开冒险的动作RPG。</p> <p>　　充满速度感的战斗，可以体验到与伙伴进行轻MMO类型的携手作战，更有40个以上的可操作角色以及系列作史上最多的剧情数量，在此为玩家们献上SAO游戏系列的集大成之作。</p> <p>　　假如&ldquo;桐人&rdquo;在这&hellip;&hellip;</p> <p>　　假如&ldquo;尤吉欧&rdquo;在这&hellip;&hellip;</p> <p>　　在距离终焉越来越近的这个世界，即将展开无人知晓的生命物语。</p> <p><h4>下载地址(由网友<font color="red">995234432</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139140/](https://lad.sfcrom.cn/2024/04/139140/)

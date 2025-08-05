@@ -1,0 +1,13 @@
+---
+title: "switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载"
+date: 2024-04-07
+tags: []
+categories: ["switch模拟器"]
+excerpt: "switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载!魔兽争霸 II：黑潮(Warcraft II: Tides of Darkness)(通常被简称为魔兽争霸II，有时也被简称为WCII，WC2或者War2)是暴雪娱乐发行的第二款设定发生于&ldquo;魔兽&rdquo;宇宙并饱受好评的即时&hellip;"
+layout: post
+---
+
+ <p>switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载!魔兽争霸 II：黑潮(Warcraft II: Tides of Darkness)(通常被简称为魔兽争霸II，有时也被简称为WCII，WC2或者War2)是暴雪娱乐发行的第二款设定发生于&ldquo;魔兽&rdquo;宇宙并饱受好评的即时战略游戏。</p> <p><span style="color:#FF0000;"><strong><span style="font-size:16px;">注意：魔兽争霸2需超频使用</span></strong></span></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=734195305&amp;bvid=BV1FD4y1E7Bj&amp;cid=935127787&amp;page=1" width="410"></iframe></p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66121f3a4519a.webp" style="width: 639px; height: 478px;" alt="switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载" /></p> <p>《魔兽争霸 II：黑潮》是暴雪在1995年12月9日发布的即时战略游戏《魔兽争霸：兽人与人类》的续集。[1]玩家会在充满剑与魔法的奇幻中世纪世界中扮演兽人或者人类。虽然此游戏拥有一个微软视窗的启动屏幕而且能在Windows 95操作系统下完美运行，但是在最初它其实是为DOS操作系统编写的代码。除此之外，本游戏还有适用于MAC操作系统的版本。暴雪还放出了名为《魔兽争霸II：黑暗之门》的资料片，并且在之后又再次推出了续集《魔兽争霸III：混乱之治》。本游戏不仅为阵营双方都准备了一条线性的单人模式剧情，还允许玩家在多人模式中使用已存在或玩家自创的地图通过局域网或互联网进行游戏。根据魔兽争霸II试玩版本中附带的README.TXT文件我们可以得知，所有图像都是预渲染的3D模型</p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66121f3aa68da.webp" style="width: 500px; height: 296px;" alt="switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载" /></p> <p>后来暴雪卖掉了独家开发、出版和分平台移植的专利给了艺电，[2]然后在1997年，艺电把《黑潮》和《黑暗之门》两款游戏移植到了PlayStation和Sega Saturn主机上，打包并合称为《魔兽争霸II： 黑暗传奇》。暴雪自己的合集《魔兽争霸II：战网版》则在1999年发售，提供了暴雪的在线游戏服务：战网，并且用Window版的游戏替换了MS-DOS版。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66121f3b0d067.webp" alt="switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66121f3b670a1.webp" alt="switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66121f3bc5fce.webp" alt="switch《SS土星模拟器：魔兽争霸2》宽屏版nsp下载" /></td> </tr> </tbody> </table> <p>这个游戏目前已经不在暴雪官网上进行售卖了。提供的试玩demo也被删除，尽管它依然可以在第三方网站或数据库(比如说网页档案馆)中下载。</p> <p>在2019年3月28日，暴雪官方宣布《魔兽争霸II：战网版》数字版发布于GOG平台上，这个版本包含了黑潮和资料片穿越黑暗之门。</p> <p><h4>下载地址(由网友<font color="red">2696331664</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/130580/](https://lad.sfcrom.cn/2024/04/130580/)

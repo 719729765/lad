@@ -1,0 +1,13 @@
+---
+title: "switch《九段之都市传说 The Curse of Kudan》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《九段之都市传说 The Curse of Kudan》中文版nsz下载!《九段的诅咒》即将登陆Nintendo Switch&trade;系统!这款尤里冒险游戏由工作室的姊妹品牌 SukeraSparo 开发，为您带来了&ldquo;OshiRabu：Waifus Over Hus&hellip;"
+layout: post
+---
+
+ <p>　　switch《九段之都市传说 The Curse of Kudan》中文版nsz下载!《九段的诅咒》即将登陆Nintendo Switch&trade;系统!这款尤里冒险游戏由工作室的姊妹品牌 SukeraSparo 开发，为您带来了&ldquo;OshiRabu：Waifus Over Husbandos&rdquo;，SukeraSomero!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=796267954&amp;bvid=BV15C4y1h7zB&amp;cid=212054161&amp;p=1" width="410"></iframe></p> <p>　　这个标题汇集了受欢迎的角色设计师羽琴和&ldquo;FLOWERS&rdquo;系列的作家清水初美!</p> <p>　　体验女孩们对付库丹的怪异故事，库丹是一个幽灵，任何看到它的人都会感到不幸，并见证女孩们面对压抑的过去时不太可能的浪漫的发展!</p> <p>　　提供三种语言版本!</p> <p>　　文本可以设置为日语、英语或简体中文(音频仅为日语)。这包括游戏内文本、选项和数字手册。可以随时更改语言设置。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8477a23eb.webp" width="700" alt="switch《九段之都市传说 The Curse of Kudan》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d847827d49.webp" width="700" alt="switch《九段之都市传说 The Curse of Kudan》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8478abaf1.webp" width="700" alt="switch《九段之都市传说 The Curse of Kudan》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8479378a9.webp" width="700" alt="switch《九段之都市传说 The Curse of Kudan》中文版nsz下载" /></p></div> <p>　　全高清!</p> <p>　　在电视模式下享受游戏，高清 1920x1080 分辨率。</p> <p>　　仅使用触摸屏即可玩!用一只手玩!</p> <p>　　在连接了 Joy-Con&trade; 控制器的情况下以手持模式播放，或者将它们拆下并仅使用触摸控件进行播放!在桌面模式或电视模式下，只需使用 Joy-Con (R) 即可控制一切，让您只用一只手即可玩!</p> <p>　　也可用于 Nintendo Switch Lite 系统。(单手演奏需要单独的 Joy-Con (R)。</p> <p>　　故事</p> <p>　　在放学回家的路上遇到与一辆坏自行车作斗争的女孩志摩东子后，久段作哉的浪漫感情开始绽放。</p> <p>　　然后，在东子看到&ldquo;九段&rdquo;之后，一个都市传说认为可以预示灾难的幽灵，女孩们的平静生活被颠倒了。</p> <p>　　为了保护东子，佐久哉访问了校园内的&ldquo;神秘学研究会&rdquo;，并与会长赤梨琴一起直面民间传说。</p> <p>　　员工</p> <p>　　角色设计与原创艺术：羽琴</p> <p>　　故事：清水</p> <p>　　初美 演职员表</p> <p>　　久段作也 VA：福原</p> <p>　　绫香 志摩东东 VA：石见真中</p> <p>　　Koto Akinashi VA：Maria Naganawa</p> <p>　　Karen Azuma VA：冈本理惠</p> <p>　　岩井泽子 VA：森</p> <p>　　菜菜子 其他</p> <p>　　*全配音</p> <p><h4>下载地址(由网友<font color="red">vincentliu</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124539/](https://lad.sfcrom.cn/2024/04/124539/)

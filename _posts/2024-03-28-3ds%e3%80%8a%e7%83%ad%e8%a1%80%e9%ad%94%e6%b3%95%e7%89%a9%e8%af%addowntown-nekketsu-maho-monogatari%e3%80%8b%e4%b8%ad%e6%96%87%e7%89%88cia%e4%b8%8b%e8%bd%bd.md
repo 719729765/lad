@@ -1,0 +1,13 @@
+---
+title: "[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载"
+date: 2024-03-28
+tags: []
+categories: ["3DS中文游戏"]
+excerpt: "　　闪耀着七彩光辉的水晶之塔上空忽然被黑云覆盖，在之后的短短数年内，世界就已经处于一片混乱之中。在这乱世之中，&ldquo;救世主出现&rdquo;的传说忽然开始在各地流传起来。而在边境的一个小村庄中，剑士&ldquo;库尼&middot;巴尔福特&rdquo;到来。于是，故事就开始了&amp;hellip&hellip;"
+layout: post
+---
+
+ <p>　　闪耀着七彩光辉的水晶之塔上空忽然被黑云覆盖，在之后的短短数年内，世界就已经处于一片混乱之中。在这乱世之中，&ldquo;救世主出现&rdquo;的传说忽然开始在各地流传起来。而在边境的一个小村庄中，剑士&ldquo;库尼&middot;巴尔福特&rdquo;到来。于是，故事就开始了&hellip;想知道后面会发生什么吗?快来下载吧~</p> <p><strong>英文名称：</strong></p> <p>　　Downtown Nekketsu Maho Monogatari</p> <p><strong>游戏原名：</strong></p> <p>　　熱血魔法物語</p> <p><strong>游戏语言：</strong></p> <p>　　中文</p> <p><strong>开发厂商：</strong></p> <p>　　Million</p> <p><strong>发行厂商：</strong></p> <p>　　ARC SYSTEM WORKS</p> <p><strong>发售日期：</strong></p> <p>　　2014-04-30</p> <p><strong>游戏类型：</strong></p> <p>　　动作类</p> <p><strong>游戏介绍</strong></p> <p>　　本作的故事剧情略显老套：闪耀着七彩光辉的水晶之塔上空忽然被黑云覆盖，在之后的短短数年内，世界就已经处于一片混乱之中。在这乱世之中，&ldquo;救世主出现&rdquo;的传说忽然开始在各地流传起来。而在边境的一个小村庄中，剑士&ldquo;库尼&middot;巴尔福特&rdquo;到来。于是，故事就开始了&hellip;</p> <p><strong>游戏截图</strong></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66052473bc91b.webp" width="400" alt="[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66052474222a8.webp" width="400" alt="[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660524747f7d5.webp" width="400" alt="[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66052474d4202.webp" width="400" alt="[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_660524753fad5.webp" width="400" alt="[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_6605247588f99.webp" width="400" alt="[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66052475e034e.webp" width="400" alt="[3DS]《热血魔法物语(Downtown Nekketsu Maho Monogatari)》中文版CIA下载" /></p> <p>&nbsp;</p> <p><h4>下载地址(由网友<font color="red">540792780@qq.com</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/70649/](https://lad.sfcrom.cn/2024/03/70649/)

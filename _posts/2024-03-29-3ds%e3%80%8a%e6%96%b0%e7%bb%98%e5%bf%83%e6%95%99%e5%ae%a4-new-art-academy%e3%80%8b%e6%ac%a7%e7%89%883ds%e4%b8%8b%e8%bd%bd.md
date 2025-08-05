@@ -1,0 +1,13 @@
+---
+title: "3DS《新绘心教室 New Art Academy》欧版3ds下载"
+date: 2024-03-29
+tags: []
+categories: ["3DS英日游戏"]
+excerpt: "　　3DS《新绘心教室 New Art Academy》欧版3ds下载。《新绘心教室》是由Nintendo制作发行的一款休闲绘画游戏，本作会让玩家在3DS平台上更好地发挥出自己的画画水平，尤其是凸显了油画的层次感，笔触会更加细腻，而且加上了3D效果和画布纹理，俨然从一款小品级的优秀作品成长为一款专业&hellip;"
+layout: post
+---
+
+ <p>　　3DS《新绘心教室 New Art Academy》欧版3ds下载。《新绘心教室》是由Nintendo制作发行的一款休闲绘画游戏，本作会让玩家在3DS平台上更好地发挥出自己的画画水平，尤其是凸显了油画的层次感，笔触会更加细腻，而且加上了3D效果和画布纹理，俨然从一款小品级的优秀作品成长为一款专业绘画应用。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660624bec2d1f.png" width="597" alt="3DS《新绘心教室 New Art Academy》欧版3ds下载" /></p> <p>　　不会画画的可以在本作的帮助下学会画画，画不好的可以提高水平，而像那种大师级的画家就可以在这独特的平台享受画画的乐趣了。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660624bfcdec2.png" width="599" alt="3DS《新绘心教室 New Art Academy》欧版3ds下载" /></p> <p>　　游戏特色</p> <p>　　《新绘心教室》除了贯彻前作的简单、方便的绘画要素之外，还会收录超过30个绘画教程。而作为新的画笔还增加了彩色铅笔和蜡笔，甚至还可以自定义画笔的颜色。本作将对应网络，玩家购入之后可以进行&ldquo;追加课程&rdquo;的下载，会是用&ldquo;随时通信&rdquo;把自己画的画让朋友观看等等。</p> <p><h4>下载地址(由网友<font color="red">421432997</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/74487/](https://lad.sfcrom.cn/2024/03/74487/)

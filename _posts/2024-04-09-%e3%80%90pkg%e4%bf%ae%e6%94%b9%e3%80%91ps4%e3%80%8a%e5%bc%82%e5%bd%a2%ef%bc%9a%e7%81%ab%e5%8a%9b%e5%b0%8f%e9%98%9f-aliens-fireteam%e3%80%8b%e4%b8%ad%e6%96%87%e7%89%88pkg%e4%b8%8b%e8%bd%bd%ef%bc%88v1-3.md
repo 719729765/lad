@@ -1,0 +1,13 @@
+---
+title: "【PKG修改】PS4《异形：火力小队 Aliens Fireteam》中文版pkg下载（v1.34+金手指）"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "　　PS4《异形：火力小队 Aliens Fireteam》中文版pkg下载，这是一款以异形世界为背景的射击游戏，玩家的任务就是在异形的攻击下生存下来。多种游戏模式等你来挑战哦。 　　《异形：火力小队》是一款以经典的&ldquo;异形&rdquo;宇宙为背景的第三人称合作生存射击游戏。你的高级陆战军&hellip;"
+layout: post
+---
+
+ <p>　　PS4《异形：火力小队 Aliens Fireteam》中文版pkg下载，这是一款以异形世界为背景的射击游戏，玩家的任务就是在异形的攻击下生存下来。多种游戏模式等你来挑战哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=932646179&amp;bvid=BV1NM4y157tp&amp;cid=399594746&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-04/4a181ef4dd8823a2537ccc62c430efd0.jpg" alt="【PKG修改】PS4《异形：火力小队 Aliens Fireteam》中文版pkg下载（v1.34+金手指）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-04/33f90cf68895be4519c817fcc01ebeb8.jpg" alt="【PKG修改】PS4《异形：火力小队 Aliens Fireteam》中文版pkg下载（v1.34+金手指）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-04/78c84c875fd97ca8e6383a23bfd68447.jpg" alt="【PKG修改】PS4《异形：火力小队 Aliens Fireteam》中文版pkg下载（v1.34+金手指）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2021/11-04/81ae598abf47663728199b70964cebdc.jpg" alt="【PKG修改】PS4《异形：火力小队 Aliens Fireteam》中文版pkg下载（v1.34+金手指）" /></td> </tr> </tbody> </table> <p>　　《异形：火力小队》是一款以经典的&ldquo;异形&rdquo;宇宙为背景的第三人称合作生存射击游戏。你的高级陆战军火力小队将被卷入殊死战斗，旨在平复不断升级的异形威胁。</p> <p>　　与两名玩家或AI队友一起面对可怕的异形，以及威兰德-汤谷公司的合成人敌群。带领整个火力小队决胜四场独特的战役，探索异形宇宙的新篇章。创建并定制独属于你的殖民陆战队员，随心选择各种职业、武器、装备和特长，在这个惊险刺激的生存射击游戏中力挽狂澜。</p> <p>　　游戏特色</p> <p>　　终极狩猎</p> <p>　　在原初《异形》三部曲时间线的23年后，扮演一名驻扎在UAS奋进号上的陆战队员，与可怕的异形威胁殊死搏斗，成为惊悚史诗中的主角。酷炫的画面、经典的敌人、逼真的环境、强大的武器、未来感装备以及诡谲的音景，结合全新的故事情节与值得反复重玩的战役，共同拓展热门电影的宏大世界。</p> <p>　　决胜巢穴</p> <p>　　迎战蜂拥围堵的20多种敌人，包括从抱脸者到禁卫的11种不同异形。每种敌人都能通过独特的技巧来伏击、智胜并吞食弱小的陆战队员。充分利用掩护，钻研团队战略，从而战胜外星生物的威胁存活下来。敌人会从各种角度扑杀你的火力小队&mdash;&mdash;通过门和管道蜂拥而至;在墙壁和天花板上攀爬;甚至在黑暗中凶残爆发，令人措手不及。</p> <p>　　定制你的火力小队</p> <p>　　随心选择五种独特职业：射手、破坏者、技师、医师和侦察兵。每种职业都拥有特殊的技能和角色特长。利用囊括30多种武器和70多种模组/附件的武器库来消除异形威胁。创新的特长板可以更改和强化你的技能，而独特的挑战卡系统则会改变通关每个战役任务的方式，使每次游玩都能获得全新的体验。</p> <p><h4>下载地址(由网友<font color="red">x042232</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139119/](https://lad.sfcrom.cn/2024/04/139119/)

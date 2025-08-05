@@ -1,0 +1,13 @@
+---
+title: "PC《心跳计划 Project Heartbeat》英文版下载（Build 8841772）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《心跳计划 Project Heartbeat》英文版下载，这是一款难度很高的音游，游戏中汇集了各种有趣的元素，也有很多受欢迎的歌曲，喜欢挑战音游的玩家不妨来关注一下吧。 　　游戏类型：音乐类(MUG)游戏 　　游戏制作：EIRTeam 　　游戏发行：EIRTeam 　　Project He&hellip;"
+layout: post
+---
+
+ <p>　　PC《心跳计划 Project Heartbeat》英文版下载，这是一款难度很高的音游，游戏中汇集了各种有趣的元素，也有很多受欢迎的歌曲，喜欢挑战音游的玩家不妨来关注一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=927506919&amp;bvid=BV1NT4y1F7ZM&amp;cid=250143303&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033e0272e0d.jpg" alt="PC《心跳计划 Project Heartbeat》英文版下载（Build 8841772）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033e037c249.jpg" alt="PC《心跳计划 Project Heartbeat》英文版下载（Build 8841772）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033e044dfbf.jpg" alt="PC《心跳计划 Project Heartbeat》英文版下载（Build 8841772）" /></td> </tr> </tbody> </table> <p>　　游戏类型：音乐类(MUG)游戏</p> <p>　　游戏制作：EIRTeam</p> <p>　　游戏发行：EIRTeam</p> <p>　　Project Heartbeat 是一款由社区驱动的节奏游戏，灵感来自诸如 Clone Hero 和 Project Diva 之类的游戏，其中收录了 Eurobeat 流派顶级艺术家的音乐，这些音乐在 Initial D 动漫和漫画中广受欢迎。您还可以创建自己的关卡并与朋友分享!</p> <p>　　游戏特色</p> <p>　　点击笔记以提高你的分数。</p> <p>　　争夺官方歌曲和社区歌曲排行榜的第一名!</p> <p>　　创建并分享你自己的图表!</p> <p>　　使用多人模式与您的朋友进行游戏</p> <p>　　使用PPD管理器工具从现有PPD安装导入图表。</p> <p>　　播放包括苏加诺音乐(SuganoMusic)和加拉西安唱片(Galaxian Recordings)等欧洲流行音乐圈顶尖艺术家的歌曲，或TORAu V4和Katfox等独立艺术家的歌曲，总共有15首歌曲正在开发中。</p> <p>　　完成Steam Workshop支持，播放现有100多个社区制作的图表。</p> <p>　　UI蒙皮支持(目前在beta分支中)</p> <p>　　为歌曲使用背景视频。</p> <p>　　用难度更高的歌曲挑战自己。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Quad Core CPU</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: A fast GPU that has Vulkan support</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　声卡: Yes</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Quad core CPU</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: A fast GPU that has Vulkan support</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《心跳计划 Project Heartbeat》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">haruko</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39175/](https://lad.sfcrom.cn/2024/03/39175/)

@@ -1,0 +1,13 @@
+---
+title: "switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版nsp/xci下载【含1.1.0补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版下载，这是经典横版动作游戏《雷莎出击》的全新重制版本，精彩的游戏内容等你来体验哦。 　　《蕾莎出击》重制版名为《蕾莎出击：文艺复兴》(Actraiser Renaissance)，2D图像更新后实现高分辨率化，画&hellip;"
+layout: post
+---
+
+ <p>　　switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版下载，这是经典横版动作游戏《雷莎出击》的全新重制版本，精彩的游戏内容等你来体验哦。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=718141618&amp;bvid=BV1zQ4y1k7Fk&amp;cid=413574231&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a91db8dd76.jpg" alt="switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版nsp/xci下载【含1.1.0补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a91dc1b270.jpg" alt="switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版nsp/xci下载【含1.1.0补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a91dca7505.jpg" alt="switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版nsp/xci下载【含1.1.0补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a91dd50a52.jpg" alt="switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版nsp/xci下载【含1.1.0补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a91ddde8c4.jpg" alt="switch《蕾莎出击：文艺复兴 Actraiser Renaissance》英文版nsp/xci下载【含1.1.0补丁】" /></td> </tr> </tbody> </table> <p>　　《蕾莎出击》重制版名为《蕾莎出击：文艺复兴》(Actraiser Renaissance)，2D图像更新后实现高分辨率化，画面变得更美观更精致。由古代祐三先生对原作全曲进行改编+新增了约15首歌曲。除了新的故事/动作模组/游戏系统外，玩家还可以享受原作中没有的全新动作关卡、全新创造地图，以及与更强大的新头目的战斗。另外新增了自动存档和设置难度等功能，游玩更轻松。</p> <p>　　《雷莎出击》重制版中，玩家将作为神来夺回被撒旦所统治的世界，游戏将分为两个部分，动作部分中玩家将运用剑技与魔法来不断打到怪物来解放大地。而创造部分将重建在动作部分，随着城镇的重建程度，玩家的数值也将获得提升。</p> <p>　　游戏介绍</p> <p>　　除新增了原作中没有的魔法外，还新增了回避动作和上砍/下砍攻击。玩家可以享受更高级的动作体验。</p> <p>　　在新动作关卡的最后，比原作更强大的头目在等着你。</p> <p>　　新增了中途存档/自动存档功能，改善游戏操作，游玩更轻松。</p> <p>　　新增了城市的发展阶段，玩家可以更长时间地享受城市规划。</p> <p>　　新增了神和人们共同对抗敌人入侵保护城市的即时战略(RTS)部分。玩家可以享受正统战略模拟的乐趣，其中堡垒的布局和释放奇迹的时机是攻略的关键所在。</p> <p>　　新增了许多额外的情节，玩家可以在其中体验人性的弱点、愚蠢与可爱之处。剧情份量增加了一倍多。</p> <p>　　在广阔的全新创造地图中，玩家可以比其他任何地区都更长时间地享受城市规划。</p> <p><h4>下载地址(由网友<font color="red">ikeart</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112106/](https://lad.sfcrom.cn/2024/04/112106/)

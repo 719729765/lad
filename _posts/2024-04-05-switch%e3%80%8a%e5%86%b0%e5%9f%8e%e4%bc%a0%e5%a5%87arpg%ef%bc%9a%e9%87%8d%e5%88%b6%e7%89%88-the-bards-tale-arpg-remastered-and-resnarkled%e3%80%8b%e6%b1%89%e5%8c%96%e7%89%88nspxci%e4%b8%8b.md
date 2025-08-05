@@ -1,0 +1,13 @@
+---
+title: "switch《冰城传奇ARPG：重制版 The Bard&#039;s Tale ARPG: Remastered and Resnarkled》汉化版nsp/xci下载"
+date: 2024-04-05
+tags: []
+categories: ["Switch汉化游戏"]
+excerpt: "　　switch《冰城传奇ARPG：重制版 The Bard&#039;s Tale ARPG: Remastered and Resnarkled》英文版下载。这是一款颇具颠覆意味的动作角色扮演游戏，画面相当精致，音效由好莱坞专业配音演员负责。 链接: https://pan.baidu.com/s&hellip;"
+layout: post
+---
+
+ <p>　　switch《冰城传奇ARPG：重制版 The Bard&#39;s Tale ARPG: Remastered and Resnarkled》英文版下载。这是一款颇具颠覆意味的动作角色扮演游戏，画面相当精致，音效由好莱坞专业配音演员负责。</p> <p><span style="color:#FF0000;"><strong>链接: https://pan.baidu.com/s/1YJH4DltQtDHEdWYSZvTY1w 提取码: j8gc</strong></span></p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=583440037&amp;bvid=BV1Uz4y197fs&amp;cid=200805191&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-19/771d6597ee942072cc44eaaa0d268277.jpg" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》汉化版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-19/bb198e0f43095b62eab3f8dfa1fc0a30.jpg" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》汉化版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-19/9f79d8cc8f729967ce58ed6b6586d464.jpg" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》汉化版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-19/f44309cb9beaa8e1382887c4875f6465.jpg" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》汉化版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-19/0e2ff7b8b8c800a4cdd12195ef76443d.jpg" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》汉化版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　游戏里玩家将扮演一名狂妄自大的吟游诗人，在这个欧洲中世纪的奇幻大陆开始冒险旅程。游戏轻松幽默的剧情，完美的人物配音，以及多元化的故事线是其鲜明的特色。</p> <p>　　游戏特色</p> <p>　　50个敌人类型(不算BOSS)</p> <p>　　一个广阔的世界，在城镇、森林、河流、城堡、塔楼、秘密地下城、雪山、洞穴等探索</p> <p>　　一个充满奇异的NPC的演员阵容</p> <p>　　超过十几名特别BOSS</p> <p>　　16个神奇人物发现，然后随意召唤来帮助你</p> <p>　　超过150个独特的武器装备、装甲、工具、代币、文物和战利品!</p> <p>　　比任何其他游戏更多的歌曲和舞蹈，包括僵尸跳舞!</p> <p>　　超过14个小时的杰出表演，来自顶级的好莱坞人才</p> <p>　　经典游戏 - 包括原始经典游戏吟游诗人的故事1、2和3。</p> <p><h4>下载地址(由网友<font color="red">小酒窝</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/130092/](https://lad.sfcrom.cn/2024/04/130092/)

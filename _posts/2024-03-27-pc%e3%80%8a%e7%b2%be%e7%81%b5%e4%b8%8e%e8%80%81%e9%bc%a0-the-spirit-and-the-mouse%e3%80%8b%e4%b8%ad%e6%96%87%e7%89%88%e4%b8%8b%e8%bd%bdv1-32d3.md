@@ -1,0 +1,13 @@
+---
+title: "PC《精灵与老鼠 The Spirit and the Mouse》中文版下载v1.32d3"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《精灵与老鼠 The Spirit and the Mouse》中文版下载，这是一款冒险解谜游戏，主角是一只小老鼠和和一个神奇的精灵，游戏画质精美，故事动人，喜欢这个类型的玩家不要错过。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Alblune 　　游戏发行：Armor Game&hellip;"
+layout: post
+---
+
+ <p>　　PC《精灵与老鼠 The Spirit and the Mouse》中文版下载，这是一款冒险解谜游戏，主角是一只小老鼠和和一个神奇的精灵，游戏画质精美，故事动人，喜欢这个类型的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=856762168&amp;bvid=BV12V4y1x7Kt&amp;cid=797278280&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1b8f3756.webp" alt="PC《精灵与老鼠 The Spirit and the Mouse》中文版下载v1.32d3" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1b95cdc5.webp" alt="PC《精灵与老鼠 The Spirit and the Mouse》中文版下载v1.32d3" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1b9b3165.webp" alt="PC《精灵与老鼠 The Spirit and the Mouse》中文版下载v1.32d3" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a1ba18b26.webp" alt="PC《精灵与老鼠 The Spirit and the Mouse》中文版下载v1.32d3" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Alblune</p> <p>　　游戏发行：Armor Games Studios</p> <p>　　精灵与老鼠是一款注重叙事的冒险游戏，您将在这个世界中搜索每个角落，收集各种物品以协助自己继续旅途，完成各种目标，帮助需要帮助之人。</p> <p>　　听取村镇居民遇到的问题，寻找乱跑的 Kibblin，解决村镇新近出现的电力问题。做多多的善事，和这些活泼的电力之灵一起协作，Lila 就能帮助 Lumion 重返自己的天空家园。</p> <p>　　扮演拥有宽广心胸的小老鼠 Lila，将友善与光明带给 Sainte-et-Claire 的人们!在这段赏心悦目的叙事冒险中，探索古老风情的法国村镇，结交惊人的朋友，做好事帮助需要帮助的人!</p> <p>　　游戏特色</p> <p>　　探索迷人的法国村镇 Sainte-et-Claire，从小老鼠的视角，按照自己节奏探索这里的秘密!</p> <p>　　使用基于电力的能力，穿越于周遭的世界，解决角色驱动的谜题，将村镇居民的故事赋予生命。</p> <p>　　进行各种任务，帮助遇到遇到麻烦的当地居民;通过趣味十足的迷你游戏，将淘气的 Kibblin 安抚下来。</p> <p>　　在冒险过程中收集能量与欢乐，解锁全新能力。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel Core i7-8550U (4 * 1800), or AMD A8-3850 (4 * 2900), or equivalent</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Intel HD Graphics 620, or Radeon R7 250 (2048 VRAM), or equivalent</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《精灵与老鼠 The Spirit and the Mouse》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">vnhdvbhsd</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53569/](https://lad.sfcrom.cn/2024/03/53569/)

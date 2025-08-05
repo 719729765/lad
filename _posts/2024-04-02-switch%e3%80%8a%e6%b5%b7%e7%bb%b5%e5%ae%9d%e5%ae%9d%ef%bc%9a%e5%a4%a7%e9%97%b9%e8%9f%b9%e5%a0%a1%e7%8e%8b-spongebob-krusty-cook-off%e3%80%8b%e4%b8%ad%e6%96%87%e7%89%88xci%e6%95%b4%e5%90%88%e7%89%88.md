@@ -1,0 +1,13 @@
+---
+title: "switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】！《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook Off》是一款模拟经营类游戏，跟海绵宝宝派大星他们一起制作完美的蟹煲，提供美味的套餐给您的客人，为&hellip;"
+layout: post
+---
+
+ <p>　　switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】！《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook Off》是一款模拟经营类游戏，跟海绵宝宝派大星他们一起制作完美的蟹煲，提供美味的套餐给您的客人，为来宾提供优质快捷的服务!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=587776960&amp;bvid=BV1VB4y1c7Lu&amp;cid=331038779&amp;page=1" width="410"></iframe></p> <p>　　详细介绍</p> <p>　　海绵宝宝:大闹蟹堡王</p> <p>　　让我们开始料理吧!</p> <p>　　同海绵宝宝一起进入比奇堡的各种餐厅和厨房，踏上妙趣横生的料理冒险之旅!</p> <p>　　蟹老板发现快餐生意能让他更快地赚到更多钱，于是这位十分小气的企业家决定扩张他的业务版图，第一步便是在海绵宝宝家门口摆个早餐摊&hellip;&hellip;除了海绵宝宝外，还有谁能更好地帮他呢?</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec02ac87e.webp" alt="switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec036f53f.webp" alt="switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec0420cb1.webp" alt="switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec04a10f2.webp" alt="switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bec055005d.webp" alt="switch《海绵宝宝：大闹蟹堡王 SpongeBob Krusty Cook-Off》中文版xci整合版下载【整合2个DLC】" /></td> </tr> </tbody> </table> <p>　　游戏特色</p> <p>　　美味特色：</p> <p>　　&middot;制作《海绵宝宝》动画中的美食，享受有趣且快节奏的料理游戏体验!</p> <p>　　&middot;观赏《海绵宝宝：大闹蟹堡王》的独家有趣故事</p> <p>　　&middot;与蟹老板、派大星、章鱼哥、珊迪还有许多熟悉的面孔互动!</p> <p>　　&middot;参观你最爱的海绵宝宝地标并料理美食!</p> <p>　　&middot;设计属于你自己的比奇堡餐厅!</p> <p>　　&middot;数以百计的关卡让你掌握厨艺，成为最优秀的大厨!</p> <p>　　&middot;比奇堡及其居民的精美游戏画面!</p> <p>　　美味地点：</p> <p>　　&middot;在海绵宝宝家门口摆一个早餐摊</p> <p>　　&middot;在蟹堡王制作美味蟹堡!</p> <p>　　&middot;在珊迪的树屋制作喷香的德州烧烤!</p> <p><h4>下载地址(由网友<font color="red">MasterYi</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/122370/](https://lad.sfcrom.cn/2024/04/122370/)

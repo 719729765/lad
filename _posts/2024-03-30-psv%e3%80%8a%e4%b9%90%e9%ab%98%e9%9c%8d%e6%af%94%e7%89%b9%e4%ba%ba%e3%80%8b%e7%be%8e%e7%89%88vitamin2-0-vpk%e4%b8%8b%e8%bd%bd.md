@@ -1,0 +1,13 @@
+---
+title: "psv《乐高霍比特人》美版Vitamin2.0 vpk下载"
+date: 2024-03-30
+tags: []
+categories: ["PSV英日游戏"]
+excerpt: "　　psv《乐高霍比特人》美版Vitamin2.0 vpk下载。玩家将会加入比尔博&middot;巴金斯、灰袍甘道夫、矮人王索林的队伍，在整个中土世界展开冒险任务。 　　游戏名称：LEGO The Hobbit 　　中文名称：乐高霍比特人 　　游戏版本：欧版 　　游戏类型：角色扮演类 　　游戏语言：&hellip;"
+layout: post
+---
+
+ <p>　　psv《乐高霍比特人》美版Vitamin2.0 vpk下载。玩家将会加入比尔博&middot;巴金斯、灰袍甘道夫、矮人王索林的队伍，在整个中土世界展开冒险任务。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240330_66077cc1284e8.png" width="627" alt="psv《乐高霍比特人》美版Vitamin2.0 vpk下载" /></p> <p>　　游戏名称：LEGO The Hobbit</p> <p>　　中文名称：乐高霍比特人</p> <p>　　游戏版本：欧版</p> <p>　　游戏类型：角色扮演类</p> <p>　　游戏语言：英文</p> <p>　　制作公司：TT Games</p> <p>　　发行公司：Warner Bros. Interactive Entertainment</p> <p>　　发行日期：2014/04/08</p> <p>　　早前已宣布，这一新作将仍由TT Games操刀，剧情建立在《霍比特人 意外之旅》和即将上映的《霍比特人2 斯毛戈荒漠》两部电影之上。可操控角色将包括游戏人物包括比尔博、甘道夫，还有索林为首的Bofur、 Bombur、Bifu等所有矮人。每人都具有自己的独特能力，比如Bombur的蹦床能力可以帮助伙伴逃脱一些险境。本作还包含多样化的场景，像袋底洞、比尔博的霍比特小屋、迷雾山脉、地精城镇、幽暗密林和精灵城瑞文戴尔。玩家还会遇到多种难题，参与宝藏任务，和兽人、巨魔等怪物战斗。本作也允许玩家挖掘宝石、从敌人身上夺取战利品、研发强大的工艺魔法道具，甚至建立巨大的新乐高建筑。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240330_66077cc245557.png" width="617" alt="psv《乐高霍比特人》美版Vitamin2.0 vpk下载" /></p> <p><h4>下载地址(由网友<font color="red">lengjunyi22</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/87571/](https://lad.sfcrom.cn/2024/03/87571/)

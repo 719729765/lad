@@ -1,0 +1,13 @@
+---
+title: "switch《高地之歌（A Highland Song）》英文版1.1.0补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《高地之歌（A Highland Song）》英文版1.1.0补丁下载《A Highland Song》是一款动作冒险游戏，该游戏的舞台设定在苏格兰北方高地。故事围绕着女主角「Moira McKinnon」展开，她与母亲一起生活在苏格兰高地区。某天，Moira收到叔叔「Hamish」的邀&hellip;"
+layout: post
+---
+
+ <p>switch《高地之歌（A Highland Song）》英文版1.1.0补丁下载《A Highland Song》是一款动作冒险游戏，该游戏的舞台设定在苏格兰北方高地。故事围绕着女主角「Moira McKinnon」展开，她与母亲一起生活在苏格兰高地区。某天，Moira收到叔叔「Hamish」的邀请，邀请她前往海岸灯塔的家进行访问，并表示将会有惊喜等待她。为了到达海洋，Moira需要穿越苏格兰高地，这是一片充满小径、山峰、捷径、危险和歌声的原野。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=875995375&amp;bvid=BV15N4y1S7ih&amp;cid=1332758118&amp;p=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154f05ed639.webp" width="700" alt="switch《高地之歌（A Highland Song）》英文版1.1.0补丁下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154f0659e00.webp" width="700" alt="switch《高地之歌（A Highland Song）》英文版1.1.0补丁下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154f06a919e.webp" width="700" alt="switch《高地之歌（A Highland Song）》英文版1.1.0补丁下载" /></p> <p>　　穿越苏格兰高地的狂野冒险，由《80 天》和《天堂的穹顶》的创作者提供开放的平台和动态的故事讲述。</p> <p>　　莫伊拉&middot;麦金农(Moira McKinnon)正在逃跑。</p> <p>　　要到达大海，莫伊拉必须首先穿越苏格兰高地&mdash;&mdash;一片充满小径、山峰、捷径、危险和歌声的荒野。</p> <p>　　游戏玩法</p> <p>　　* 平台：鳞峰和洞穴洞穴 * 生存：风、雨、寒冷和饥饿是你的敌人 * 导航：收集和定位地图碎片以发现更快的路线* 叙事：学习故事和山丘的秘密</p> <p>　　* 节奏动作：在塔利斯克和第四个月</p> <p>　　令人难以置信的音乐中跳过和跳跃山谷* 重播：发现不断，因此您可以找到最快的路线</p> <p>　　音乐 高地之歌的配乐由 Laurence Chapman 与苏格兰民谣界两位屡获殊荣的巨人 TALISK 和 Fourth Moon 共同创作。这两支乐队是音乐节巡回演出的皇室成员，他们将精湛的器乐演奏与快速、富有创造力的节奏相结合，以传统风格创作出新曲调，演奏出美丽、活力和招摇。</p> <p>　　故事</p> <p>　　十五年来，莫伊拉&middot;麦金农(Moira McKinnon)一直和妈妈一起住在苏格兰高地边缘的一所小房子里。然后有一天，她收到了哈米什叔叔的一封信，敦促她来海边。如果她能到达他的灯塔去找贝尔坦，一个美妙的惊喜将等待着......</p> <p>　　于是，莫伊拉逃跑了。</p> <p>　　山上充满了秘密和故事，但你能找到什么将取决于你去哪里。叙事不是分支，而是编织;历史、神话和家庭秘密的交织。你会发现什么真理?</p> <p>　　世界</p> <p>　　在高地，每座山峰都有一个故事要讲，每个山谷都回荡着歌声。巨人睡觉，鬼魂唱歌，乌鸦传递信息，老鹰举起死者。</p> <p>　　但高地的峭壁是无情的，它的山顶是寒冷的&mdash;&mdash;莫伊拉的跋涉并不容易。</p> <p>　　你能及时帮助莫伊拉找到穿越这片蜿蜒荒野的路吗?</p> <p>　　一首高地之歌 《高地之</p> <p>　　歌》是 INKLE 的最新叙事冒险游戏，INKLE 是 80 天、天堂的穹顶和落水者的获奖创作者!</p> <p>　　探索纵横交错的山丘&mdash;&mdash;有些是人迹罕至的，有些是隐藏的&mdash;&mdash;这些路线充满了故事、失落的东西、回声和回忆。</p> <p>　　攀登山峰以定位自己并计划下一步。然后随着音乐在山谷中跳跃、滑行和跳跃。</p> <p>　　并准备好多次旅行，因为一次旅行不足以发现高地最深的秘密。</p> <p>　　这款 2.5D 横向卷轴冒险游戏融合了手绘动画、印象派绘画风景和动态照明/天气效果，使高地栩栩如生。</p> <p><h4>下载地址(由网友<font color="red">xingruo7</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143812/](https://lad.sfcrom.cn/2024/04/143812/)

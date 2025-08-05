@@ -1,0 +1,13 @@
+---
+title: "【PC】《闪点行动3：红河Operation Flashpoint: Red River》免安装中文汉化硬盘版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC怀旧游戏"]
+excerpt: "　　游戏名称：Operation Flashpoint: Red River 　　中文名称：闪点行动3：红河 　　游戏发行：Codemasters 　　游戏制作：Codemasters 　　游戏语种：简体中文 　　游戏类型：第一人称射击 　　发行日期：2011年04月21日 　　相关内容请访问：闪点&hellip;"
+layout: post
+---
+
+ <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=61719&amp;bvid=BV1vx411c7Wp&amp;cid=102377&amp;page=1" width="410"></iframe></p> <p>　　游戏名称：Operation Flashpoint: Red River</p> <p>　　中文名称：闪点行动3：红河</p> <p>　　游戏发行：Codemasters</p> <p>　　游戏制作：Codemasters</p> <p>　　游戏语种：简体中文</p> <p>　　游戏类型：第一人称射击</p> <p>　　发行日期：2011年04月21日</p> <p>　　相关内容请访问：闪点行动3：红河专区</p> <p>　　版本说明(2013年4月17日更新)：游戏完整无删减，已整合RELOADED破解和3MD汉化v1.0。解压即可玩。</p> <p>　　【安装及运行】</p> <p>　　1、解压压缩包</p> <p>　　2、运行&quot;开始游戏&quot;或游戏原始执行程序进入游戏</p> <p>　　注意：游戏基于Windowx Live平台，装了Live且有账号的可以无视了。没有装的此处下载(第5项)，没有账号的需要创建一个离线账号：</p> <p>　　1)在游戏开始画面按下 HOME 键</p> <p>　　2)选择 &#39;Create New Profile&#39;</p> <p>　　3)把对话框拉到最下方，说明文字内有一行&#39;create a local profile&#39; ，点它，而不是下面的按钮。</p> <p>　　4)随便取名创建个本地账号，开始游戏</p> <p>　　【游戏介绍】</p> <p>　　以拟真的战场环境，并以角色几乎中弹即毙的硬派玩法，自从《闪点行动》系列作发售以来，在众多FPS游戏中已累积了非常多军事迷玩家的青睐。玩家在游戏中已不再是位能够单刀直入、以一挡百的勇士，你只不过是一名效立于美国军队的血肉之躯。正因为如此，游戏非常注重所谓的&quot;战术&quot;概念，藉由指挥小队的方式挺进敌方军营、武力设施等地，进而完成指挥官所下达的任务。</p> <p>　　敌人AI的部份设定的相当聪明，甚至能以令人愤怒来形容，因为他们不仅会逃跑，也会用声东击西的战术来攻击玩家的二翼，造成玩家在措手不及的情况下就被杀死。此外，诱饵战术也是敌人很常见的进攻方式之一，若玩家在搞不清楚的状况下为了杀死诱饵而曝露位置，此时只会被敌人打假的而已。因此玩家在任务点附近巡逻时，若听到侦察兵标示出敌人的位置后，最好别掉以轻心，他们很有可能是诱饵。</p> <p>　　这次《闪点行动3：红河》增加了武器熟练系统，每个兵种各有独立的经验值计算方式，使用枪械杀的敌人愈多，角色对该枪械的熟练度也愈高，并能增加射击时的准确率。此外，玩家也能自订武器的附加套件，例如：狙击镜的倍数、步枪的灭音器等套件，当然，玩家也必须随着任务的内容选用不同的附加套件。</p> <p>　　任务的内容与前作差不多，不过让玩家能呼叫空袭的机会变多了不少，只要玩家能安全地抵达空袭的观察点后，便能呼叫战机或大炮进行大规模轰炸。玩家在游戏中也有机会搭乘/操控多种现实生活中的悍马车、直升机等军用载具。</p> <p>　　【配置要求】</p> <p>　　系统：WindowsXP 32位/Vista/Windows 7</p> <p>　　CPU：酷睿2 2.4GHz或AMD Athlon 64 X2</p> <p>　　内存：1GB RAM (2GB Vista/Windows 7)</p> <p>　　硬盘：6GB剩余空间</p> <p>　　显卡：ATI Radeon X1800或NVIDIA GeForce 7800</p> <p>　　网络：支持英特网，对战需要序列号</p> <p>　　汉化截图：</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660438eb729f2.jpg" width="430" alt="【PC】《闪点行动3：红河Operation Flashpoint: Red River》免安装中文汉化硬盘版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660438ebca188.jpg" width="443" alt="【PC】《闪点行动3：红河Operation Flashpoint: Red River》免安装中文汉化硬盘版下载" /></p> <p><h4>下载地址(由网友<font color="red">yhb831221</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/61372/](https://lad.sfcrom.cn/2024/03/61372/)

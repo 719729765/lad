@@ -1,0 +1,13 @@
+---
+title: "switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载+1.0.3补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载!《甜瓜之旅：苦乐参半的回忆》是一款故事探索游戏，在其中，玩家将被卷入一座视甜瓜为非法事物的城镇上发生的诸多离奇事件中。表面上看起来又傻又萌，但一切真的像看起来那样平静吗? 　　在《甜&hellip;"
+layout: post
+---
+
+ <p>　　switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载!《甜瓜之旅：苦乐参半的回忆》是一款故事探索游戏，在其中，玩家将被卷入一座视甜瓜为非法事物的城镇上发生的诸多离奇事件中。表面上看起来又傻又萌，但一切真的像看起来那样平静吗?</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=483206393&amp;bvid=BV1xT411a7cb&amp;cid=1045639401&amp;page=1" width="410"></iframe></p> <p>　　在《甜瓜之旅：苦乐参半的回忆》中，你将扮演蜜露的角色&mdash;&mdash;她戴着兔耳朵头带，是一家甜瓜汽水工厂的员工，想要找到自己最近失踪的挚友。但去一个持有甜瓜会让你进监狱的城镇真的安全吗?为什么一只仓鼠又会如此执着于潜入猫咪国王的城堡呢?</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7e42155e6.webp" width="700" alt="switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载+1.0.3补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7e426c0d8.webp" width="700" alt="switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载+1.0.3补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7e42c9acb.webp" width="700" alt="switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载+1.0.3补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7e432c4fe.webp" width="700" alt="switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载+1.0.3补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7e438241d.webp" width="700" alt="switch《甜瓜之旅 苦乐参半的回忆 Melon Journey Bittersweet M》中文版nsz下载+1.0.3补丁" /></p></div> <p>　　在这款由Froach Club开发的最新故事探索游戏中解开谜团。探索一个迷人的像素化世界&mdash;&mdash;这里充满了古怪的角色和罪犯，以及又萌又古怪的剧情。</p> <p>　　游戏特色：</p> <p>　　每一步都能遇到谜团</p> <p>　　仔细探查刺猬市的每一寸，收集线索，追踪可疑角色，偷偷摸摸地穿过肮脏的地下世界，赶在一切为时已晚之前用你敏锐的观察力和你的急智拼凑出来龙去脉。</p> <p>　　有着复杂背景故事的蠢萌角色</p> <p>　　在寻找你失踪的朋友时，你会遇到几十个性格独特的有趣生物，他们有时还有着悲惨的背景故事，为完美主义者玩家带来了更多可供解开的谜团。</p> <p>　　爵士低保真配乐</p> <p>　　当你在查案时，可以享受由作曲家markeryjane操刀的超过90支不同的电子和爵士灵感的曲目。</p> <p>　　华丽的复古风图形</p> <p>　　这个绿色调的单色世界充满了有爱的细节，在向经典掌机时代游戏致敬的同时，又兼具大量的现代元素。</p> <p>　　包含短小的前传游戏</p> <p>　　玩家可以选择游玩一个短小而甜蜜的名为《甜瓜之旅口袋版》的前传游戏，主要角色将在其中首次亮相。</p> <p><h4>下载地址(由网友<font color="red">wokaofuda</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124793/](https://lad.sfcrom.cn/2024/04/124793/)

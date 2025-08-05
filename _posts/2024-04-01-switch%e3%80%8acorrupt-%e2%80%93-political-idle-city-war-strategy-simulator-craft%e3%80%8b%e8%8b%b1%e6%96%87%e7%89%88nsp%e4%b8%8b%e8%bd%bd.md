@@ -1,0 +1,13 @@
+---
+title: "switch《Corrupt – Political Idle City War Strategy Simulator Craft》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《Corrupt &ndash; Political Idle City War Strategy Simulator Craft》英文版下载，这是一款模拟游戏，玩家扮演一名政治家管理一个国家，你的选择将影响很多人的生活，感兴趣的玩家可以尝试一下。 　　你有没有想过以总统或黑社会头目&hellip;"
+layout: post
+---
+
+ <p>　　switch《Corrupt &ndash; Political Idle City War Strategy Simulator Craft》英文版下载，这是一款模拟游戏，玩家扮演一名政治家管理一个国家，你的选择将影响很多人的生活，感兴趣的玩家可以尝试一下。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9ad97d917.png" alt="switch《Corrupt – Political Idle City War Strategy Simulator Craft》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9adb90434.png" alt="switch《Corrupt – Political Idle City War Strategy Simulator Craft》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9add35271.png" alt="switch《Corrupt – Political Idle City War Strategy Simulator Craft》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9adedc2df.png" alt="switch《Corrupt – Political Idle City War Strategy Simulator Craft》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　你有没有想过以总统或黑社会头目的身份掌管你的国家?</p> <p>　　为什么两者都不能?</p> <p>　　腐败&mdash;&mdash;政治模拟器是你一直在等待的答案!</p> <p>　　在这场政治策略和模拟游戏中，你最狂野的梦想将成为现实，这将把你引入一个不断变化的迷宫，这个世界是腐败寡头所熟知的。然而，为了在这片阴暗的土地上寻找出路，并最终接管这个国家，你必须通过确保议会议员和部长的忠诚，从字面上掠夺土地上的任何不动产，贿赂你的稳步提升。政治影响力只能让你走这么远，因此，为了在政府中获得一席之地，你还必须巧妙地操纵银行。在利润丰厚的一天结束时，必须有人清洗所有的非法资金，对吗?做一名公务员太累了!</p> <p>　　让媒体站在你这边，将为夺取权力铺平一条更加平坦的道路。第四产业有什么帮助?就像资助宣传一样容易，这样不仅可以洗脑那些愚蠢的选民，还可以从那些无法忍受媒体不断攻击的政客那里获得支持。新闻媒体不会便宜，但他们的成功几乎是有保证的。</p> <p>　　早些时候，商业和住宅资产将被证明是贿赂资金的极好来源。除了帮助你购买影响力，你甚至可以操纵股市。尽管如此，没有什么比破产公司对你更有利的了。由于商店、工厂和租户街区比其垄断对手更容易被丢弃，任何东西都无法摆脱腐败的控制。</p> <p>　　但请记住，每一个行动都有其后果。连续发生太多的欺诈行为会把人们逼到崩溃点，从而导致你被判无可辩驳的监禁。在一个似乎无限贪婪的世界里，即使是政治保护也有其局限性。保持一个仁慈商人的外表有明显的好处，因为没有人怀疑慈善家很长时间了。打好你的牌，这个城市将是你众所周知的牡蛎。</p> <p>　　游戏功能：</p> <p>　　&ndash;控制立法大楼、公司、银行和房地产企业。</p> <p>　　&ndash;雇佣部长、副手、公民、警察，以及工资单上的几乎所有人。</p> <p>　　&ndash;创建离岸客户。</p> <p>　　&ndash;对群众进行头脑风暴。</p> <p>　　&ndash;为了自己的利益，应对抗议和罢工。</p> <p>　　&ndash;获得声誉和成就</p> <p>　　-通过精心规划，探索和破坏整个城市。</p> <p>　　以上内容就是小编为大家带来的《Corrupt &ndash; Political Idle City War Strategy Simulator Craft》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">qwe51686213</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112205/](https://lad.sfcrom.cn/2024/04/112205/)

@@ -1,0 +1,13 @@
+---
+title: "PC《最终幻想7:核心危机 再融合 CRISIS CORE –FINAL FANTASY VII– REUNION》中文版下载v1.0.3版"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《最终幻想7:核心危机 再融合 CRISIS CORE &ndash;FINAL FANTASY VII&ndash; REUNION》中文版下载v1.0.3版!万众期待的最终幻想7:核心危机 再融合终于发售了!无论在画面，剧情还是可玩性都很不错!喜欢的话千万不要错过! 　　发售：2022-12&hellip;"
+layout: post
+---
+
+ <p>PC《最终幻想7:核心危机 再融合 CRISIS CORE &ndash;FINAL FANTASY VII&ndash; REUNION》中文版下载v1.0.3版!万众期待的最终幻想7:核心危机 再融合终于发售了!无论在画面，剧情还是可玩性都很不错!喜欢的话千万不要错过!</p> <p>　　发售：2022-12-14 (PC)</p> <p>　　语言：简中 | 繁中 | 英文 | 日文 | 多国</p> <p>　　类型：角色扮演</p> <p>　　发行：史克威尔艾尼克斯</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603a2faed23a.webp" width="801" alt="PC《最终幻想7:核心危机 再融合 CRISIS CORE –FINAL FANTASY VII– REUNION》中文版下载v1.0.3版" /></p> <p align="center">&nbsp;</p> <p>　　游戏设定于《最终幻想7》正传的7年前，主要讲述扎克斯&middot;菲尔的故事，他是神罗公司旗下准军事部队的年轻神罗战士，受命寻找失踪的高级神罗战士杰尼希斯&middot;拉普索道斯。在寻找杰尼希斯的过程中，扎克斯发现了杰尼希斯的出身&mdash;&mdash;计划G，以及他同另两名高级神罗战士萨菲罗斯和安吉尔&middot;修雷的关系。游戏故事从巨型公司神罗与五台的战争起，经尼布尔海姆事件，最后于《最终幻想VII》开始之前的时间点结束。</p> <p>　　新版本的游戏名称改为《最终幻想7：核心危机 再融合》，游戏虽然并非完全意义上的重制版，但是相比2007年的PSP原版更新了高质量的3D模型，加入了全程角色语音对话，并且对游戏音乐进行了重新编排。</p> <p>　　以上就是小编给大家带来的全部内容啦，更多信息资讯还请大家持续关注游戏年轮呦~</p> <p><h4>下载地址(由网友<font color="red">luoko4407</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51692/](https://lad.sfcrom.cn/2024/03/51692/)

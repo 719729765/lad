@@ -1,0 +1,13 @@
+---
+title: "switch《夏日狂欢 Summertime Madness》正式版中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《夏日狂欢 Summertime Madness》中文版下载，这是一款以益智玩法为主要内容的冒险游戏，主角被困在了一个画中世界，玩家要从这个艺术的世界中逃离，玩家需要帮助他解开画中的谜题。 　　玩家需要扮演一名画家，他与魔鬼达成了交易，受到了欺骗且被困于自己的画布中，他必须想办法回到&hellip;"
+layout: post
+---
+
+ <p>　　switch《夏日狂欢 Summertime Madness》中文版下载，这是一款以益智玩法为主要内容的冒险游戏，主角被困在了一个画中世界，玩家要从这个艺术的世界中逃离，玩家需要帮助他解开画中的谜题。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=541412404&amp;bvid=BV1Vi4y137yH&amp;cid=215286306&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609ff07c6cb8.jpg" alt="switch《夏日狂欢 Summertime Madness》正式版中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609ff08692ea.jpg" alt="switch《夏日狂欢 Summertime Madness》正式版中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609ff0900ca8.jpg" alt="switch《夏日狂欢 Summertime Madness》正式版中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609ff09876be.jpg" alt="switch《夏日狂欢 Summertime Madness》正式版中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609ff0a0f5e2.jpg" alt="switch《夏日狂欢 Summertime Madness》正式版中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　玩家需要扮演一名画家，他与魔鬼达成了交易，受到了欺骗且被困于自己的画布中，他必须想办法回到现实世界。在艺术家自己创造的超现实世界中进行一场梦幻之旅，游戏中设置了有待发现的神秘、有待解决的谜题和有待探索的景致。</p> <p>　　游戏特色</p> <p>　　探索独特的艺术风格和超现实的环境</p> <p>　　有难度的谜题挑战你的创造力</p> <p>　　随着你的进度而不断变化的世界</p> <p>　　有待发现的隐藏秘密</p> <p>　　故事背景</p> <p>　　布拉格</p> <p>　　1945年7月20日</p> <p>　　布拉格被围困，饱受战争的蹂躏。</p> <p>　　建筑倒塌、教堂着火，一切都将永远逝去。一位艺术家住在那里，与世隔绝。战争的恐怖度越高，艺术家就越着迷于描绘美丽的风景画面，与他目睹的罪恶形成鲜明对比。某天晚上，一个神秘的身影突然出现在房子里。神秘人在房间里缓缓而行，仔细打量这些画。然后他在艺术家面前坐了下来。跟他提出一个交易：让艺术家进入自己创造的世界中，远离战争。但他必须在午夜前找到回到现实世界的路，否则他的灵魂将永远围困在画布里。艺术家当时处于孤独、疯狂的边缘，他被街上飘来的死亡气息吓到了，于是他握住神秘男子的手，接受了交易。</p> <p>　　不一会儿，房子里没人了。</p> <p align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609ff0a5ea7e.png" style="width: 508px; height: 120px;" alt="switch《夏日狂欢 Summertime Madness》正式版中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的switch《夏日狂欢 Summertime Madness》正式版中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">yuhua666</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100049/](https://lad.sfcrom.cn/2024/04/100049/)

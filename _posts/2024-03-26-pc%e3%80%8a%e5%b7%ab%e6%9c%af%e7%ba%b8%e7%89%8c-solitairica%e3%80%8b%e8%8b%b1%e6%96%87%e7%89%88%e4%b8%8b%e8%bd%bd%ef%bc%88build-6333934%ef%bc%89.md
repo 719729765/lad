@@ -1,0 +1,13 @@
+---
+title: "PC《巫术纸牌 Solitairica》英文版下载（Build 6333934）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《巫术纸牌 Solitairica》英文版下载，这是一款以卡片战斗为主要玩法的角色扮演游戏，同时加入了roguelike的元素，多种职业、丰富的卡牌内容等待玩家前来体验，喜欢的话大家可以试试哦。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Righteous Hammer Game&hellip;"
+layout: post
+---
+
+ <p>　　PC《巫术纸牌 Solitairica》英文版下载，这是一款以卡片战斗为主要玩法的角色扮演游戏，同时加入了roguelike的元素，多种职业、丰富的卡牌内容等待玩家前来体验，喜欢的话大家可以试试哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=9369140&amp;bvid=BV1Vx411k7Fi&amp;cid=15483035&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f017db37.jpg" alt="PC《巫术纸牌 Solitairica》英文版下载（Build 6333934）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f0265542.jpg" alt="PC《巫术纸牌 Solitairica》英文版下载（Build 6333934）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f03a20ff.jpg" alt="PC《巫术纸牌 Solitairica》英文版下载（Build 6333934）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f043f123.jpg" alt="PC《巫术纸牌 Solitairica》英文版下载（Build 6333934）" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Righteous Hammer Games</p> <p>　　游戏发行：Righteous Hammer Games</p> <p>　　《巫术纸牌》是一款由Righteous Hammer Games制作并发行的角色扮演游戏，游戏结合卡牌、策略和Roguelike元素，玩家需要在一个随机生成的世界中进行冒险，更多多种不同的英雄和职业等待玩家的选择。每个职业都有不同的技能可以学习。在游戏中玩家需要将不同颜色的卡牌按照顺序收集起来，玩家可以使用自己职业的技能帮助自己更快的完成游戏。</p> <p>　　在这款游戏里，有着四种不同的能量，分别是：攻击、防守、敏捷和意志力。他们是能附在纸牌上的魔法能量。游戏的右下方有一个技能槽，集齐三点技能点，就能触发一次技能。每次消除卡牌中附着的魔法能力就能为技能槽添加能量。此外，每翻三次手牌，都能为技能槽随机注入两个技能点!</p> <p>　　攻击：消除拍库中的一张牌，相当于消除效果，但是没有消除奖励。</p> <p>　　防御：为自身添加2点(+X)护甲，这和回血不同，满血也能叠加护甲!</p> <p>　　敏捷：提前查看手牌中的下一张牌是什么。为后面的出牌策略提供更多的信息。</p> <p>　　意志力：回复2点(+X)血量。满血无法发动技能。但是血量较低的时候，有时候能回复更多的血(回血暴击)</p> <p>　　游戏特色</p> <p>　　- 全新的回合制纸牌战斗系统</p> <p>　　- 随机生成的敌人</p> <p>　　- 多种物品和咒语可以组合使用</p> <p>　　- 富有挑战性的动态roguelike</p> <p>　　最低配置:</p> <p>　　操作系统: Windows Vista SP2</p> <p>　　处理器: 1.8 GHz, Dual Core</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: Nvidia 8800, ATI 2900, or Intel HD4000</p> <p>　　DirectX 版本: 9.0c</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《巫术纸牌 Solitairica》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">xiongpengfei</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39701/](https://lad.sfcrom.cn/2024/03/39701/)

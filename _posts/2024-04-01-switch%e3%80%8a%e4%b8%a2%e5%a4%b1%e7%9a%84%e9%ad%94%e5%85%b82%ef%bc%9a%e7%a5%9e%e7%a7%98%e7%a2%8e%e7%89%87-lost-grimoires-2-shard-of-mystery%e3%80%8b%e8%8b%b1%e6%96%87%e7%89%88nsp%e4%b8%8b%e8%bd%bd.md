@@ -1,0 +1,13 @@
+---
+title: "switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版下载，这是一款寻物式的冒险解谜游戏，玩家的任务式寻找被诅咒的国王，很传统的解谜玩法，赶快来尝试一下吧。 　　游戏介绍 　　一场全新的魔法冒险! 　　就在他加冕典礼前不久，年轻的国王弗恩&hellip;"
+layout: post
+---
+
+ <p>　　switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版下载，这是一款寻物式的冒险解谜游戏，玩家的任务式寻找被诅咒的国王，很传统的解谜玩法，赶快来尝试一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=886569170&amp;bvid=BV11K4y1p7wR&amp;cid=295679542&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c3cb1e99.jpg" alt="switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c3d3a3fc.jpg" alt="switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c3dc214b.jpg" alt="switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c3e599c8.jpg" alt="switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c3f015be.jpg" alt="switch《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　一场全新的魔法冒险!</p> <p>　　就在他加冕典礼前不久，年轻的国王弗恩和一个神秘的女孩一起消失了。皇家保护女神和老师被赋予追踪并将他带回来的任务。</p> <p>　　访问神秘的地点!</p> <p>　　找回继承人的探险将引导主人公穿越梦幻般的森林，充满魔法的地方和生物。</p> <p>　　复杂的迷宫和智力游戏!</p> <p>　　她将会面对错综复杂的隐藏物品智力游戏和精心设计的迷宫来实现她的目标。</p> <p>　　引人入胜的密谋和任务特征!</p> <p>　　老师也将会遇到一些不同寻常的角色并面对恶毒的毛毡苔来发现会降临到王国的诅咒的秘密。</p> <p>　　炼金术士对抗黑魔法!</p> <p>　　使用炼金术神秘物件的只是，保护女神将会竭尽全力保护王子弗恩免受迫在眉睫的致命威胁。她会成功吗?王国的未来就在你的手中!</p> <p>　　游戏特色</p> <p>　　开始一场充满炼金术和魔法的新冒险!</p> <p>　　游历31个神秘地点!</p> <p>　　解决复杂的智力游戏并找到完成迷宫的正确方法!</p> <p>　　遇到极具吸引力的人物!</p> <p>　　使用你的炼金术技能拯救王子!</p> <p>　　以上内容就是小编为大家带来的《丢失的魔典2：神秘碎片 Lost Grimoires 2 Shard of Mystery》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">zhoumouren66</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112990/](https://lad.sfcrom.cn/2024/04/112990/)

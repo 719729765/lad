@@ -1,0 +1,13 @@
+---
+title: "【DC】《Dancing Blade Katte ni Momotenshi II – Tears of Eden Kanzenban》日版Disc 1下载"
+date: 2024-03-19
+tags: []
+categories: ["DC游戏"]
+excerpt: "　　【DC】《Dancing Blade Katte ni Momotenshi II &ndash; Tears of Eden Kanzenban》日版Disc 1下载，本作是一款音乐舞蹈休闲类游戏，玩家选择一首你喜欢的音乐，根据指示做出相应的动作完成一段舞蹈。 　　担任杂志神秘学专栏记者的男主&hellip;"
+layout: post
+---
+
+ <p>　　【DC】《Dancing Blade Katte ni Momotenshi II &ndash; Tears of Eden Kanzenban》日版Disc 1下载，本作是一款音乐舞蹈休闲类游戏，玩家选择一首你喜欢的音乐，根据指示做出相应的动作完成一段舞蹈。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240319_65f9b1141d7cc.png" width="602" alt="【DC】《Dancing Blade Katte ni Momotenshi II – Tears of Eden Kanzenban》日版Disc 1下载" /></p> <p>　　担任杂志神秘学专栏记者的男主角济慈，因接受陌生女性的电话请托而前往雷姆利克村，却发现了已死去的请托人，于是留在村庄中调查;仍旧读大学的女主角艾莲，某日接获早已死去的母亲的来信，因而来到指定碰面地点的雷姆利克村。不同出身背景的两人，一同踏入了未知的神秘领域...</p> <p>　　游戏的世界由位于现实世界与死亡世界之间的7个&ldquo;异界&rdquo;所构成，每个异界各有不同的主题风格，由超现实的五彩缤纷景物所构成，有着各式各样的住民，玩家将操作济慈，在7 个异界中冒险，并发挥其所具备的独特&ldquo;本我(Id)抽出&rdquo;能力，来收服各种异族(THE Folks)，并驱使它们进行战斗。</p> <p><h4>下载地址(由网友<font color="red">shengtu007</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/11437/](https://lad.sfcrom.cn/2024/03/11437/)

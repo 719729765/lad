@@ -1,0 +1,13 @@
+---
+title: "switch《疯狂高楼大亨 Mad Tower Tycoon》中文版1.0.4补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《疯狂高楼大亨 Mad Tower Tycoon》中文版。模拟经营游戏，设计自己超过100层的摩天大楼，租用办公室。建造电影院，酒吧或剧院，以让访客们得到满足，从而收获大量利润。 　　《疯狂高楼大亨(Mad Tower Tycoon)》是一款城市模拟建造类的游戏，在游戏中设计你自己的摩天&hellip;"
+layout: post
+---
+
+ <p>switch《疯狂高楼大亨 Mad Tower Tycoon》中文版。模拟经营游戏，设计自己超过100层的摩天大楼，租用办公室。建造电影院，酒吧或剧院，以让访客们得到满足，从而收获大量利润。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=99229847&amp;bvid=BV1j741117EM&amp;cid=169385876&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661539f1c5fe3.jpg" alt="switch《疯狂高楼大亨 Mad Tower Tycoon》中文版1.0.4补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661539f2478b8.jpg" alt="switch《疯狂高楼大亨 Mad Tower Tycoon》中文版1.0.4补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661539f2cb5af.jpg" alt="switch《疯狂高楼大亨 Mad Tower Tycoon》中文版1.0.4补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661539f35d77b.jpg" alt="switch《疯狂高楼大亨 Mad Tower Tycoon》中文版1.0.4补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661539f3d6cc1.jpg" alt="switch《疯狂高楼大亨 Mad Tower Tycoon》中文版1.0.4补丁下载" /></td> </tr> </tbody> </table> <p>　　《疯狂高楼大亨(Mad Tower Tycoon)》是一款城市模拟建造类的游戏，在游戏中设计你自己的摩天楼超过100层。租用办公室、公寓或商店，建造一个利润丰厚的摩天大楼。建造电影院，酒吧或剧院，以满足您的访客，并建立一个有效的运输系统与电梯和楼梯。</p> <p>　　在游戏中，玩家可以设计自己超过100层的摩天大楼。在这栋高耸入云的摩天大楼中，完全按照自己的设计方式，安排办公室、公寓或商店的位置。建造电影院、酒吧或剧院以满足前来此处游玩的访客需求。</p> <p>　　《疯狂高楼大亨》有些像是GBA世代任天堂推出的《千年家族》，不过这款游戏中电梯更加真实可控。也有地震、火灾等各种各样的随机事件，甚至丧尸和UFO还会到访。通过完成每天的任务还可以提升等级，由此带来新的技能。详细的统计数据能够让高楼的管理员玩家你自己制定更好的建造计划。</p> <p>　　游戏介绍</p> <p>　　真实的电梯系统</p> <p>　　浪费等待时间好吗?应该删除一些楼层吗?没问题：在《疯狂高楼大亨》电梯系统允许你进行不同的设置。避免您的客人爬过多的楼梯或等待太久的电梯。</p> <p>　　随机事件</p> <p>　　不仅不满意的房客会给您带来麻烦。新办公室火灾，地震发生时，不明飞行物绑架了您的租户。不同的事件带来了变化和可玩性。</p> <p>　　等级系统</p> <p>　　完成日常任务，并具有良好的统计数据以积累经验。获得技能点并解锁50多种技能。</p> <p>　　详细统计</p> <p>　　您想查看哪些楼层肮脏或噪音难以忍受?最近24小时有多少访客?最近30天内我获得了更高的利润吗?统计数据和过滤器会给你很多关于你的摩天大楼的状态信息。</p> <p><h4>下载地址(由网友<font color="red">wzl213313</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146239/](https://lad.sfcrom.cn/2024/04/146239/)

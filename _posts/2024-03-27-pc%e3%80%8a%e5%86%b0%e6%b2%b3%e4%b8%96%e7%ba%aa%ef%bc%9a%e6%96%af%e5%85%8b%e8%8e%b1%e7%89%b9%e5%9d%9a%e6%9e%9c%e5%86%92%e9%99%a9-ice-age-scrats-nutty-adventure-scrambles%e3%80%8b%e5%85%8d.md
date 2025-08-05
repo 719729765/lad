@@ -1,0 +1,13 @@
+---
+title: "PC《冰河世纪：斯克莱特坚果冒险 Ice Age: Scrat&#039;s Nutty Adventure Scrambles》免安装中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《冰河世纪：斯克莱特坚果冒险 Ice Age: Scrat&#039;s Nutty Adventure Scrambles》免安装中文版下载，这是一款根据动画电影冰河世纪改编的冒险游戏，主角是原作中的人气角色哦。 　　故事介绍 　　斯克莱特在上演一场全新的追寻! 剑齿松鼠斯克莱特在上演一场坚&hellip;"
+layout: post
+---
+
+ <p>　　PC《冰河世纪：斯克莱特坚果冒险 Ice Age: Scrat&#39;s Nutty Adventure Scrambles》免安装中文版下载，这是一款根据动画电影冰河世纪改编的冒险游戏，主角是原作中的人气角色哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=243267921&amp;bvid=BV1ie411W7iM&amp;cid=194634892&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391e9ec3d4.jpg" alt="PC《冰河世纪：斯克莱特坚果冒险 Ice Age: Scrat&amp;#039;s Nutty Adventure Scrambles》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391ea72529.jpg" alt="PC《冰河世纪：斯克莱特坚果冒险 Ice Age: Scrat&amp;#039;s Nutty Adventure Scrambles》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391eaea7da.jpg" alt="PC《冰河世纪：斯克莱特坚果冒险 Ice Age: Scrat&amp;#039;s Nutty Adventure Scrambles》免安装中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660391eb6eb20.jpg" alt="PC《冰河世纪：斯克莱特坚果冒险 Ice Age: Scrat&amp;#039;s Nutty Adventure Scrambles》免安装中文版下载" /></td> </tr> </tbody> </table> <p>　　故事介绍</p> <p>　　斯克莱特在上演一场全新的追寻! 剑齿松鼠斯克莱特在上演一场坚果追寻记!他所真爱的物品被禁锢在古老的斯克莱塔松神庙里面&mdash;&mdash;取回它的唯一方法就是找到散落在原野的四颗传说中的&ldquo;水晶坚果&rdquo;。</p> <p>　　准备好引导斯克莱特进行搞笑的3D动作大冒险，与史前生物作战，在富有戏剧性的灾难中求生，并解锁神奇的新能。</p> <p>　　&quot;与斯克莱特一起追寻&ldquo;水晶坚果&rdquo;</p> <p>　　&ldquo;冰河世纪&rdquo;中最受欢迎的剑齿松鼠斯克莱特在全新的大冒险中再度亮相!在古老的斯克莱塔松神庙中，一个神秘的装置禁锢了他所珍爱的物品&mdash;&mdash;取回它的唯一方法就是一场史诗追寻，找到散落在原野的四颗传说中的&ldquo;水晶坚果&rdquo;。</p> <p>　　由你负责引导斯克莱特进行搞笑的3D动作冒险，你将面对凶猛的史前生物，在疯狂的灾难中求生，并将失落的宝物归还其主。</p> <p>　　进入&ldquo;冰河世纪&rdquo;的世界!</p> <p>　　准备探访众多经典的&ldquo;冰河世纪&rdquo;场景地，你将在冰柱之间跳跃，乘坐猛烈的间歇泉，越过燃烧的岩浆，并到达难以企及的高度，一路伴随斯克莱特搞笑的谐趣杂耍。沿途你甚至会看到一些熟悉的&ldquo;冰河世纪&rdquo;的朋友!</p> <p>　　寻找特殊的能力!</p> <p>　　探索充满冒险的场景地，发现能解锁特殊能力的宝藏并帮助斯克莱特跳得更高，捕捉更重的物品并找到所有最后的宝藏。</p> <p>　　这是一个充满危险的世界</p> <p>　　得到&ldquo;水晶坚果&rdquo;需要勇气!准备对付凶猛的狼群、潜伏的昆虫、巨大的史前巨兽、以及&mdash;&mdash;最危险的&mdash;&mdash;斯克莱特永无止境的霉运!&quot;</p> <p><h4>下载地址(由网友<font color="red">wkn666</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53031/](https://lad.sfcrom.cn/2024/03/53031/)

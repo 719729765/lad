@@ -1,0 +1,13 @@
+---
+title: "PS4《地平线：零之黎明 Horizon Zero Dawn Complete》中日英三语字幕金手指下载【PKG修改补丁+白金存档】"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "PS4《地平线：零之黎明 Horizon Zero Dawn Complete》中日英三语字幕金手指下载【PKG修改补丁+白金存档】。游戏极其逆天的画面广受玩家们的好评，各种画面上的细节也是处理的十分好，玩家在体验游戏剧情的同时仿佛身临其境。 　　《地平线 零之黎明》以末日浩劫后千年的世界为舞台，旧&hellip;"
+layout: post
+---
+
+ <p>PS4《地平线：零之黎明 Horizon Zero Dawn Complete》中日英三语字幕金手指下载【PKG修改补丁+白金存档】。游戏极其逆天的画面广受玩家们的好评，各种画面上的细节也是处理的十分好，玩家在体验游戏剧情的同时仿佛身临其境。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614e8f79ae51.webp" width="533" alt="PS4《地平线：零之黎明 Horizon Zero Dawn Complete》中日英三语字幕金手指下载【PKG修改补丁+白金存档】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614e8f80855e.webp" width="533" alt="PS4《地平线：零之黎明 Horizon Zero Dawn Complete》中日英三语字幕金手指下载【PKG修改补丁+白金存档】" /></p> <p>　　《地平线 零之黎明》以末日浩劫后千年的世界为舞台，旧文明时代建立的辉煌都市都已成为被植物覆盖的废墟，整个世界被机器生物主宰。玩家将扮演一出生就被视为异类而长年遭到排斥的机器生物猎人亚萝伊，她将打破族裡长久的禁忌，探索机器生物之所以主宰世界的千年谜团。</p> <p>　　游戏特色</p> <p>　　1、巨大的游戏场景，可以自由的探索这个区域。</p> <p>　　2、数量庞大的生物型机器人，并且相当危险。</p> <p>　　3、类不再是最优种群，以部落的方式生存着。</p> <p>　　4、玩家可以在游戏中捕猎，野生动物同样存在。</p> <p>　　5、游戏支持玩家创作各种武器，存在交易系统。</p> <p>　　这款游戏就为大家介绍到这里了，推荐给对动作角色扮演类游戏感兴趣的玩家朋友们。</p> <p><h4>下载地址(由网友<font color="red">j77165</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139049/](https://lad.sfcrom.cn/2024/04/139049/)

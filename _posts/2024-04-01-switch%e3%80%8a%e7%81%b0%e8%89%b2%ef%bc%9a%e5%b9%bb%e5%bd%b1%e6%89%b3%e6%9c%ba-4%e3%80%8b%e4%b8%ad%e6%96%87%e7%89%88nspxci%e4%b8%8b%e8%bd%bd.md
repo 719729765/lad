@@ -1,0 +1,13 @@
+---
+title: "switch《灰色：幻影扳机 4》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《灰色：幻影扳机 4》中文版。这个系列作品的第四作，是一款剧情丰富的视觉小说游戏。游戏没有任何分支路线，而除此之外，游戏内的画面和场景都制作得极为精致细腻。 　　最近从圣爱尔国际学校转过来的Kumashiro Megumi(Gumi)，已经和Rena和Maki一起努力训练，现在已经完&hellip;"
+layout: post
+---
+
+ <p>　　switch《灰色：幻影扳机 4》中文版。这个系列作品的第四作，是一款剧情丰富的视觉小说游戏。游戏没有任何分支路线，而除此之外，游戏内的画面和场景都制作得极为精致细腻。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=32643744&amp;bvid=BV1LW411S7Je&amp;cid=57126276&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0704ccffe.webp" alt="switch《灰色：幻影扳机 4》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a070537a53.webp" alt="switch《灰色：幻影扳机 4》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0705ac748.webp" alt="switch《灰色：幻影扳机 4》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0706268f5.webp" alt="switch《灰色：幻影扳机 4》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a07067b267.webp" alt="switch《灰色：幻影扳机 4》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　最近从圣爱尔国际学校转过来的Kumashiro Megumi(Gumi)，已经和Rena和Maki一起努力训练，现在已经完全康复了。在她的导师Tohka的帮助下，她成为了一个优秀的狙击手。</p> <p>　　就在一个新学生安顿下来的时候，另一个A班的女孩学生也开始考虑加入Mihama的精英战斗部队。她的名字吗?Sengoku Taiga，而团队的管理者Haruto为Taiga的加入提出了一个条件:就是克里斯必须担任她的监督官。</p> <p>　　起初，这两个人似乎很不合伙，但在与Taiga加相处一段时间后，克里斯很快就找到了一种能够从她的角度看待事物的方法。</p> <p>　　就在此时，这个国家突然遭受了前所未有的恐怖袭击。克里斯冲到现场，虽然意识到危险的存在，但是却不顾前方的危险。就像她曾经做过的那样。</p> <p>　　&ldquo;这比我们想象的还要糟糕&hellip;&hellip;&rdquo;</p> <p>　　&ldquo;两个家伙死了!&rdquo;</p> <p>　　&ldquo;发生了什么事?到底发生了什么! ?&rdquo;</p> <p>　　&ldquo;你知道把核武器带进这个国家意味着什么吗?&rdquo;</p> <p>　　&ldquo;这太可怕了，第一次向别人开枪&hellip;&hellip;&rdquo;</p> <p>　　&ldquo;我的腿在颤抖。&rdquo;</p> <p>　　&ldquo;傻瓜&hellip;她想把一切都毁了吗?&rdquo;</p> <p>　　死亡人数持续上升，但SORD被困在一旁无助地观望。究竟是什么命运在等待着克里斯，泰加&hellip;&hellip;还是Mihama学院吗?</p> <p>　　&ldquo;哦,对了&hellip;我必须死&hellip;&hellip;&rdquo;</p> <p>　　紧紧抓依靠她死去的母亲的记忆，她也在为永恒的睡眠做准备&hellip;&hellip;</p> <p><h4>下载地址(由网友<font color="red">benlachuai</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100755/](https://lad.sfcrom.cn/2024/04/100755/)

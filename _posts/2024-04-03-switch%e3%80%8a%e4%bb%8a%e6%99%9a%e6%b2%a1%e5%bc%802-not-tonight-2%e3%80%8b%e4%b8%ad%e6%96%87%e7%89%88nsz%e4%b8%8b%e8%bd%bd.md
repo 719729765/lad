@@ -1,0 +1,13 @@
+---
+title: "switch《今晚没开2 Not Tonight 2》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch游戏《今晚没开2 Not Tonight 2》中文版正式发布，这是一款很有趣的模拟类游戏，《今晚没开2》讲述了美国境内的一次长途旅行，你在途中需要检查他人的身份证明。此外，游戏融入了时间管理与角色扮演游戏的元素，加上政治色彩浓厚的黑色幽默，每一次抉择都会产生一定的影响。 　　移民执法第1&hellip;"
+layout: post
+---
+
+ <p>switch游戏《今晚没开2 Not Tonight 2》中文版正式发布，这是一款很有趣的模拟类游戏，《今晚没开2》讲述了美国境内的一次长途旅行，你在途中需要检查他人的身份证明。此外，游戏融入了时间管理与角色扮演游戏的元素，加上政治色彩浓厚的黑色幽默，每一次抉择都会产生一定的影响。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=763177826&amp;bvid=BV1L64y187Dy&amp;cid=414555125&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d87601905e.webp" alt="switch《今晚没开2 Not Tonight 2》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d876081f09.webp" alt="switch《今晚没开2 Not Tonight 2》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8760ed5e8.webp" alt="switch《今晚没开2 Not Tonight 2》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d87616b258.webp" alt="switch《今晚没开2 Not Tonight 2》中文版nsz下载" /></td> </tr> </tbody> </table> <p>　　移民执法第112号：你已被捕。除非你的朋友能够横跨支离破碎的美国，拿到你的身份证明，同时摆脱所有麻烦&hellip;&hellip;不然，你的美国梦就到此为止了。</p> <p>　　在一个平行世界，美国支离破碎，资本主义与政治权欲掌控了整个国家，你的朋友也失踪了。爱德华多&middot;苏亚雷斯参加某次示威游行被抓，目前等待送往迈阿密古拉格。</p> <p>　　《今晚没开2》讲述了美国境内的一次长途旅行，你在途中需要检查他人的身份证明。此外，游戏融入了时间管理与角色扮演游戏的元素，加上政治色彩浓厚的黑色幽默，每一次抉择都会产生一定的影响。爱德华多的三个朋友马利克、凯文和玛丽能否找到他的身份证明，有能否及时送到迈阿密?美国梦会不会就此终结?</p> <p>　　游戏特色</p> <p>　　&bull; 三个剧情分支，游戏文案团队的成员背景多样</p> <p>　　&bull;横跨美国，路上需要做出诸多恐怖的决定</p> <p>　　&bull;你的工作需要接触夜店的客人、教堂的信徒、赛车场的观众、赌徒和邪教徒</p> <p>　　&bull;查看他人的身份证明，完成各种搞笑、给力的小游戏</p> <p>　　&bull;节奏游戏、词语联想、上肉饼堡、评判宗教、检查肉鸡等等小游戏</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 8</p> <p>　　处理器: Intel Core i5</p> <p>　　内存: 3 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 550/equivalent or higher</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《今晚没开2 Not Tonight 2》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">fkuequjg</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124484/](https://lad.sfcrom.cn/2024/04/124484/)

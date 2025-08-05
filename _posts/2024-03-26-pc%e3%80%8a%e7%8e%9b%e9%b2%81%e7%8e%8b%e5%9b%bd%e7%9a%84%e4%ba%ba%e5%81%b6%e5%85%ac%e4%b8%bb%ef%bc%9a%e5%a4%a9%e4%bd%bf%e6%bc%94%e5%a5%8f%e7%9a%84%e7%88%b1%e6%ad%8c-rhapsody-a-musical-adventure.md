@@ -1,0 +1,13 @@
+---
+title: "PC《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版下载，这是一款老游戏，角色扮演类型的玩法，为玩家带来了和音乐有关的动人故事，感兴趣的玩家不要错过。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Nippon Ichi Softw&hellip;"
+layout: post
+---
+
+ <p>　　PC《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版下载，这是一款老游戏，角色扮演类型的玩法，为玩家带来了和音乐有关的动人故事，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=683862861&amp;bvid=BV1cU4y1S7Ch&amp;cid=712889926&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d9852377.jpg" alt="PC《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d98c813d.jpg" alt="PC《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d9947f3f.jpg" alt="PC《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034d9a210e8.jpg" alt="PC《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Nippon Ichi Software, Inc./Engine Software BV</p> <p>　　游戏发行：NIS America, Inc.</p> <p>　　《玛鲁王国的人偶公主：天使演奏的爱歌》是日本游戏制造商Software公司制作的一款以音乐为主题的角色扮演类游戏，在游戏中，玩家扮演能够与人偶交流的公主，在游戏中利用人偶及音乐解决各种难题。</p> <p>　　游戏介绍</p> <p>　　唤醒你对的 NIS 记忆，体验为深受喜爱的 Disgaea 系列奠定基础的游戏 Rhapsody: A Musical Adventure 。更清晰的画质和全新的图像优化让这一经典作品来到了现代。</p> <p>　　游戏中有许多原创歌曲和插曲。色彩丰富的动画人物和背景，以及直观、等距的战斗系统和多难度等级，为新玩家和资深角色扮演游戏玩家提供了一些东西。潜入并发现爱和音乐!</p> <p>　　在战斗中使用短号角等功能获得优势，这可以让你在给予赞赏点的同时增强你的木偶。一旦木偶获得足够的赏识点，他们将获得具有各种强大效果的特殊奖励!此外，每个角色(和敌人)都有一个元素亲和性，赋予他们一组独特的法术。将这些法术与其他角色的基本技能结合使用，以利用敌人的弱点。但请记住，每个元素都有自己的弱点!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel Core2 Quad Q9300 2.5 GHz</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: Radeon HD 5450</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《玛鲁王国的人偶公主：天使演奏的爱歌 Rhapsody: A Musical Adventure》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">hedge</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41800/](https://lad.sfcrom.cn/2024/03/41800/)

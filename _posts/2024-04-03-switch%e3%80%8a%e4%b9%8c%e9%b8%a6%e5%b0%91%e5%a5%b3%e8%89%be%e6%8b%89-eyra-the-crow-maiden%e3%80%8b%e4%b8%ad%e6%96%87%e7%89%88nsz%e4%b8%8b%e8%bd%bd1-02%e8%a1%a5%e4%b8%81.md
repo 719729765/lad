@@ -1,0 +1,13 @@
+---
+title: "switch《乌鸦少女艾拉 Eyra The Crow Maiden》中文版nsz下载+1.02补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《乌鸦少女艾拉 Eyra The Crow Maiden》中文版nsz下载+1.02补丁在《Eyra： The Crow Maiden》中扮演 Koruhaurus 部落的年轻女祭司 Eyra，踏上史诗般的冒险之旅!加入艾拉和她忠诚的乌鸦伙伴努卡玛，踏上危险的任务，从邪恶的地狱掠夺者的魔&hellip;"
+layout: post
+---
+
+ <p>switch《乌鸦少女艾拉 Eyra The Crow Maiden》中文版nsz下载+1.02补丁在《Eyra： The Crow Maiden》中扮演 Koruhaurus 部落的年轻女祭司 Eyra，踏上史诗般的冒险之旅!加入艾拉和她忠诚的乌鸦伙伴努卡玛，踏上危险的任务，从邪恶的地狱掠夺者的魔掌中拯救他们部落中被绑架的战士。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=867900386&amp;bvid=BV1ZV4y1o7XA&amp;cid=1108270176&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d83b0b6cf1.webp" width="700" alt="switch《乌鸦少女艾拉 Eyra The Crow Maiden》中文版nsz下载+1.02补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d83b130a1e.webp" width="700" alt="switch《乌鸦少女艾拉 Eyra The Crow Maiden》中文版nsz下载+1.02补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d83b19cdb0.webp" width="700" alt="switch《乌鸦少女艾拉 Eyra The Crow Maiden》中文版nsz下载+1.02补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d83b216546.webp" width="700" alt="switch《乌鸦少女艾拉 Eyra The Crow Maiden》中文版nsz下载+1.02补丁" /></p></div> <p>　　《EyraKoruhaurus 部落的年轻女祭司 Eyra，踏上之旅!一款引人入胜的 8 位独立游戏，融合了探索和动作平台元素。Nunkamah，在危险的任务中，从邪恶的地狱掠夺者的魔掌中解救他们部落中被绑架的战士。</p> <p>　　特征：</p> <p>　　身临其境的故事情节：潜入在丛林中神秘的寺庙城市中展开的丰富叙事。见证艾拉的旅程，她成为一个聪明的人，并利用她的知识和智慧来保护她的人民免受即将到来的黑暗。</p> <p>　　动感十足的战斗：与强大的敌人和危险的生物进行惊心动魄的战斗。利用 Eyra 的独特技能和 Nunkamah 的空中攻击来抵御威胁您部落的邪恶势力。</p> <p>　　其他游戏内功能：</p> <p>　　新的滤色器：通过一系列新的滤色器让自己沉浸在游戏的氛围中，增强视觉体验并允许您自定义您的冒险。</p> <p>　　声音测试模式下的配乐：在闲暇时欣赏&ldquo;Eyra&#39;s Quest： Chronicles of the Jungle Temple&rdquo;的迷人音乐。在声音测试模式下解锁游戏的配乐，重温令人着迷的曲调。</p> <p>　　游戏内完整手册：在游戏本身中访问完整的手册，提供有关控件、游戏机制和提示的宝贵见解，以充分利用您作为 Eyra 和 Nunkamah 的旅程。</p> <p>　　你准备好加入 Eyra 和 Nunkamah</p> <p>　　的勇敢追求，将他们的部落从黑暗的魔掌中拯救出来了吗?准备好在》中开启一场充满危险、智慧和自我发现的!</p> <p><h4>下载地址(由网友<font color="red">379014139</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124146/](https://lad.sfcrom.cn/2024/04/124146/)

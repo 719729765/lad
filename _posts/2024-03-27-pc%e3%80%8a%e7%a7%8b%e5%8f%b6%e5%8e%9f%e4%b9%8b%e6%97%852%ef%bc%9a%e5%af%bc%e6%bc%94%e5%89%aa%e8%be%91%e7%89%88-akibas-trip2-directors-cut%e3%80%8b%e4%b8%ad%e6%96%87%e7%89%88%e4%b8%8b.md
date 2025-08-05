@@ -1,0 +1,13 @@
+---
+title: "PC《秋叶原之旅2：导演剪辑版 AKIBA&#039;S TRIP2 Director&#039;s Cut》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《秋叶原之旅2：导演剪辑版 AKIBA&#039;S TRIP2 Director&#039;s Cut》中文版下载！《秋叶原之旅2》舞台设置在具有电器店、女仆咖啡厅、饮食店等超过130家真实存在的店铺完美还原的秋叶原街道，被改造成人造吸血鬼&ldquo;魔骸者&rdquo;的主&hellip;"
+layout: post
+---
+
+ <p>PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载！《秋叶原之旅2》舞台设置在具有电器店、女仆咖啡厅、饮食店等超过130家真实存在的店铺完美还原的秋叶原街道，被改造成人造吸血鬼&ldquo;魔骸者&rdquo;的主人公将在这展开非常激烈的战斗，了解在秋叶原发生的谜之事件以及其背后隐藏的巨大的阴谋，选择不同女主角迎来不同的结局。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=697839719&amp;bvid=BV1bm4y1y79G&amp;cid=1103658863&amp;page=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5d984c05.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5da13bad.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5da9c04a.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5db4a9a0.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5dbd8f24.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5dc74530.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5dd11e35.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b5dda3f36.webp" width="700" alt="PC《秋叶原之旅2：导演剪辑版 AKIBA&amp;#039;S TRIP2 Director&amp;#039;s Cut》中文版下载" /></p></div> <p>&nbsp;</p> <p><h4>下载地址(由网友<font color="red">yunyou945</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53777/](https://lad.sfcrom.cn/2024/03/53777/)

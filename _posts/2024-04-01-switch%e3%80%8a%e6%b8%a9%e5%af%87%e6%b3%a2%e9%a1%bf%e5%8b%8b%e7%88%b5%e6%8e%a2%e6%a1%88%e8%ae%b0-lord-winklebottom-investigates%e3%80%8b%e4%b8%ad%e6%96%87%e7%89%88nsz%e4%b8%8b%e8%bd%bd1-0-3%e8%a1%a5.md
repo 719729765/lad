@@ -1,0 +1,13 @@
+---
+title: "switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁，这是一款推理探案题材的解谜游戏，游戏中的角色都是动物，为玩家带来了一个古典风格的推理故事，赶快来体验吧。 　　本作的游戏背景设定在20世纪20年代，剧情受阿加莎&amp;midd&hellip;"
+layout: post
+---
+
+ <p>switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁，这是一款推理探案题材的解谜游戏，游戏中的角色都是动物，为玩家带来了一个古典风格的推理故事，赶快来体验吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=686425174&amp;bvid=BV1tU4y1v7VU&amp;cid=787076448&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9e880a4d.webp" alt="switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9e8e8832.webp" alt="switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9e94cefb.webp" alt="switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9e9cd8cc.webp" alt="switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9ea2f4b4.webp" alt="switch《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版nsz下载+1.0.3补丁" /></td> </tr> </tbody> </table> <p>　　本作的游戏背景设定在20世纪20年代，剧情受阿加莎&middot;克里斯蒂的作品及《福尔摩斯》的启发，堪称古典派的英式谋杀悬疑作品。</p> <p>　　故事介绍</p> <p>　　20世纪20年代，全球首屈一指的侦探即将接手一桩空前棘手的案子。神秘的邀请，与世隔绝的海岛，丧心病狂的命案，只有争分夺秒，才能抓住凶手。虽然这个世界与我们的世界不同，所幸这位大侦探的身份不同凡响&mdash;&mdash;长颈鹿绅士温寇波顿勋爵，他的探案能力也是傲视全球。</p> <p>　　化身温寇波顿勋爵与他忠实的同伴佛伦坡博士，一同调查老友的惨案。寻觅线索，讯问可疑动物，破解谜题，发现案件的真相，抓住凶手，揭露犬魔岛深处丧尽天良的阴暗之事!</p> <p>　　游戏特色</p> <p>　　全程英文配音。</p> <p>　　现场录制的1920年代风格原创器乐音轨。</p> <p>　　化身长颈鹿绅士!</p> <p>　　与众不同的2D手绘美术。</p> <p>　　动物角色大小、体型各异!</p> <p>　　指向点击界面简约明了。</p> <p>　　光怪陆离的角色等你讯问!</p> <p>　　几十环谜题等你破解!</p> <p>　　以上内容就是小编为大家带来的《温寇波顿勋爵探案记 Lord Winklebottom Investigates》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">423021836</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101643/](https://lad.sfcrom.cn/2024/04/101643/)

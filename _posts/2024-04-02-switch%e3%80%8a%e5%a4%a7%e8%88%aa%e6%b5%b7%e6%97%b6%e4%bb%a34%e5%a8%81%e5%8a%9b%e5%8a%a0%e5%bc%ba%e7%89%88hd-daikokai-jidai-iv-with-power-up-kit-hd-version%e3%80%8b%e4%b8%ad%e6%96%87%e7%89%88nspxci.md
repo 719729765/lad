@@ -1,0 +1,13 @@
+---
+title: "switch《大航海时代4威力加强版HD Daikokai Jidai IV with Power Up Kit HD Version》中文版nsp/xci整合版下载【含1.02补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　switch《大航海时代4威力加强版 Daikokai Jidai IV with Power Up Kit HD Version》中文版nsp/xci下载!今天小编为各位玩家朋友带来一款相当经典的模拟经营类游戏大航海时代4威力加强版，可以说这款游戏满足小编对于环球旅行的幻想，想象一下玩家需要在&hellip;"
+layout: post
+---
+
+ <p>　　switch《大航海时代4威力加强版 Daikokai Jidai IV with Power Up Kit HD Version》中文版nsp/xci下载!今天小编为各位玩家朋友带来一款相当经典的模拟经营类游戏大航海时代4威力加强版，可以说这款游戏满足小编对于环球旅行的幻想，想象一下玩家需要在未知的海洋上探索新大陆，并且开辟各种商务航线，实现往来通商，并在这个过程中推动剧情发展，最终成为各大海域的霸主</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=459678718&amp;bvid=BV1z5411P75e&amp;cid=312305743&amp;page=1" width="410"></iframe></p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bea5f1f766.webp" style="width: 786px; height: 437px;" alt="switch《大航海时代4威力加强版HD Daikokai Jidai IV with Power Up Kit HD Version》中文版nsp/xci整合版下载【含1.02补丁】" /></p> <p>　　游戏设定</p> <p>　　《大航海时代4》对于冒险方面进行了简化，只有一些主要城市才拥有遗迹，自动航行以及加速翻倍的鹰船首像都大大提高了游戏的节奏，这一开始让不少玩家难以适应。与之相反的是，在船只、海员、战斗等方</p> <p>　　面做出了细化。游戏中玩家在世界各地旅行，可以收罗到许多海员，玩家可以把他们放才船仓里的不同位置，以达到各种效果加成，比如船医可以减少病害消耗，炮手可以增加命中率，操帆手可以让帆自动调整角度，战斗队长可以让白刃战无不胜，参谋可以出谋划策打击对手。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bea5f885d1.webp" alt="switch《大航海时代4威力加强版HD Daikokai Jidai IV with Power Up Kit HD Version》中文版nsp/xci整合版下载【含1.02补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bea5ff02f0.webp" alt="switch《大航海时代4威力加强版HD Daikokai Jidai IV with Power Up Kit HD Version》中文版nsp/xci整合版下载【含1.02补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240402_660bea606cc50.webp" alt="switch《大航海时代4威力加强版HD Daikokai Jidai IV with Power Up Kit HD Version》中文版nsp/xci整合版下载【含1.02补丁】" /></td> </tr> </tbody> </table> <p>　　《大航海时代4》的战斗完全改成了即时制，玩家最多可操纵5艘船和敌人作战，白刃时会有几率引发单挑，单挑分为两种，一种是我方冲锋队长和对方老大单干，赢了就能直接拿下对手，一种是全船人物海员和对方群殴，输的会损失大量水手。如果你不愿意自己战斗的话，还可以组建地方舰队，替你去征伐敌寇，当然也可以让他们做贸易挣钱。组建地方舰队的条件是，玩家必须先拥有一海的霸者之证。在玩家征战四海的过程中，并不一定要完全消灭对手，通过经济压制和战斗让游戏中的NPC势力变弱，然后通过威压来使他成为自己的下属势力，每月为自己上缴税款。</p> <p>　　在航海操作方面，由于技术的提升而越发的真实，游戏加入了风帆操作的元素，玩家需要根据风向通过左右键来调整角度，以求达到最快速度。另外与其他不同之处在于，DK4海战是在大地图上进行的，因此要考虑风力风向，海岸情况等各种要素;而海战时炮击，白刃战都是自动进行，更加注重玩家对船只的操纵。</p> <p><h4>下载地址(由网友<font color="red">1234lxs</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/121844/](https://lad.sfcrom.cn/2024/04/121844/)

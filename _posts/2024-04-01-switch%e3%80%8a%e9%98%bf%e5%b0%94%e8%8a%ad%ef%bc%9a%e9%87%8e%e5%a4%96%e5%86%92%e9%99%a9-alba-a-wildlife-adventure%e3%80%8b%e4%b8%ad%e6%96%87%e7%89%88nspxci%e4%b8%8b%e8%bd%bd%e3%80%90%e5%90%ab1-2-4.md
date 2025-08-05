@@ -1,0 +1,13 @@
+---
+title: "switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版nsp/xci下载【含1.2.4补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　【内含原版+TX专用9.2魔改版】switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版。来自《纪念碑谷》与《用心组装》游戏团队兼 BAFTA 奖得主的全新游戏。与阿尔芭一起拯救她美丽的岛屿以及野生动物，或许还会引发一场革命。 　　与阿尔芭一起到一个地中海小岛&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用9.2魔改版】switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版。来自《纪念碑谷》与《用心组装》游戏团队兼 BAFTA 奖得主的全新游戏。与阿尔芭一起拯救她美丽的岛屿以及野生动物，或许还会引发一场革命。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=713110949&amp;bvid=BV1KX4y1u7Ts&amp;cid=265779479&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a008368dbb.jpg" alt="switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版nsp/xci下载【含1.2.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0083d7e55.jpg" alt="switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版nsp/xci下载【含1.2.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a00844db41.jpg" alt="switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版nsp/xci下载【含1.2.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a0084c1d76.jpg" alt="switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版nsp/xci下载【含1.2.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a00853fa4b.jpg" alt="switch《阿尔芭：野外冒险 Alba A Wildlife Adventure》中文版nsp/xci下载【含1.2.4补丁】" /></td> </tr> </tbody> </table> <p>　　与阿尔芭一起到一个地中海小岛探望她的爷爷奶奶。她已经准备和好友伊内斯一起度过一个宁静的夏天，进行野生动物探索，但是当她看到一只动物处于危险之中时，她意识到自己必须有所行动。</p> <p>　　如果不理会这些垃圾，这里也堪称是地中海天堂!从田园诗般的海滩到可以俯瞰城镇的古老城堡，您可以随心所欲地探索整个岛屿。在伊内斯和您爷爷(他是个标准的鸟类爱好者)的陪伴下，您可以开始进行拯救该岛屿的运动，之后甚至还会拯救世界。</p> <p>　　-手工制作的视觉效果。岛上每一处都是用了心思精心设计的。相信我，这是我们花了一段时间创造的</p> <p>　　- 与阿尔芭和伊内斯一起创立&ldquo;阿伊野生动物拯救联盟&rdquo;(还真够绕口的)，这是一个可以拯救岛屿的组织</p> <p>　　- 您将需要聚集一帮志愿者，而镇上到处都是好心人。帮助他们，然后说服他们加入您的行列</p> <p>　　- 到处都是动物，您能找到所有的物种吗?</p> <p>　　您可以期待：</p> <p>　　- 好听的音乐。我们与 Lorena Alvarez 合作制作了西班牙风格的超棒音乐</p> <p>　　- 这是让您放松身心的长征。自行安排在岛上的时间，并按照自己的节奏体验冒险。不要急</p> <p>　　- 这是一个您想长期待下的地方。我们按照自己童年时期的夏天，创造了这个地方。我们还真希望能回到过去呢，不过至少我们有了这个岛</p> <p>　　- 总的来说，这是一个关于到处去做好事、让您身心愉快的的好游戏</p> <p><h4>下载地址(由网友<font color="red">张肖氏</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101331/](https://lad.sfcrom.cn/2024/04/101331/)

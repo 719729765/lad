@@ -1,0 +1,13 @@
+---
+title: "3DS《牧场物语 起源的大地 Harvest Moon 3D – A New Beginning》美版3ds下载"
+date: 2024-03-29
+tags: []
+categories: ["3DS英日游戏"]
+excerpt: "　　3DS《牧场物语 起源的大地 Harvest Moon 3D &ndash; A New Beginning》美版3ds下载。《牧场物语起源的大地》是由Marvelous AQL制作发行的一款模拟经营游戏，《牧场物语起源的大地》与系列其他作品一样，玩家仍然可以在自己的牧场中建造农场，饲养家畜，然&hellip;"
+layout: post
+---
+
+ <p>　　3DS《牧场物语 起源的大地 Harvest Moon 3D &ndash; A New Beginning》美版3ds下载。《牧场物语起源的大地》是由Marvelous AQL制作发行的一款模拟经营游戏，《牧场物语起源的大地》与系列其他作品一样，玩家仍然可以在自己的牧场中建造农场，饲养家畜，然后与镇上的人恋爱、结婚、生子等等，享受喧嚣都市中不可能享受到的田园生活。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660624ab56848.png" width="597" alt="3DS《牧场物语 起源的大地 Harvest Moon 3D – A New Beginning》美版3ds下载" /></p> <p>　　主角从父母那里得到了一座小小的牧场，牧场位于一个荒凉的小镇上，人迹罕至，一片萧条。一天主角在路上偶遇一位摔倒的老爷爷，救起后从老爷爷的口中得知，镇上的年轻人全都移民到条件便利的大都市当中去了，原本充满活力的小镇才会变得落魄不堪。就是这样一座起初连作物和动物都没有的小小牧场，不过，如果努力培育各种作物，多赚一些资金，好好建设牧场和小镇的话，说不定大家都会回来，小镇也会再次恢复以往的繁华。于是我们的主人公担负起了振兴小镇的重任。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660624ac704d1.png" width="599" alt="3DS《牧场物语 起源的大地 Harvest Moon 3D – A New Beginning》美版3ds下载" /></p> <p>　　游戏特色</p> <p>　　本作采用最新的3D图像处理技术，通过3DS的立体呈像机能，游戏中的所有画面都将被3D化，使玩家能够体验到更为真实的牧场生活。</p> <p>　　全新的纸娃娃系统使得玩家不仅可以选择主人公性别，还可对角色的发型、表情、服装等进行自定义，创造出个性的主人公。并且本作中牧场的建筑可以自由规划，想把家建在哪里就可以搬到哪里，不仅是牧场，整个小镇的建设发展全都可以由玩家来DIY，真正意义上的建设出属于玩家的独一无二的小镇。</p> <p>　　农场种植方面新增了更有立体感的梯田，可种植的蔬果种类也有了大幅增加，并且可以通过暖棚温室系统种植反季节蔬菜。</p> <p>　　系列中经典的恋爱系统也将被进一步发扬光大，结婚生子，与心爱的伴侣共同去南国、古遗迹等地方旅行，体会更为丰富的田园生活。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240329_660624adc50ee.png" width="597" alt="3DS《牧场物语 起源的大地 Harvest Moon 3D – A New Beginning》美版3ds下载" /></p> <p><h4>下载地址(由网友<font color="red">京津冀123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/74431/](https://lad.sfcrom.cn/2024/03/74431/)

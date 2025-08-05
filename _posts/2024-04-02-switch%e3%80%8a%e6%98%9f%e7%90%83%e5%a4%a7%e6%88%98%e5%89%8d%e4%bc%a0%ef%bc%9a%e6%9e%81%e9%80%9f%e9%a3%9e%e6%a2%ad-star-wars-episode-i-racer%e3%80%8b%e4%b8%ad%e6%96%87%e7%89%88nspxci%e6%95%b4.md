@@ -1,0 +1,13 @@
+---
+title: "switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版nsp/xci整合版下载【1.0.4补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci整合版"]
+excerpt: "　　switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版下载。一款赛车竞速游戏;玩家要扮演一名银河旅行者参加各种赛车比赛，赢得奖金，在经历了八个不同星球上的24场赛车比赛后;最后去获得Boonta Eva Classic的殊荣。 　　游戏设定 　　游戏最出&hellip;"
+layout: post
+---
+
+ <p>　　switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版下载。一款赛车竞速游戏;玩家要扮演一名银河旅行者参加各种赛车比赛，赢得奖金，在经历了八个不同星球上的24场赛车比赛后;最后去获得Boonta Eva Classic的殊荣。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=36318475&amp;bvid=BV16t41117zr&amp;cid=63760674&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/00e008e2babaf15705bd6e89c10193d8.jpg" alt="switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版nsp/xci整合版下载【1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/a0425141ffb609a1fff6e065f61c253d.jpg" alt="switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版nsp/xci整合版下载【1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/8cf9b98210de00d0fa36efb192eea474.jpg" alt="switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版nsp/xci整合版下载【1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/49a5f2ce668c23c35c2577ac69197a8a.jpg" alt="switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版nsp/xci整合版下载【1.0.4补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/06-24/2a58b080180af6937feb0f64da9e3d07.jpg" alt="switch《星球大战前传：极速飞梭 STAR WARS Episode I Racer》中文版nsp/xci整合版下载【1.0.4补丁】" /></td> </tr> </tbody> </table> <p>　　游戏设定</p> <p>　　游戏最出色的是它的速度感，当你以每小时超过600公里的速度悬浮在地面上飞驰时;</p> <p>　　几乎已经让人无暇去观看两边的景致了，这种速度感在以前的赛车游戏里面只怕从来都没有的吧;</p> <p>　　也许是由于表现的场景相对专业，整个游戏表现出来的平滑度也让人满意;</p> <p>　　在各个场景中提供了上下翻滚的道路、狭长的隧道、冰冷的水底等等，可玩性相当出色。</p> <p>　　游戏内容</p> <p>　　星球大战：前线将带你体验三个星球的3种模式，包含：</p> <p>　　Walker Assault on Hoth:作为抵抗军在一场40人的史诗级对战中消灭帝国AT-AT Y-wing轰炸机编队。</p> <p>　　或者选择帝国阵营，保护步行机免受抵抗军侵袭，利用他们强有力的武器系统摧毁抵抗军。</p> <p>　　Drop Zone on Sullust: 逃生舱毁坏了，你和你的队伍必须战斗控制对方。</p> <p>　　8V8对战模式，Drop Zone这张地图确实是对你战斗能力和策略技巧的考验。</p> <p>　　Survival Mission on Tatooine: 单人游戏或者和朋友一起玩，也可以分屏游戏。</p> <p>　　抵抗帝国军的袭击包括AT-ST，钛战机，精英帝国突击队及更多。</p> <p><h4>下载地址(由网友<font color="red">pianren1128</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/122326/](https://lad.sfcrom.cn/2024/04/122326/)

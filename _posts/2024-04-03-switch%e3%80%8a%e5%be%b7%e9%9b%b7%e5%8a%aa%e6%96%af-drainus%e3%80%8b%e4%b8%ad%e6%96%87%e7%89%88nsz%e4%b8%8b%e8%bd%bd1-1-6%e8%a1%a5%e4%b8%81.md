@@ -1,0 +1,13 @@
+---
+title: "switch《德雷努斯 DRAINUS》中文版nsz下载+1.1.6补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《德雷努斯 DRAINUS》中文版nsz下载+1.1.6补丁，这是一款复古街机风格的横版射击游戏，是一个很出色的独立游戏，在内容上借鉴了不少经典作品的元素，喜欢横版射击游戏的玩家不妨来关注一下吧。 　　游戏类型：射击类(STG)游戏 　　游戏制作：Team Ladybug/WSS pla&hellip;"
+layout: post
+---
+
+ <p>switch《德雷努斯 DRAINUS》中文版nsz下载+1.1.6补丁，这是一款复古街机风格的横版射击游戏，是一个很出色的独立游戏，在内容上借鉴了不少经典作品的元素，喜欢横版射击游戏的玩家不妨来关注一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=726816096&amp;bvid=BV1GS4y1z7jt&amp;cid=727013871&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7aae24c76.webp" alt="switch《德雷努斯 DRAINUS》中文版nsz下载+1.1.6补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7aae7ecb6.webp" alt="switch《德雷努斯 DRAINUS》中文版nsz下载+1.1.6补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7aaed6953.webp" alt="switch《德雷努斯 DRAINUS》中文版nsz下载+1.1.6补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7aaf3f662.webp" alt="switch《德雷努斯 DRAINUS》中文版nsz下载+1.1.6补丁" /></td> </tr> </tbody> </table> <p>　　游戏类型：射击类(STG)游戏</p> <p>　　游戏制作：Team Ladybug/WSS playground</p> <p>　　游戏发行：WSS playground/PLAYISM</p> <p>　　本作是一款横版 飞行射击游戏，你将驾驶能够吸收能量弹的&ldquo;逆流号&rdquo;，打倒充斥在宇宙中的敌机。吸收的能量可以用于扩张机体的性能，例如为机体追加武器等等。</p> <p>　　本作最大的特色就是能够吸收敌弹的&ldquo;反射&rdquo;系统。</p> <p>　　一旦开启，就可以在一定时间内吸收敌人的攻击，并将吸收的能量化为己用，对敌人进行反击。</p> <p>　　故事背景</p> <p>　　在宇宙苦于加拉尔帝国的暴政之时，宇宙角落的赫尔帕克斯星球中，被抓来这里的一名男**隶饱受病痛折磨。为了治好他的&ldquo;星球适应障碍&rdquo;，必须将他送回他那遥远的故乡。</p> <p>　　同样身为奴隶的他的女儿伊莉娜，也对父亲的病无计可施。</p> <p>　　而就在这时，一名有着青蛙般古怪长相的仿生人呱尼现身并告诉她：&ldquo;我来自于30年后的未来。那里发生了银河战争，超过5000颗星球被加拉尔帝国所毁灭。我是为了阻止这场战争并终结加拉尔帝国的暴政而来到了这个时代。希望你能助我一臂之力。&rdquo;</p> <p>　　伊莉娜不知道他为何会选上自己，也完全不知道自己能做什么。但父亲的病症日渐加重&hellip;&hellip;她没时间犹豫，也没有别的选择。唯有选择和呱尼合作。</p> <p>　　你们闯入充斥着加拉尔帝国军的宇宙，一边打倒他们，一边朝着父亲那遥远的故乡进发。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 2000 / XP / Vista / 7 / 8 / 10</p> <p>　　处理器: Intel Core2 Duo or higher</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Open GL compliant video card</p> <p>　　存储空间: 需要 200 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《德雷努斯 DRAINUS》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">xioncxz</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124137/](https://lad.sfcrom.cn/2024/04/124137/)

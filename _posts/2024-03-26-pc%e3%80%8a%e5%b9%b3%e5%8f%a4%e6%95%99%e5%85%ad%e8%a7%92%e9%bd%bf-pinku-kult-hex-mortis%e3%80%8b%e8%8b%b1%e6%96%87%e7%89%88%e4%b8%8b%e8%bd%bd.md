@@ -1,0 +1,13 @@
+---
+title: "PC《平古教六角齿 Pinku Kult Hex Mortis》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《平古教六角齿 Pinku Kult Hex Mortis》英文版下载，这是一款回合制对战玩法的角色扮演游戏，画风很有冲击力，用强烈的色彩为玩家营造了一个迷离的幻想世界，赶快来关注一下吧。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Pinku Kult/Valorware 　　游&hellip;"
+layout: post
+---
+
+ <p>　　PC《平古教六角齿 Pinku Kult Hex Mortis》英文版下载，这是一款回合制对战玩法的角色扮演游戏，画风很有冲击力，用强烈的色彩为玩家营造了一个迷离的幻想世界，赶快来关注一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=854395754&amp;bvid=BV1A54y1o7Y2&amp;cid=729286181&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d68513bc.jpg" alt="PC《平古教六角齿 Pinku Kult Hex Mortis》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d68d032f.jpg" alt="PC《平古教六角齿 Pinku Kult Hex Mortis》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d69703d5.jpg" alt="PC《平古教六角齿 Pinku Kult Hex Mortis》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033d6a5434c.jpg" alt="PC《平古教六角齿 Pinku Kult Hex Mortis》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Pinku Kult/Valorware</p> <p>　　游戏发行：Valorware</p> <p>　　欢迎来到RAZORE CITY--一个荒凉、阴暗的大都市，有一个大问题：恶魔。在这个基于叙事的RPG游戏中，你要控制自己的Razore城居民，调查城市周围发生的怪异事件，并追踪背后的主谋</p> <p>　　游戏介绍</p> <p>　　跳进品库库特的世界!遇到一群五颜六色的人物，与可怕的恶魔面对面。</p> <p>　　迷失在Razore City和狐狸面具女孩的神秘中。你能在太迟之前阻止她吗?</p> <p>　　穿过危险的地牢和鬼屋，击倒邪恶的敌人，解决复杂的谜题。</p> <p>　　拯救Razore城绝非易事!准备好在激烈的boss战斗中与强大的敌人较量。</p> <p>　　升级你的弃儿队伍，加入老派的回合制RPG战斗。</p> <p>　　美丽的插图和独特的原创人物。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: Pentium 4 or better</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: Integrated graphics</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　声卡: Integrated</p> <p>　　推荐配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel I5</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: NVidia 680 or higher</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　声卡: Integrated</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制DARKSiDERS文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《平古教六角齿 Pinku Kult Hex Mortis》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">loginkknd</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/38855/](https://lad.sfcrom.cn/2024/03/38855/)

@@ -1,0 +1,13 @@
+---
+title: "switch《双点医院加量版 Two Point Hospital JUMBO Edition》中文版nsp/xci整合版下载【1.0.14+5DLC】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《双点医院 Two Point Hospital》中文版下载。玩家可以在游戏中打造一流医院、治疗稀奇古怪的病症、管理各种棘手的医护人员，将你刚起步的医疗机构规模扩大至整个双点县。 实机视频 　　《双点医院(Two Point Hospital)》是一款由制作发行的模拟经营类游戏，本作&hellip;"
+layout: post
+---
+
+ <p>　　switch《双点医院 Two Point Hospital》中文版下载。玩家可以在游戏中打造一流医院、治疗稀奇古怪的病症、管理各种棘手的医护人员，将你刚起步的医疗机构规模扩大至整个双点县。</p> <p style="text-align: center;"><strong><span style="font-size:18px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=31024643&amp;cid=54181462&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa328830f.webp" width="576" alt="switch《双点医院加量版 Two Point Hospital JUMBO Edition》中文版nsp/xci整合版下载【1.0.14+5DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa32f12b5.webp" width="576" alt="switch《双点医院加量版 Two Point Hospital JUMBO Edition》中文版nsp/xci整合版下载【1.0.14+5DLC】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fa3367e43.webp" width="576" alt="switch《双点医院加量版 Two Point Hospital JUMBO Edition》中文版nsp/xci整合版下载【1.0.14+5DLC】" /></p> <p>　　《双点医院(Two Point Hospital)》是一款由制作发行的模拟经营类游戏，本作为1997年发售的风格轻快、幽默搞笑游戏《主题医院》的续作，打造一流医院、治疗稀奇古怪的病症、管理各种棘手的医护人员，将你刚起步的医疗机构规模扩大至整个双点县。等到你医疗帝国的非凡实力征服了全世界，即可参与协作研究项目，对双点县的全球医疗社群做出贡献;或者在竞争激烈的多人挑战中展示你的医疗实力。</p> <p>　　游戏特点</p> <p>　　设计和建造属于你自己的医院!</p> <p>　　你将从无到有建造一座医院，设计整个双点县最美观、或是服务水平最高的医疗机构。</p> <p>　　优化你的医院设计，精确规划走廊、病房和等待区，以增加病患流量(以及现金收入)。如果想要让尽可能多的患者前来就诊，不妨将医院扩展到数栋大楼之多。</p> <p>　　还可以在医院中放置各种装饰性和功能性设施，提高医院的名望、避免患者无聊、提升幸福感、并在年底收获大量评奖。</p> <p>　　处理&ldquo;非常&rdquo;的病症</p> <p>　　不要以为来双点医院的都是普通病人。你会在这里会见识到各种各样罕见的病症。从光头症到立体症，每一种病症都需要专用的特效治疗设备。</p> <p>　　你必须诊断病因、建造处理病症所需的治疗室、雇佣合适的员工、并做好一切准备，因为成功治疗一种疾病只是你整个医疗生涯的开始。也许你可以治疗一个病人，但是你能够应对流行锅病大爆发吗?</p> <p>　　克服了一种病症以后，可以研究优化的治疗方案和设备，将医院打造成一座永不沉没的医疗航母。</p> <p>　　改良并扩展你的医院帝国!</p> <p>　　第一座医院只是你迈出的第一步，接下来要做什么呢?</p> <p>　　在医治了港口小镇的所有居民以后，你能否面对一座更为繁忙的医院所带来的挑战呢?</p> <p>　　改良设施、升级设备、员工、和医院布局，更多更快地治病挣钱。</p> <p>　　训练并提高你的员工能力、提升他们的等级、学习新的技术和能力，让医院工作效率大大提升。</p> <p>　　利用完善的数据和信息界面，分析你的优势和劣势，并快速进行调整。你还可以调整治疗费用、追踪病人流动率、贷款投资、并优化你的收益。</p> <p>　　你将会管理一大群拥有独特性格和属性的员工，所以你需要熟悉他们每个人的工作绩效，并找出其中的害群之马。努力赚取利润(或许顺便救人治病)，还要在你的野心和职工的福祉之间找到一个良好的平衡。</p> <p><h4>下载地址(由网友<font color="red">xujie155</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101862/](https://lad.sfcrom.cn/2024/04/101862/)

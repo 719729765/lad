@@ -1,0 +1,13 @@
+---
+title: "switch《星球大战绝地武士：绝地学院 STAR WARS Jedi Knight Jedi Academy》中文版nsp/xci整合版下载【含1.0.5补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《星球大战绝地武士：绝地学院》中文版下载。这款游戏基本上可以算作为《Star Wars Jedi Outcast》的后继作品，顾名思义，游戏以绝地武士学院里的生活为主要卖点，玩家可以像LUKE天行者一样，成为绝地武士学徒。 实机视频 &nbsp; 在这款FPS游戏中，玩家必须逐步训练自己&hellip;"
+layout: post
+---
+
+ <p>switch《星球大战绝地武士：绝地学院》中文版下载。这款游戏基本上可以算作为《Star Wars Jedi Outcast》的后继作品，顾名思义，游戏以绝地武士学院里的生活为主要卖点，玩家可以像LUKE天行者一样，成为绝地武士学徒。</p> <p style="text-align: center;"><strong><span style="font-size:18px;">实机视频</span></strong></p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=4785196&amp;bvid=BV1vs411i7Ei&amp;cid=7765361&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a01c5bfb10.webp" alt="switch《星球大战绝地武士：绝地学院 STAR WARS Jedi Knight Jedi Academy》中文版nsp/xci整合版下载【含1.0.5补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a01c621cf5.webp" alt="switch《星球大战绝地武士：绝地学院 STAR WARS Jedi Knight Jedi Academy》中文版nsp/xci整合版下载【含1.0.5补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a01c690317.webp" alt="switch《星球大战绝地武士：绝地学院 STAR WARS Jedi Knight Jedi Academy》中文版nsp/xci整合版下载【含1.0.5补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a01c749944.webp" alt="switch《星球大战绝地武士：绝地学院 STAR WARS Jedi Knight Jedi Academy》中文版nsp/xci整合版下载【含1.0.5补丁】" /></td> </tr> </tbody> </table> <p>&nbsp;</p> <p>在这款FPS游戏中，玩家必须逐步训练自己的绝地武士，同时透过种族、性别、服装等内容的选择，让玩家可以自己打造出自己独创专属的绝地武士。另外除了人物之外，就连玩家的武器光剑也可以自己来设计，玩家可以在游戏中取得某些特定道具，并藉由这些道具来强化改造自己的武器。另外游戏中也准备许多其他的武器让玩家使用，如光线来福枪、电磁枪等等。而游戏中也备有单人与多人等模式，让玩家不管是自己玩还是跟朋友一起玩都能享受到游戏独特的乐趣。</p> <p><h4>下载地址(由网友<font color="red">max112233</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100370/](https://lad.sfcrom.cn/2024/04/100370/)

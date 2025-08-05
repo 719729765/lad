@@ -1,0 +1,13 @@
+---
+title: "switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁!《Lone Ruin》是一款注重可玩性的法术类肉鸽风格双摇杆射击游戏。玩家扮演一名探险家，在一个废弃的魔法城市中边冒险边寻找神秘的古老力量，这个城市建在远古法师用来为自己提供能量和改造的魔法源头之上。 switch《孤独废&hellip;"
+layout: post
+---
+
+ <p>　　switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁!《Lone Ruin》是一款注重可玩性的法术类肉鸽风格双摇杆射击游戏。玩家扮演一名探险家，在一个废弃的魔法城市中边冒险边寻找神秘的古老力量，这个城市建在远古法师用来为自己提供能量和改造的魔法源头之上。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=650193627&amp;bvid=BV1CY4y1f7xz&amp;cid=963407890&amp;page=1" width="410"></iframe></p> <p>switch《孤独废墟 LONE RUIN》中文版nsz下载+1.0补丁！一款像素风但又画质细腻的&lsquo;地牢弹幕射击动作Rogue&rsquo;游戏，爽快的打击感、丰富的武器、技能、遗物，怪物制作也很棒，诚意感满满！双模式：地牢模式、生存模式，可以说玩法多样，技能、武器、遗物搭配非常棒！<br />绝对是一款2023年开年最棒游戏！</p> <p>&nbsp;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d270f54d.webp" width="500" alt="switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁" /></p> <p>　　《Lone Ruin》为过去曾开发2D动作射击《Hell is Other Demons》的瑞典Cuddle Monster Games开发、将Roguelike随机关卡要素与动作射击要素相结合，让玩家使用魔法之力来与敌人战斗的新作游戏。在游戏中，将以过去曾经繁荣一时，如今却已经化为废墟的魔法都市作为舞台。在这片过去人们与魔法和平共存的土地上，如今人们却因为魔法而陷入疯狂变成各种异形怪物，成为生人勿近的活人禁区。而玩家将饰演擅长魔法的冒险家，前往这片被称为「Lone Ruin」的废墟，来解开沉眠在这块土中的古代力量真相，净化这座腐朽的都市。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d2774c21.webp" alt="switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d27d3e73.webp" alt="switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d283c1dd.webp" alt="switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7d289b71f.webp" alt="switch《孤独废墟 LONE RUIN》中文版nsz下载+1.1补丁" /></td> </tr> </tbody> </table> <p>　　在游戏中，玩家将使用各种魔法来迎战不断来袭的敌人，不断深入这座废墟的深处。而游戏最大的特征，就在于将会提供各种类型魔法让玩家自由使用，玩家可以依照自己的玩法习惯来选择适合的魔法，例如像是单发的射击魔法、能在购自己周无展开会给人伤害的光束的光束魔法等等;玩家还可以透过冒险提升能力来升级魔法威力，或是透过不同的自定义选项来编组自己喜欢的强力魔法连击。而且随着玩家所选的前进路线不同，每次游玩都会有不同的新奇挑战，也让游戏更加耐玩。附带一提，目前本作除了故事模式外，还有让玩家们来挑战会成波状分成好几波来袭的</p> <p><h4>下载地址(由网友<font color="red">wangkefigo</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124522/](https://lad.sfcrom.cn/2024/04/124522/)

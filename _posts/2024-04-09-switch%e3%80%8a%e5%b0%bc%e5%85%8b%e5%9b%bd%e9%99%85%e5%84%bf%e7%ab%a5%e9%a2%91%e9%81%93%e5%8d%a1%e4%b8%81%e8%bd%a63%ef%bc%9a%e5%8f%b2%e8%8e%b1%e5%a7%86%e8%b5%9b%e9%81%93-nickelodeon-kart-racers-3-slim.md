@@ -1,0 +1,13 @@
+---
+title: "switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版Turbo Pack DLC"
+date: 2024-04-09
+tags: []
+categories: ["最新DLC"]
+excerpt: "　　switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版下载，这是趣味赛车游戏Nickelodeon Kart Racers系列的第三部，和派大星等经典的卡通角色一起进行卡丁车的比拼。 　　游戏介绍 　　新一代N&hellip;"
+layout: post
+---
+
+ <p>　　switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版下载，这是趣味赛车游戏Nickelodeon Kart Racers系列的第三部，和派大星等经典的卡通角色一起进行卡丁车的比拼。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a30b315e.jpg" alt="switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版Turbo Pack DLC" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a313e20b.jpg" alt="switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版Turbo Pack DLC" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a31b70b2.jpg" alt="switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版Turbo Pack DLC" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a325ef57.jpg" alt="switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版Turbo Pack DLC" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a32f1039.jpg" alt="switch《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版Turbo Pack DLC" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　新一代Nickelodeon Kart Racers火热上线!</p> <p>　　全新架构，全新创意，Nickelodeon Kart Racers优化升级，震撼回归!包含40多个经典角色，赛道设计灵感来自家喻户晓的Nickelodeon节目：《SpongeBob SquarePants》、《Teenage Mutant Ninja Turtles》、《Avatar: The Last Airbender》 等等，任玩家尽情漂移、滑行、加速，一路驰骋至终点!</p> <p>　　游戏特色：</p> <p>　　&bull; 40多个Nickelodeon经典角色</p> <p>　　&bull; Nickelodeon Kart Racers的首场配音大秀!</p> <p>　　&bull; 可将卡丁车或全新摩托车变形为船艇，驾驭全新地形</p> <p>　　&bull; 全新神秘自定义关卡：将Raphael与Reptar mobile配对，更换涂装和零部件，或尝试其他千变万化的奇妙组合!</p> <p>　　&bull; 90名机组成员身怀不同特殊能力，可根据游戏风格随心挑选</p> <p>　　&bull; 36条风格迥异的新旧赛道：各个可选路线中充斥着大量Slime生物</p> <p>　　&bull; 在激情四射的竞技场模式中，可直面其他车手的挑战</p> <p>　　&bull; 激情四射的多玩家分屏游戏体验，本地线上随心切换!</p> <p>　　以上内容就是小编为大家带来的《尼克国际儿童频道卡丁车3：史莱姆赛道 Nickelodeon Kart Racers 3 Slime Speedway》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">111aa</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/142572/](https://lad.sfcrom.cn/2024/04/142572/)

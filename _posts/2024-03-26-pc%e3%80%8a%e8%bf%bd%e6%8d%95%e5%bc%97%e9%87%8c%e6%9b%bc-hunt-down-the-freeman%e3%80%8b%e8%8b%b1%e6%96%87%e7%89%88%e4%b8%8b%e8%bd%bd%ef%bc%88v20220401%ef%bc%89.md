@@ -1,0 +1,13 @@
+---
+title: "PC《追捕弗里曼 Hunt Down The Freeman》英文版下载（v20220401）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《追捕弗里曼 Hunt Down The Freeman》英文版下载，这一款动作冒险游戏，玩家将通过第一人称视角展开一段精彩的冒险之旅。这部作品可以被看做是《半条命》系列的外传，赶快来体验一下吧。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Royal Rudius Enterta&hellip;"
+layout: post
+---
+
+ <p>　　PC《追捕弗里曼 Hunt Down The Freeman》英文版下载，这一款动作冒险游戏，玩家将通过第一人称视角展开一段精彩的冒险之旅。这部作品可以被看做是《半条命》系列的外传，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=19838359&amp;bvid=BV1eW41177sY&amp;cid=32352989&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660335a977508.webp" alt="PC《追捕弗里曼 Hunt Down The Freeman》英文版下载（v20220401）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660335a9d471a.webp" alt="PC《追捕弗里曼 Hunt Down The Freeman》英文版下载（v20220401）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660335aa2e291.webp" alt="PC《追捕弗里曼 Hunt Down The Freeman》英文版下载（v20220401）" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Royal Rudius Entertainment</p> <p>　　游戏发行：Royal Rudius Entertainment</p> <p>　　我们都知道《半条命》系列的主角名为戈登&middot;弗里曼，这位手持&ldquo;物理学圣剑&rdquo;撬棍的科学家在游戏里神挡杀神，被当作英雄来崇拜。而在《追捕弗里曼》中，玩家将不再扮演这位大英雄，而是成为被他拿撬棍打的反派。</p> <p>　　故事介绍</p> <p>　　奉命追捕主人公弗里曼的反派被其所追捕的目标击败从而被逼上了绝路，G-man给了玩家一个机会让你重新回到战场。抚摸着脸上被物理学圣剑刻下的伤疤，不甘与仇恨同时被点燃，你要再次踏上抓捕弗里曼的道路并完成复仇。</p> <p>　　游戏特色</p> <p>　　丰富的故事：</p> <p>　　全新的冒险，新的主角，新的故事，新的视角。这不是一个已经被讲述的故事的翻拍，这是一个独特的故事，一个恶棍追捕好人。</p> <p>　　库存系统</p> <p>　　HDTF拥有一个库存系统，有许多枪支可供选择，管理武器中的弹药。如果冲锋枪中的9mm弹药用完，你的9mm手枪将无法使用。</p> <p>　　跑酷机械师：</p> <p>　　爬，快跑，爬过你的敌人!HDTF在跑步时不仅仅靠身体，它的骄傲和乐趣在于跑酷系统。坠落超过10英尺不再意味着死亡。</p> <p>　　人物</p> <p>　　新面孔，新声音。现在是新演员阵容的时候了，由一些著名的多媒体名人担任主角。</p> <p>　　剪影：</p> <p>　　超过45分钟的电影剪辑，为故事创造了完美的品味。</p> <p>　　图样</p> <p>　　是时候换一台新的烤面包机了，我们添加了新的更高分辨率纹理和高多边形模型，将源代码推向了极限。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows&reg; 10/8/7/Vista or Greater</p> <p>　　处理器: Intel&reg; Core&trade; 2 Duo E6600 or AMD Phenom&trade; X3 8750 processor or better</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: 1 GB Dedicated Video Card or Greater</p> <p>　　存储空间: 需要 40 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《追捕弗里曼 Hunt Down The Freeman》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">whyoufck</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/42633/](https://lad.sfcrom.cn/2024/03/42633/)

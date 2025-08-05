@@ -1,0 +1,13 @@
+---
+title: "switch《神秘谋杀机器 Murder Mystery Machine》中文版1.0.3补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　【内含原版+TX专用魔改版】switch《神秘谋杀机器 Murder Mystery Machine》中文版下载，Murder Mystery Machine是一款非常有意思的冒险解密游戏，玩家将作为侦探，来解决游戏中的案件。 　　游戏介绍 　　就如《名侦探柯南》一般，这是一次永远不会结束的游戏&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用魔改版】switch《神秘谋杀机器 Murder Mystery Machine》中文版下载，Murder Mystery Machine是一款非常有意思的冒险解密游戏，玩家将作为侦探，来解决游戏中的案件。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=717561897&amp;bvid=BV15Q4y117sC&amp;cid=396943297&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c42e71f3.jpg" alt="switch《神秘谋杀机器 Murder Mystery Machine》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c43830ce.jpg" alt="switch《神秘谋杀机器 Murder Mystery Machine》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c43f296b.jpg" alt="switch《神秘谋杀机器 Murder Mystery Machine》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c4478550.jpg" alt="switch《神秘谋杀机器 Murder Mystery Machine》中文版1.0.3补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153c4504e8b.jpg" alt="switch《神秘谋杀机器 Murder Mystery Machine》中文版1.0.3补丁下载" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　就如《名侦探柯南》一般，这是一次永远不会结束的游戏!由程序生成的罪案现场每一次都会不同，它都将会给你带来更多的秘密和惊喜!准备好了吗?大侦探!</p> <p>　　这里充满了惊心动魄和充满挑战的犯罪情节。你看到了什么?在那个完美静止的时刻有多少故事存在?</p> <p>　　那么...猜想一下，并运用你的观察和推理能力，绘制出你所看到的犯罪图像!</p> <p>　　帮助你的侦探解决日益困难的按键并获得晋升解锁受限制的文件。这款受经典谋杀悬疑小说启发的游戏将会给你带来莫大的惊喜!</p> <p>　　游戏特色</p> <p>　　&middot;神秘谋杀机器</p> <p>　　一个程序引擎，可以产生无数种犯罪现场。</p> <p>　　&middot;引人入胜的故事</p> <p>　　每一场谋杀案件都会有丰富的核心细节和叙述。</p> <p>　　&middot;惊人的3D模型</p> <p>　　探索详细的立体模型和证据。</p> <p>　　&middot;记事本</p> <p>　　记录你的直觉、证据和嫌疑人的供词。</p> <p>　　&middot;董事会</p> <p>　　构建你的案例并作出推论和指控。</p> <p>　　&middot;实验</p> <p>　　解锁编辑器，尝试生成属于你的故事。</p> <p><h4>下载地址(由网友<font color="red">lshempire</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144757/](https://lad.sfcrom.cn/2024/04/144757/)

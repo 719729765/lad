@@ -1,0 +1,13 @@
+---
+title: "switch《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版nsz下载"
+date: 2024-04-04
+tags: []
+categories: ["nsz英日游戏"]
+excerpt: "　　switch游戏《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版正式发布，一款基于Phil和Kaja Foglio作者的精彩图画小说系列《Girl Genius&trade;》而制作的出色动作冒险游戏。 　　一款基于Ph&hellip;"
+layout: post
+---
+
+ <p>　　switch游戏《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版正式发布，一款基于Phil和Kaja Foglio作者的精彩图画小说系列《Girl Genius&trade;》而制作的出色动作冒险游戏。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eba5fd3284.webp" width="700" alt="switch《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eba602c4ce.webp" width="700" alt="switch《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eba6086bcc.webp" width="700" alt="switch《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eba60e0f66.webp" width="700" alt="switch《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eba6147470.webp" width="700" alt="switch《天才少女:机械城堡历险记 Girl Genius: Adventures In Castle Heterodyne》英文版nsz下载" /></p></div> <p>　　一款基于Phil和Kaja Foglio作者的精彩图画小说系列《Girl Genius&trade;》的出色动作冒险游戏。在这个获奖的煤气灯幻想世界中，体验Agatha Heterodyne的故事，她在自己的祖先家园&mdash;&mdash;Heterodyne城堡的敌对走廊、地下墓穴和厨房中穿行。</p> <p>　　作为疯狂家族的失落继承人，她必须让古老的堡垒恢复往日的荣光，并登上宝座成为&ldquo;真正的Heterodyne&rdquo;。只有这样，她才能对抗Wulfenbach帝国和其他权力欲望膨胀的篡位者。但首先，她必须面对控制城堡的腐败疯狂的人工智能，它的尖刺死亡陷阱和无底的末日坑。更不用说痛苦的粉红色樱桃顶点，Zola Heterodyne。另一个失落的孩子?还是只是来偷走你风头的又一个恶棍。</p> <p>　　是时候找出答案了。</p> <p>　　游戏玩法：</p> <p>　　在工作台上制作工具，如抓钩枪和扳手回旋镖，并使用这些工具探索和解谜城堡的挑战。 通过敏锐的观察和充分利用工具，发现众多景点和秘密。 在激烈的近战中击败敌人或使用爆炸性装置，并利用环境优势使用你的工具。 使用可靠的Dingbot小兵探索Agatha无法到达的地方，通过在狭窄的空间中移动，挖掘下方或在危险之上翱翔。 使用Dingbot解决锁定难题，并操作城堡的内部机械。 随着Agatha对城堡的控制力增强，指挥城堡AI对你的敌人释放陷阱，并激活机制。 使用独特的&ldquo;构建系统&rdquo;，将废弃的陷阱重建为像Springclank、Grappleclank和特殊的Rollerclank等物品，为玩家提供一系列用于创造性空间解谜的工具。 与《Girl Genius&trade;》中的许多奇妙角色互动，如Gilgamesh Wulfenbach、Tarvek Sturmvoraus等。 在游戏中阅读《Girl Genius&trade;》图画小说!注意!此功能仅支持英文。</p> <p><h4>下载地址(由网友<font color="red">VanYang</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/127002/](https://lad.sfcrom.cn/2024/04/127002/)

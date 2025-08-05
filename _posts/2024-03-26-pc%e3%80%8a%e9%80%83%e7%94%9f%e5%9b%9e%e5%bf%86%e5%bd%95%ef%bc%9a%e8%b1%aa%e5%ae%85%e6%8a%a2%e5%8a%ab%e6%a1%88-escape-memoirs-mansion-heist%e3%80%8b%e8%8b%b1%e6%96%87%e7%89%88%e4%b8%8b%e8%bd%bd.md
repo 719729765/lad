@@ -1,0 +1,13 @@
+---
+title: "PC《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版下载，这是一款逃生主题的冒险解谜游戏，进入一座豪宅，拿走这里值钱的东西然后再逃出去，下面分享游戏的更新补丁。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：0 Deer Soft 　　游戏发行：&hellip;"
+layout: post
+---
+
+ <p>　　PC《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版下载，这是一款逃生主题的冒险解谜游戏，进入一座豪宅，拿走这里值钱的东西然后再逃出去，下面分享游戏的更新补丁。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=218897711&amp;bvid=BV1p8411W7L5&amp;cid=857889608&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660353610182d.jpg" alt="PC《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660353615bcc1.jpg" alt="PC《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66035361c333c.jpg" alt="PC《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603536221481.jpg" alt="PC《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：0 Deer Soft</p> <p>　　游戏发行：0 Deer Soft Partnership</p> <p>　　这是一款第一人称动作冒险类解谜游戏，你将进入一个诺达的豪宅里进行冒险，你的任务就是解开这里的谜题，盗取大量的珍贵物品后成功逃离这里。游戏中的画面和解谜的规则玩法非常的有趣，可以很好的锻炼玩家的思维能力和操作，趣味的谜题等着你来挑战。</p> <p>　　游戏特色</p> <p>　　解决难题</p> <p>　　从演绎推理到机械装置，各种各样的谜题在大厦里等待着你。当你试图克服大厦的许多安全设备时，你将面临考验你逻辑思维能力的挑战。</p> <p>　　探索和发现</p> <p>　　当你试图克服它的许多考验时，你将探索一座美丽的大厦。在抢劫期间，您将有很多机会在大厦内找到许多隐藏的收藏品。</p> <p>　　一起工作</p> <p>　　单人游戏或与朋友一起工作，最多5人多人游戏。所以，找一个或四个朋友，一起去抢劫!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7+ (64bit)</p> <p>　　处理器: Intel i3 / AMD FX series or equivalent</p> <p>　　显卡: GTX 760M / GTX 660 / Ati Radeon 7870 or similar with 2GB VRAM</p> <p>　　存储空间: 需要 8 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 登录任意steam账号</p> <p>　　3. 运行EscapeMemoirs1.exe开始游戏</p> <p>　　以上内容就是小编为大家带来的《逃生回忆录：豪宅抢劫案 Escape Memoirs Mansion Heist》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">萌小七</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40737/](https://lad.sfcrom.cn/2024/03/40737/)

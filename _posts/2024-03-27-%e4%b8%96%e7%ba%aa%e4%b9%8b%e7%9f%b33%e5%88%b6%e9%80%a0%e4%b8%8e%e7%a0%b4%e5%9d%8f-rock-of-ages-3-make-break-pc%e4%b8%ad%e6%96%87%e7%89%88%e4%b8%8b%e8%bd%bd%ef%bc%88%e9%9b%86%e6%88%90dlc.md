@@ -1,0 +1,13 @@
+---
+title: "世纪之石3:制造与破坏 Rock of Ages 3: Make &#038; Break PC中文版下载（集成DLC）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　世纪之石3:制造与破坏 Rock of Ages 3: Make &amp; Break PC中文版下载。这是一款非常有趣的滚石竞速游戏，玩家在游戏中可以使用不同类型的巨石和朋友或AI赛跑，与此同时还可以使用各种各样有趣搞笑的道具设置障碍，这是一场智慧和速度的游戏。 　　《世纪之石3》除了收录前&hellip;"
+layout: post
+---
+
+ <p>　　世纪之石3:制造与破坏 Rock of Ages 3: Make &amp; Break PC中文版下载。这是一款非常有趣的滚石竞速游戏，玩家在游戏中可以使用不同类型的巨石和朋友或AI赛跑，与此同时还可以使用各种各样有趣搞笑的道具设置障碍，这是一场智慧和速度的游戏。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=95261832&amp;bvid=BV1VE411K7dX&amp;cid=162631485&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66038d961079c.jpg" width="600" alt="世纪之石3:制造与破坏 Rock of Ages 3: Make &amp; Break PC中文版下载（集成DLC）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66038d96ab69a.jpg" width="600" alt="世纪之石3:制造与破坏 Rock of Ages 3: Make &amp; Break PC中文版下载（集成DLC）" /></p> <p>　　《世纪之石3》除了收录前作塔防策略要素，以及大型机台风巨石竞速玩法特色外，战役故事模式中还将有众多超越历史的奇妙角色们齐聚一堂，加上丰富的关卡编辑功能，最多四人一起同乐的多人画面分割对战模式、超过20种以上的巨石球类与丰富的游戏模式等内容可供选择，势必让玩家体验一场比之前系列更加刺激有趣的关卡攻略乐趣。</p> <p>　　游戏特色</p> <p>　　1、创造与破坏世界</p> <p>　　在易于使用的编辑器设计和建立自己的关卡，与世界各地的玩家分享游玩获得无限的乐趣。</p> <p>　　2、有竞争力的塔防</p> <p>　　在多达4人在线多人游戏建立防御和障碍摧毁你的对手。</p> <p>　　3、街机动作</p> <p>　　在六种不同的游戏模式中，用超过20个古怪的巨石，以最快的速度撞穿你的道路上的一切!</p> <p>　　4、荒谬滑稽</p> <p>　　狂野而又搞笑的剧情设计</p> <p>　　5、丰富的游戏模式</p> <p>　　在滚动模式中保卫您的基地，用最快的速度穿越时间模式...</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7/8.1/10 (64-bit Required)</p> <p>　　处理器: Intel Core i5-760 2.8 GHz / AMD Athlon X4 740 3.2 GHz</p> <p>　　内存: 8 GB RAM</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制CODEX文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">christiansmith</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/49708/](https://lad.sfcrom.cn/2024/03/49708/)

@@ -1,0 +1,13 @@
+---
+title: "PC《部落猎人 Tribal Hunter》中文版下载（v1.0.1.6）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《部落猎人 Tribal Hunter》中文版下载，这是一款2D横版的动作闯关游戏，主角拥有强化自己身体的能力，游戏的画风十分的卡通，对这个类型游戏感兴趣的玩家不妨来关注一下吧。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Melonsoda Soft 　　游戏发行：Melonso&hellip;"
+layout: post
+---
+
+ <p>　　PC《部落猎人 Tribal Hunter》中文版下载，这是一款2D横版的动作闯关游戏，主角拥有强化自己身体的能力，游戏的画风十分的卡通，对这个类型游戏感兴趣的玩家不妨来关注一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=928535505&amp;bvid=BV13T4y1N7Zd&amp;cid=279685166&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c46093493.webp" alt="PC《部落猎人 Tribal Hunter》中文版下载（v1.0.1.6）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c460e886c.webp" alt="PC《部落猎人 Tribal Hunter》中文版下载（v1.0.1.6）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c461722ab.webp" alt="PC《部落猎人 Tribal Hunter》中文版下载（v1.0.1.6）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603c461cfe9a.webp" alt="PC《部落猎人 Tribal Hunter》中文版下载（v1.0.1.6）" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Melonsoda Soft</p> <p>　　游戏发行：Melonsoda Soft</p> <p>　　《部落猎人》(Tribal Hunter)是一款Melonsoda Soft制作并发行的卡通平台冒险游戏，《部落猎人》中您扮演的乡村监护人可以改变他的身体形状，使他长大并吞噬敌人。随着您的成长，您可以利用这种&ldquo;成长&rdquo;作为向敌人发射弹丸的能量!</p> <p>　　游戏介绍</p> <p>　　玩家可以狩猎并吞噬敌人以增加饱满度。如果吃得足够多，你的身体就会变大!然后，你的身高和丰满度也可以用作魔术能量，将其用于各种效果，例如自我修复或投掷强大的魔法!</p> <p>　　变大有利弊。较大尺寸的拳头将变得更加强大，同时弹力十足的全身将增强抵抗力!但是，变得更大也意味着你更能成为敌人的目标。此外，某些类型的敌人袭击会附带穿透效果，会对你的全身紧绷的身体造成额外的伤害，因此请小心!</p> <p>　　探索岛屿并与他们交谈。救援人员帮助您的小村庄成长，使其成为一个受欢迎的地方。他们可以提供有用的信息并在您的旅程中为您提供帮助。</p> <p>　　没有一点挑战的冒险是不完整的，每个区域都有自己独特的BOSS，会阻碍你并测试你的实力!它们可能具有挑战性，但这会让您的胜利更加令人满意! (有些BOSS有一些&ldquo;不寻常&rdquo;的方式来击败：D)</p> <p>　　冒险并不是你所做的一切......每个英雄的旅程都需要一些休憩时间，尽管岛上的人们可能对如何增添趣味有独特的想法。玩一个幽默的小游戏以获得额外奖励!蒙克正在享受这个&hellip;&hellip;&hellip;&hellip;大概&hellip;&hellip;。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 8.1</p> <p>　　处理器: Dual Core 3.0 Ghz</p> <p>　　内存: 3 GB RAM</p> <p>　　显卡: 1 GB Video Memory</p> <p>　　存储空间: 需要 1 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《部落猎人 Tribal Hunter》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">十一点半</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51372/](https://lad.sfcrom.cn/2024/03/51372/)

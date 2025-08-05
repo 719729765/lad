@@ -1,0 +1,13 @@
+---
+title: "switch《六星门：星迹 Sixtar Gate STARTRAIL》中文版NSZ下载【含1.0.011补丁+ 4DLC】"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《六星门：星迹 Sixtar Gate STARTRAIL》中文版NSZ下载【含1.0.011补丁+ 4DLC】！这是一款很有趣的音乐游戏，是从手机平台上移植而来的，故事讲述的是一个在太空探索的旅程，对这款游戏感兴趣的玩家可以来看看。 　　游戏类型：音乐类(MUG)游戏 　　游戏制作：L&hellip;"
+layout: post
+---
+
+ <p>switch《六星门：星迹 Sixtar Gate STARTRAIL》中文版NSZ下载【含1.0.011补丁+ 4DLC】！这是一款很有趣的音乐游戏，是从手机平台上移植而来的，故事讲述的是一个在太空探索的旅程，对这款游戏感兴趣的玩家可以来看看。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=548948918&amp;bvid=BV16q4y1g7vV&amp;cid=435248101&amp;page=2" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8511386f0.webp" alt="switch《六星门：星迹 Sixtar Gate STARTRAIL》中文版NSZ下载【含1.0.011补丁+ 4DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d8511a0d5f.webp" alt="switch《六星门：星迹 Sixtar Gate STARTRAIL》中文版NSZ下载【含1.0.011补丁+ 4DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d851208dc3.webp" alt="switch《六星门：星迹 Sixtar Gate STARTRAIL》中文版NSZ下载【含1.0.011补丁+ 4DLC】" /></td> </tr> </tbody> </table> <p>　　游戏类型：音乐类(MUG)游戏</p> <p>　　游戏制作：Lyrebird Studio/Magical Works</p> <p>　　游戏发行：CFK Co., Ltd.</p> <p>　　一款动漫风格的节奏游戏，出色的游戏玩法以及节奏体验，感受太空与音乐的结合，驾驶你的太空飞船进行游戏，快节奏的游戏体验哦!</p> <p>　　游戏特色</p> <p>　　■ 认识你迷人的领航员</p> <p>　　与您的搭档 Shii(该船的操作员)一起探索科学船 Ausflug 上庞大的 Sixtar 系统。</p> <p>　　冒险模式，让玩家可以一睹 Sixtar Gate 的故事，目前正在开发中。</p> <p>　　■ 查看我们提供的各种音乐!</p> <p>　　收录任何节奏游戏迷都会认可的艺术家的歌曲，包括 Life is PIANO、Brain Power 和 CO5M1C R4ILR0AD。</p> <p>　　我们还收录了 Sound Souler、KARUT 和 yomoha 等艺术家的原创歌曲，这些歌曲只能在 Sixtar Gate: STARTRAIL 中听到。</p> <p>　　未来，我们计划推出来自知名系列的新曲目，如 VOCALOID 和东方 Project，玩家在其他节奏游戏中很难找到这些曲目。</p> <p>　　■ 大门正在打开!</p> <p>　　大门随着歌曲的流动而打开和关闭，玩家将不得不注意改变车道的数量。</p> <p>　　体验一种新的节奏游戏。这个门禁系统的实施意味着您将无法放松警惕。</p> <p>　　■ 在合作模式下一起机动</p> <p>　　即使您不擅长节奏游戏，或者只是想播放您喜欢的歌曲，其他玩家也会支持您!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel Core 2 Duo E6750 | AMD Athlon 64 X2 6400+</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Nvidia GeForce GT 320, 1 GB | AMD Radeon HD 6670, 1 GB</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 3 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《Sixtar Gate：星迹 Sixtar Gate STARTRAIL》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">mcer123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124791/](https://lad.sfcrom.cn/2024/04/124791/)

@@ -1,0 +1,13 @@
+---
+title: "[PC]《妙探寻凶》中文版下载（集成Tropical Mystery DLC）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　【PC】《妙探寻凶》中文版下载(集成Tropical Mystery DLC)。一款超经典的解谜类桌游，游戏的场景设置在一座豪华的宅邸内，这里此时发生了一起凶杀案，所有的嫌疑人都聚集在这里，玩家们需要通过线索的收集以及自己的判断来找出凶手。 　　一座宏伟的豪宅&hellip;&hellip;一场&hellip;"
+layout: post
+---
+
+ <p>　　【PC】《妙探寻凶》中文版下载(集成Tropical Mystery DLC)。一款超经典的解谜类桌游，游戏的场景设置在一座豪华的宅邸内，这里此时发生了一起凶杀案，所有的嫌疑人都聚集在这里，玩家们需要通过线索的收集以及自己的判断来找出凶手。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660376f656191.webp" width="600" alt="[PC]《妙探寻凶》中文版下载（集成Tropical Mystery DLC）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660376f6c892d.webp" width="600" alt="[PC]《妙探寻凶》中文版下载（集成Tropical Mystery DLC）" /></p> <p>　　一座宏伟的豪宅&hellip;&hellip;一场卑劣的谋杀&hellip;&hellip;嫌疑角色聚集一堂。现在你可以在 Steam 上玩这款饱受喜爱的孩之宝家庭桌游了!</p> <p>　　凶手是谁，凶器是什么，案发现场在哪里?</p> <p>　　和斯嘉丽、穆斯塔、匹考克、格林、奥启德与普拉姆一起，在都铎大厦经历这个谋杀和探案的夜晚吧。通过掷骰子在豪宅中移动，并提出问题：</p> <p>　　&ldquo;我怀疑是斯嘉丽小姐，凶器是绳子，现场在书房!&rdquo;</p> <p>　　主要特色</p> <p>　　在单人游戏中对抗可定制的 AI。</p> <p>　　在线多人游戏可供多达 6 名玩家游戏。</p> <p>　　与好友一起玩的私密游戏。</p> <p>　　跨平台多人游戏 &mdash;&mdash; 与Steam、iOS 或 Android 上的其他侦探对战。</p> <p>　　在每周排行榜上与全世界竞争。</p> <p>　　创新的逻辑辅助虚拟线索表，让你进行先进的笔记。</p> <p>　　可供购买的全新主题，可以改变游戏板和角色。前往以好莱坞为主题的浮华城，或是登上谋杀快车!</p> <p>　　更多主题定期更新!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: 2 GHz 单核处理器</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: DirectX 10 class GPU [1280 x 720]</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　1. 解压缩 2. 载入镜像 3. 安装游戏 4. 复制PLAZA文件夹内的未加密补丁到游戏目录中覆盖 5. 运行游戏</p> <p>　　这款妙探追凶游戏的相关情况就为大家介绍到这里了，对这款游戏感兴趣的玩家朋友们不要错过哦。</p> <p><h4>下载地址(由网友<font color="red">green123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50427/](https://lad.sfcrom.cn/2024/03/50427/)

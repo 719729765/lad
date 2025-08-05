@@ -1,0 +1,13 @@
+---
+title: "【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "　　PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载。一款根据同名美漫改编的动作冒险游戏，玩家可以扮演原著的主角杰克，在完全原作的卡通画面中与敌人交战，跨越时空来到全新的地方进行冒险。 &nbsp; 　　设定背景是杰克与巫士阿蛊的最后一&hellip;"
+layout: post
+---
+
+ <p>　　PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载。一款根据同名美漫改编的动作冒险游戏，玩家可以扮演原著的主角杰克，在完全原作的卡通画面中与敌人交战，跨越时空来到全新的地方进行冒险。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614eb8f40dc3.webp" width="700" alt="【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】" /></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614eb8f8b290.webp" width="700" alt="【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614eb8fdcfa2.webp" width="700" alt="【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614eb903e1ed.webp" width="700" alt="【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614eb909717b.webp" width="700" alt="【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】" /></p></div> <p align="center"><img align="" border="0" src="https://www.2023game.com/d/file/p/2020/08-22/81c95e792f9bbeabe5bf0bf625c9b0f3.jpg" alt="【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】" /></p> <p align="center">&nbsp;</p> <p>　　设定背景是杰克与巫士阿蛊的最后一战之前，在人类历史的交替时间线中困住了杰克。为了找到阿蛊并击败他，杰克将不得不经历几个不同的时间线。</p> <p>　　游戏特点</p> <p>　　一次未曾揭露的冒险之旅，与史诗系列终篇密切相关</p> <p>　　与节目中的可靠盟友组队，一起对抗熟悉的敌人。</p> <p>　　探索屡获殊荣的系列中展现的各个世界</p> <p>　　重温来自你最爱篇章的经典世界和精彩时刻。前往黑暗的未来解放人类。回到过去，对抗恶魔般的怪物。在穿越时空的旅行中，探寻你的命运。</p> <p>　　缔造你自己的传奇</p> <p>　　在战斗中装备并掌握十几种不同的武器。通过训练和解锁新技能增强实力，让你的游玩体验更加顺畅。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614eb91d7f15.webp" width="739" alt="【JSON金手指】PS4《武士杰克：时空之战 Samurai Jack: Battle Through Time》中文版pkg下载【1.02补丁+金手指】" /></p> <p>　　关于这款游戏就为大家介绍到里了，感兴趣的话大家不妨来关注一下吧。</p> <p><h4>下载地址(由网友<font color="red">fwqstt</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139260/](https://lad.sfcrom.cn/2024/04/139260/)

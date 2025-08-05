@@ -1,0 +1,13 @@
+---
+title: "switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版下载，这是一款经典的街机游戏，在还原老游戏的基础上，加入了更加方便的功能，喜欢飞行射击游戏的玩家不要错过。 　　DariusBurst CS Core+Taito/Sega Pack采用了之&hellip;"
+layout: post
+---
+
+ <p>　　switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版下载，这是一款经典的街机游戏，在还原老游戏的基础上，加入了更加方便的功能，喜欢飞行射击游戏的玩家不要错过。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c3388cc6.jpg" alt="switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c340d90b.jpg" alt="switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c347a03d.jpg" alt="switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c34ea273.jpg" alt="switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a9c3564b55.jpg" alt="switch《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版nsp下载" /></td> </tr> </tbody> </table> <p>　　DariusBurst CS Core+Taito/Sega Pack采用了之前在其他平台上发布的&ldquo;DariusBurst Chronicle Saviours&rdquo;中的CS和DLC模式。</p> <p>　　*AC模式中包含的原始、原始EX、编年史和事件模式不包括在内。</p> <p>　　新功能：</p> <p>　　-CS模式下的6个新领域</p> <p>　　享受新的、扩展的编年史，从大流士1906年跨越225个阶段。</p> <p>　　-重播模式</p> <p>　　除了在每个模式中显示最高分外，还可以下载重播以查看最高分选手的比赛情况。</p> <p>　　每个排行榜的头号选手都可以重播。</p> <p>　　-幽灵得分</p> <p>　　玩任何你有回放数据的舞台都会显示一个鬼影回放，显示你可以在哪里提高自己的分数。</p> <p>　　*你可以从顶级玩家的分数或你自己的高分中选择一个幽灵。</p> <p>　　-街机式力反馈</p> <p>　　原装DariusBurst AC机柜的一大亮点是座椅扬声器产生的强大振动，通过控制器在这里再现。</p> <p>　　橱柜的振动不仅反映了声音的音量，而且是通过与音乐和音效分开的特殊信号设置的，Zuntata已经调整了家用版本，以对街机进行精确估计。</p> <p>　　包括来自各种世嘉和泰托游戏的6艘船!</p> <p>　　Night Striker (Taito)</p> <p>　　Metal Black (Taito)</p> <p>　　RayForce (Taito)</p> <p>　　Space Harrier (Sega)</p> <p>　　Galaxy Force II (Sega)</p> <p>　　Fantasy Zone (Sega)</p> <p>　　*Only the Taito and Sega packs are playable and there are no plans for further DLC.</p> <p>　　以上内容就是小编为大家带来的《变形战机 DARIUSBURST CS CORE + TAITO/SEGA Pack》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">4523637</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/112957/](https://lad.sfcrom.cn/2024/04/112957/)

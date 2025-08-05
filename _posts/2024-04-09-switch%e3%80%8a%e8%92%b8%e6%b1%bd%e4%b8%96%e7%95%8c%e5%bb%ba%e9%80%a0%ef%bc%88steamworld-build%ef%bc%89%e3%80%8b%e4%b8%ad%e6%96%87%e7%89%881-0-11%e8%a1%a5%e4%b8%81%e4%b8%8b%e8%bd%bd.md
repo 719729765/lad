@@ -1,0 +1,13 @@
+---
+title: "switch《蒸汽世界建造（SteamWorld Build）》中文版1.0.11补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《蒸汽世界建造（SteamWorld Build）》中文版1.0.11补丁下载《SteamWorld Build》是一款城市建造资源管理游戏，玩家的任务是在一座垂死星球的边缘建立并管理自己的采矿小镇。在游戏中，玩家需要扮演蒸汽机器人，通过挖掘矿石等资源来满足居民日益增长的需求，同时也要保&hellip;"
+layout: post
+---
+
+ <p>switch《蒸汽世界建造（SteamWorld Build）》中文版1.0.11补丁下载《SteamWorld Build》是一款城市建造资源管理游戏，玩家的任务是在一座垂死星球的边缘建立并管理自己的采矿小镇。在游戏中，玩家需要扮演蒸汽机器人，通过挖掘矿石等资源来满足居民日益增长的需求，同时也要保护他们的矿井免受地下潜伏生物的危害。为了提高建筑效率和矿工的工作效率，玩家可以购买特定的物品，例如激励型的电震器来鞭策矿工加速工作。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=783863947&amp;bvid=BV1m24y1P7i4&amp;cid=1136043264&amp;p=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661551d0be978.webp" width="700" alt="switch《蒸汽世界建造（SteamWorld Build）》中文版1.0.11补丁下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661551d13ff1e.webp" width="700" alt="switch《蒸汽世界建造（SteamWorld Build）》中文版1.0.11补丁下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661551d1c2004.webp" width="700" alt="switch《蒸汽世界建造（SteamWorld Build）》中文版1.0.11补丁下载" /></p> <p>　　我们构建了 SteamWorld。现在轮到你了!</p> <p>　　HOMESTEAD</p> <p>　　最后一次抢滩!这个星球快死了，阿斯特丽德，它正在尝试挖掘或死亡!</p> <p>　　我们镇下的那个矿井是空的，你难道不知道那里有关于古代科技的谣言可以帮助我们摆脱困境吗?围起来，围着马车转，让我们开始建造一个新家吧!收集地上的资源和地下的矿石，这样我们就可以把那些富有的机器人带到这里来帮助我们建造更大的东西，我们可以离开这里!</p> <p>　　管理</p> <p>　　随着边界的扩大，新的蒸汽人会找到你的路!每个机器人都以自己的方式肮脏，由你来让它们继续前进。以物易物以提高效率，保持货物进出矿山，让每个人都满意，让他们最勇敢和最努力地工作。</p> <p>　　深挖 盯着深</p> <p>　　渊看足够长的时间，它可能只是盯着......我们要去寻找财富和一些不想分享的东西!拿着枪，挖砾石，确保地雷不会坍塌在你身上，因为你要保护自己免受潜伏在里面的令人毛骨悚然的爬虫的伤害......</p> <p>　　特色：</p> <p>　　&bull; 在熙熙攘攘的蒸汽世界小镇破土动工，灵感来自旧西部。</p> <p>　　&bull; 通过确保满足蒸汽机器人的复杂需求来防止它们变得暴躁&bull; 深入挖掘并广泛传播以生产资源，以帮助您寻找古老的技术</p> <p>　　&bull; 保卫您的矿山免受潜伏在城镇</p> <p>　　深处的令人毛骨悚然的 varmints 的侵害&bull; 在当地火车站交易资源，欢迎伸出援手</p> <p>　　的特殊访客</p> <p>　　&bull; 五张不同的地图，上面散落着秘密，供挑剔的 SteamWorld 探险家找到</p> <p>　　&bull; 四个难度级别，包括沙盒难度，供您建造时使用!</p> <p><h4>下载地址(由网友<font color="red">2455135521</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143370/](https://lad.sfcrom.cn/2024/04/143370/)

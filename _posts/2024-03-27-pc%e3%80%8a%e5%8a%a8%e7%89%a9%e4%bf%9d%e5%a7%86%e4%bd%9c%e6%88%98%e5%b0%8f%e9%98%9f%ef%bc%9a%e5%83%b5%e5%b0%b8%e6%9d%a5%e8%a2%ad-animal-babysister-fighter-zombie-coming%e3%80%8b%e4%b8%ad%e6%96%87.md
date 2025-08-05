@@ -1,0 +1,13 @@
+---
+title: "PC《动物保姆作战小队：僵尸来袭! Animal Babysister Fighter Zombie Coming》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《动物保姆作战小队：僵尸来袭! Animal Babysister Fighter Zombie Coming》中文版下载，这是一款射击类型的游戏，在宇宙中猎杀怪兽，包含小动物的主题，很有意思的美术风格和玩法。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：KJXX GAME 　　游&hellip;"
+layout: post
+---
+
+ <p>　　PC《动物保姆作战小队：僵尸来袭! Animal Babysister Fighter Zombie Coming》中文版下载，这是一款射击类型的游戏，在宇宙中猎杀怪兽，包含小动物的主题，很有意思的美术风格和玩法。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a1844a48.jpg" alt="PC《动物保姆作战小队：僵尸来袭! Animal Babysister Fighter Zombie Coming》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039a18b926f.jpg" alt="PC《动物保姆作战小队：僵尸来袭! Animal Babysister Fighter Zombie Coming》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：KJXX GAME</p> <p>　　游戏发行：KJXX GAME</p> <p>　　这是一个由4位勇敢的女战士组成的银河动物保姆作战小队保护动物们的故事、一场人种进化革命让无数星球的人们变成丧尸和怪物、搭载着第一殖民星先进科技武器的动物作战小队为保护原始的动物基因、跋山涉水只为将动物安全送抵新的栖息地</p> <p>　　游戏将带领玩家穿梭被感染的废弃殖民工厂、第一殖民星球、以及地球的亚洲战区、恐怖的乌鸦群、战胜夜魔、最后对抗巨大的成年体寄生兽、将动物安全送抵栖息地</p> <p>　　玩家面对各种各样的敌人自然也有各种科技武器除了经典的炮塔、还有TR1-Z1人形机甲和威力强大的TM1-K1移动式追踪炮台机器人</p> <p>　　游戏特色</p> <p>　　支持在线4人联机、一个人游戏太孤单、呼朋好友来相助吧~ 一起去击败你的敌人</p> <p>　　你可以建造出金币塔、囤积你的金币、建造各种炮塔、喷火枪炮塔、机枪炮塔、激光导弹炮塔、甚至是机甲战士、帮助你和你的朋友们击败来势汹汹的敌人</p> <p>　　每关都有妙趣横生的剧情介绍、介绍动物作战小队的业余生活、提供下一关的关卡信息</p> <p>　　丰富的敌人、从基础的无脑僵尸到武装版的僵尸、还有天上成群结对的乌鸦群、巨大的成年寄生兽</p> <p>　　特定的关卡存在特殊的关卡道具或武器、如威力巨大但需要缴纳税费的卫星激光炮、需要充能时间才能使用的镭射大炮、还有NPC的热情帮助</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7</p> <p>　　处理器: Intel Core i5-2300 | AMD Ryzen 3 1200</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Nvidia GeForce GTX 660, 2 GB | AMD Radeon HD 7870, 2 GB</p> <p>　　DirectX 版本: 9.0c</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: Intel Core i5-9600K | AMD Ryzen 5 3600X</p> <p>　　内存: 12 GB RAM</p> <p>　　显卡: Nvidia GeForce GTX 1060, 6 GB | AMD Radeon RX Vega 64</p> <p>　　DirectX 版本: 12</p> <p>　　网络: 宽带互联网连接</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　中文设定方法 依次打开Animal Babysister Fighter Zombie ComingAnother Zombie StoryAnimal Babysitter_DataPluginsx86_64steam_settingssettings 然后记事本打开 language.txt 将english 改为 schinese 即可</p> <p>　　以上内容就是小编为大家带来的《动物保姆作战小队：僵尸来袭! Animal Babysister Fighter Zombie Coming》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">ldkgto</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51885/](https://lad.sfcrom.cn/2024/03/51885/)

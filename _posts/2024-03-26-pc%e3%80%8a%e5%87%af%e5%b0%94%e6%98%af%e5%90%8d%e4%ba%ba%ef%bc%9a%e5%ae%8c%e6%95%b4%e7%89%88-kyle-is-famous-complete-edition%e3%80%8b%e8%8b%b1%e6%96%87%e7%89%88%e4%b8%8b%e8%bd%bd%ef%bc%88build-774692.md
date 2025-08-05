@@ -1,0 +1,13 @@
+---
+title: "PC《凯尔是名人：完整版 Kyle is Famous: Complete Edition》英文版下载（Build 7746926）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《凯尔是名人：完整版 Kyle is Famous: Complete Edition》英文版下载，这是一款以文字为主要内容的冒险游戏，为玩家讲述了一个喜剧风格的故事，喜欢文字游戏的话大家可以来试试哦。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：John Szymanski 　　&hellip;"
+layout: post
+---
+
+ <p>　　PC《凯尔是名人：完整版 Kyle is Famous: Complete Edition》英文版下载，这是一款以文字为主要内容的冒险游戏，为玩家讲述了一个喜剧风格的故事，喜欢文字游戏的话大家可以来试试哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=78532674&amp;bvid=BV1EJ411v7se&amp;cid=134370359&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032b1070ee4.webp" alt="PC《凯尔是名人：完整版 Kyle is Famous: Complete Edition》英文版下载（Build 7746926）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032b10bc676.webp" alt="PC《凯尔是名人：完整版 Kyle is Famous: Complete Edition》英文版下载（Build 7746926）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66032b111a106.webp" alt="PC《凯尔是名人：完整版 Kyle is Famous: Complete Edition》英文版下载（Build 7746926）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：John Szymanski</p> <p>　　游戏发行：New Blood Interactive</p> <p>　　名人凯尔(Kyle is Famous: Complete Edition)是一款基于文本选择的喜剧风格冒险游戏，主持人凯尔即将迎来他人生中最重要的采访，为他一天的行动做出每一个决定，注意，上百个结局中只有一个是好的。游戏中的很多选择项近乎荒诞不经，充满幽默色彩。</p> <p>　　在这个基于文本的冒险中控制凯尔。</p> <p>　　为凯尔做决定会影响他一天中的每一部分。牵着凯尔的手走过21个独特的结局，每一个结局都由凯尔所做的以及他与谁互动决定。他需要你。友善点。</p> <p>　　凯尔刚刚醒来。</p> <p>　　凯尔需要准备接受一位非常非常重要的嘉宾的采访。收集物品，做出选择，解开谜团。</p> <p>　　凯尔可以吞下冰箱。</p> <p>　　凯尔可以穿越时空，从当地人那里偷油，把猪油倒在邻居身上，还有很多很多凯尔不应该做的事情。抓住凯尔的手。指挥他。告诉他他绝对不应该做什么。自信地帮助凯尔。他需要你。</p> <p>　　凯尔有21个结局。</p> <p>　　但其中只有一个是好的，准备好的结局，你将引导凯尔。谁知道如果你不在他身边会发生什么?他会毁了这座城市吗?他邻居的闲话?打击犯罪?救活死去的亲人?</p> <p>　　保持警惕。</p> <p>　　.小心点。事情可能不完全是他们看起来的样子。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows XP / Vista / 7 / 8 / 8.1 / 10</p> <p>　　处理器: 1.4 GHz Processor</p> <p>　　内存: 512 MB RAM</p> <p>　　存储空间: 需要 50 MB 可用空间</p> <p>　　声卡: 100% DirectX compatible card or onboard sound</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《凯尔是名人：完整版 Kyle is Famous: Complete Edition》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">kevin1234</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41025/](https://lad.sfcrom.cn/2024/03/41025/)

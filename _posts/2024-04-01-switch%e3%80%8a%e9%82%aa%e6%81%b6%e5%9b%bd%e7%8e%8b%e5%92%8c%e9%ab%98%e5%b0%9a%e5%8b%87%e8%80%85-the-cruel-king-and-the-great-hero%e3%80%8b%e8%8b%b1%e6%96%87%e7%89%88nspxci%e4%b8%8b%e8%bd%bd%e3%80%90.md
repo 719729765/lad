@@ -1,0 +1,13 @@
+---
+title: "switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版nsp/xci下载【含1.0.1补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版下载，这是一款很有趣的冒险解谜游戏，手绘画风为玩家呈现了一个童话般的世界，游戏的剧情也十分出色。 　　《邪恶国王和高尚勇者 わるい王様とりっぱな勇者》是一款手绘风格的冒险解谜游戏，玩法比较&hellip;"
+layout: post
+---
+
+ <p>　　switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版下载，这是一款很有趣的冒险解谜游戏，手绘画风为玩家呈现了一个童话般的世界，游戏的剧情也十分出色。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=847548776&amp;bvid=BV1DL4y1a7e2&amp;cid=397529568&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a90392587f.webp" alt="switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a90399beff.webp" alt="switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a903a4d83e.webp" alt="switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a903aee6b4.webp" alt="switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a903b71c35.webp" alt="switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> </tbody> </table> <p>　　《邪恶国王和高尚勇者 わるい王様とりっぱな勇者》是一款手绘风格的冒险解谜游戏，玩法比较轻松，主要以剧情和回合制对战为主，你需要在冒险途中解开各种谜题，面对怪物和敌人的时候要发起攻击或者防御，用策略击败它们。</p> <p>　　故事介绍</p> <p>　　&ldquo;我要像爸爸一样成为一名高尚的勇者!&rdquo;</p> <p>　　人类女孩 Yuu 是上任勇者的女儿。她被龙王抚养长大，每晚都听着父亲的冒险故事入睡&hellip;&hellip;受打败魔王的英雄故事的启发，她开始了一场冒险，想要成为一名高尚的勇者。</p> <p>　　但是 Yuu 所不知道的是&hellip;&hellip;曾经与她作战的领主正是龙王本人。</p> <p align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a903bbfa04.png" style="width: 391px; height: 153px;" alt="switch《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版nsp/xci下载【含1.0.1补丁】" /></p> <p>　　以上内容就是小编为大家带来的《邪恶国王和高尚勇者 The Cruel King and the Great Hero》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">ShimanoAntares</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111027/](https://lad.sfcrom.cn/2024/04/111027/)

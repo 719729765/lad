@@ -1,0 +1,13 @@
+---
+title: "【N64】《黏土战士-雕刻家之作 Clay Fighter &#8211; Sculptor&#039;s Cut》美版下载"
+date: 2024-03-24
+tags: []
+categories: ["N64游戏"]
+excerpt: "　　【N64】《黏土战士-雕刻家之作 Clay Fighter - Sculptor&#039;s Cut》美版下载，玩家在游戏中扮演一个憨憨的黏土战士，非常奇怪的身体形态却丝毫不会影响他的战斗流畅程度，是一款奇怪却有趣的游戏。 　　粘土战士(含模拟器)是一款MD家机休闲体育敏捷游戏。 　　粘土战士(&hellip;"
+layout: post
+---
+
+ <p>　　【N64】《黏土战士-雕刻家之作 Clay Fighter - Sculptor&#39;s Cut》美版下载，玩家在游戏中扮演一个憨憨的黏土战士，非常奇怪的身体形态却丝毫不会影响他的战斗流畅程度，是一款奇怪却有趣的游戏。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240324_6600398caf372.png" width="652" alt="【N64】《黏土战士-雕刻家之作 Clay Fighter - Sculptor&amp;#039;s Cut》美版下载" /></p> <p>　　粘土战士(含模拟器)是一款MD家机休闲体育敏捷游戏。</p> <p>　　粘土战士(含模拟器)游戏中自带gens(MD)模拟器Gens2.14中文版下载即可运行。</p> <p>　　粘土战士一款动作游戏，游戏画面效果无疑有了质的飞跃，游戏节奏流畅。这让动画中憨态可掬的角色们更加活灵活现，玩法简单上手容易，配音也不错，一款非常轻松的游戏，任何人都可以在其中找到乐趣。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240324_6600398de5ac8.png" width="604" alt="【N64】《黏土战士-雕刻家之作 Clay Fighter - Sculptor&amp;#039;s Cut》美版下载" /></p> <p>　　游戏名称：粘土战士</p> <p>　　英文名称：Clay Fighter</p> <p>　　游戏类型：动作过关类游戏</p> <p>　　游戏大小：1.26 MB</p> <p>　　制作发行：DREAM WORKS</p> <p>　　地区：美国</p> <p>　　游戏语言：英语</p> <p>　　游戏画面：2D</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240324_6600398f31ebc.png" width="649" alt="【N64】《黏土战士-雕刻家之作 Clay Fighter - Sculptor&amp;#039;s Cut》美版下载" /></p> <p>　　游戏小贴士</p> <p>　　游戏的按键在 选项-控制设置中进行设置。玩家可以根据自己的喜好进行设置。</p> <p>　　默认设置</p> <p>　　上-Up，下-Down，左-Left，右-Right，按钮A-Z，按钮B-X，选择-右Shift，开始-Enter</p> <p>　　操作说明：</p> <p>　　游戏下载后解压运行&ldquo;开始游戏&rdquo;即可进入游戏。--按回车确认--功能键A SD 小键盘箭头方向为上下左右。</p> <p><h4>下载地址(由网友<font color="red">155370103</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/15796/](https://lad.sfcrom.cn/2024/03/15796/)

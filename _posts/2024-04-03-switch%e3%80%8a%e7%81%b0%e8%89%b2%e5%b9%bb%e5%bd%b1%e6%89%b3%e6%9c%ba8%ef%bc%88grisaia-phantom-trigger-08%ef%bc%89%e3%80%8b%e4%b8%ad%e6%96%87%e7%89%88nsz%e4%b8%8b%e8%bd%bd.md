@@ -1,0 +1,13 @@
+---
+title: "switch《灰色幻影扳机8（GRISAIA PHANTOM TRIGGER 08）》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《灰色幻影扳机8（GRISAIA PHANTOM TRIGGER 08）》中文版nsz下载！switch《灰色幻影扳机8(GRISAIA PHANTOM TRIGGER 08)》2023年2月24日即将发售幻影扳机系列迎来了故事的终章!这是一款视觉小说类游戏，剧情即将进入最后的战斗，丰富&hellip;"
+layout: post
+---
+
+ <p>switch《灰色幻影扳机8（GRISAIA PHANTOM TRIGGER 08）》中文版nsz下载！switch《灰色幻影扳机8(GRISAIA PHANTOM TRIGGER 08)》2023年2月24日即将发售幻影扳机系列迎来了故事的终章!这是一款视觉小说类游戏，剧情即将进入最后的战斗，丰富的人物刻画，制作精良的画面，都将带来极佳的游戏体验。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=977607470&amp;bvid=BV1s44y1776W&amp;cid=466936538&amp;page=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d73b2d149c.webp" width="700" alt="switch《灰色幻影扳机8（GRISAIA PHANTOM TRIGGER 08）》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d73b35d2c8.webp" width="700" alt="switch《灰色幻影扳机8（GRISAIA PHANTOM TRIGGER 08）》中文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d73b3b4baa.webp" width="700" alt="switch《灰色幻影扳机8（GRISAIA PHANTOM TRIGGER 08）》中文版nsz下载" /></p></div> <p>　　SORD 的女孩们一头扎进了某种危险。这是春人和他的宿敌江西之间的最后对决!</p> <p>　　在风见悠二和他的朋友们在激烈的战斗中为自己的生命而战几年后，新一代的女英雄聚集在美滨学院，该学院已恢复为&ldquo;专业培训学校&rdquo;。</p> <p>　　与《格里萨亚的果实》发生在同一个世界，新角色在这个全新系列的最后一卷中带来了令人兴奋的新鲜感!</p> <p>　　拥有比以往任何一卷都多的内容和更多的刺激!</p> <p>　　提供三种语言版本!</p> <p>　　文本可以设置为日语、英语或简体中文(音频仅为日语)。这包括游戏内文本、选项和数字手册。可以随时更改语言设置。</p> <p>　　仅使用触摸屏即可玩!单手玩!</p> <p>　　在连接 Joy-Con&trade; 控制器的情况下以手持模式玩游戏，或者将它们拆下并仅使用触摸控件进行游戏!在桌面模式或电视模式下，一切都可以使用Joy-Con&trade;(R)进行控制，让您只用一只手玩!</p> <p>　　也可用于Nintendo Switch&trade; Lite系统。(需要单独的Joy-Con&trade;(R)才能用一只手玩。</p> <p>　　随着</p> <p>　　与敌方组织&ldquo;致命答案&rdquo;的战斗进入最后阶段，CIRS和SOLD将全部部队送入对手的据点。</p> <p>　　等待春人的有江西和黑江，他们是幻影扳机的前成员。</p> <p>　　他们用武器和信念发生冲突，双方都知道对方不会得到正义。</p> <p>　　但是当激烈的战斗结束时，女孩们看到了什么......?</p> <p>　　游戏玩法</p> <p>　　该游戏是一部视觉小说，您可以在其中像书一样阅读它，也可以像动漫或电影一样观看它。通过您做出的选择来塑造故事的展开方式。</p> <p>　　星光熠熠的配音演员阵容和全配音的故事(不包括主角)、华丽的图形和音乐以及身临其境的动画使故事栩栩如生。</p> <p>　　工作人员</p> <p>　　角色设计/美术：渡边</p> <p>　　昭夫 故事：藤崎龙太</p> <p>　　SD 角色设计/美术：麻衣</p> <p>　　奈奈 演员</p> <p>　　蕾娜 VA：内田真绫</p> <p>　　东香 VA：樱花绫音</p> <p>　　克里斯 VA：村崎香织 NAZUKA</p> <p>　　VA：谷崎</p> <p>　　渥美 MAKI VA：吉野南条</p> <p>　　组 VA：三森铃子</p> <p>　　Taiga VA：夏美 高森</p> <p>　　由纪 VA：佐佐木美子</p> <p>　　有坂小姐 VA：井泽美香子 江西 VA：滨田</p> <p>　　贤治 黑</p> <p>　　江 VA：角间</p> <p>　　爱 其他</p> <p>　　*全配音(不包括主角)</p> <p><h4>下载地址(由网友<font color="red">无垢大叔</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124951/](https://lad.sfcrom.cn/2024/04/124951/)

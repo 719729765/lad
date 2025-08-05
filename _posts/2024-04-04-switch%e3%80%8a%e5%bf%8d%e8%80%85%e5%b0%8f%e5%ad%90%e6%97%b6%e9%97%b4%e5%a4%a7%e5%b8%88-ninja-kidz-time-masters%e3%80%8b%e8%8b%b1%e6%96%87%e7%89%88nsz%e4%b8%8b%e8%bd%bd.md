@@ -1,0 +1,13 @@
+---
+title: "switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载"
+date: 2024-04-04
+tags: []
+categories: ["nsz英日游戏"]
+excerpt: "　　switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载!美国最受欢迎的在线忍者家庭的第一款电子游戏来了!NINJA KIDZ：时间大师是一个丰富多彩的动作冒险，适合全家，你可以独自或与朋友一起玩。营救被灾难博士绑架的三位最伟大的武术大师。 　　忍者基德&hellip;"
+layout: post
+---
+
+ <p>　　switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载!美国最受欢迎的在线忍者家庭的第一款电子游戏来了!NINJA KIDZ：时间大师是一个丰富多彩的动作冒险，适合全家，你可以独自或与朋友一起玩。营救被灾难博士绑架的三位最伟大的武术大师。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=830490926&amp;bvid=BV1o34y1K75V&amp;cid=1251322198&amp;p=1" width="410"></iframe></p> <p>　　忍者基德：时间大师是一款3D动作游戏，玩家可以扮演忍者基德拯救世界。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8c2925c2.webp" width="700" alt="switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8c2f18c5.webp" width="700" alt="switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8c36580c.webp" width="700" alt="switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8c3d5271.webp" width="700" alt="switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb8c43ac94.webp" width="700" alt="switch《忍者小子:时间大师 Ninja Kidz Time Masters》英文版nsz下载" /></p></div> <p>　　三位最伟大的武术大师被绑架，灾难博士和他的党羽将他们困在不同的历史时代。</p> <p>　　忍者Kidz是唯一一个能够穿越时间漩涡并利用他们的能力来拯救他们并保护忍者的道路的人。穿越时间，从侏罗纪到未来，寻找并营救三位武术大师。</p> <p>　　从4个可玩角色中选择。每一个忍者都有自己的特殊动作和技术。</p> <p>　　单人或与朋友在当地合作社玩，最多4名玩家。</p> <p>　　欣赏以忍者Kidz为灵感的丰富多彩的卡通风格艺术设计。</p> <p>　　与多个敌人战斗，并在有趣的史诗般的战斗中击败4个老板。</p> <p>　　享受3种游戏模式，挑战自己解锁奖励等级。</p> <p>　　故事模式：</p> <p>　　加入忍者Kidz的冒险之旅，打败灾难博士，让世界恢复和平。穿越时间，通过完成有趣和富有挑战性的16个关卡来探索不同的时代。通过观看卡通过场来展开故事。探索所有级别，通过寻找忍者硬币获得额外的生命，成为终极忍者Kidz，并通过击败最终老板拯救所有武术大师。</p> <p>　　老板拉什：</p> <p>　　面对游戏中一个接一个的老板，把他们都打败。你接受挑战吗?</p> <p>　　快速游戏：</p> <p>　　完成主故事模式后，通过回放每个关卡，与朋友一起享受快速游戏。</p> <p>　　解锁模式：</p> <p>　　新的游戏模式还增加了6个额外的关卡，每个关卡都有不同的挑战。此游戏模式通过完成Boss Rush模式解锁。</p> <p>　　可解锁的角色：</p> <p>　　Shane，忍者Kidz的最后一位大师和父亲，在获救后加入了他们，也被包括在内。要解锁他，你需要完成任何角色的冒险模式。</p> <p><h4>下载地址(由网友<font color="red">overdead</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/127581/](https://lad.sfcrom.cn/2024/04/127581/)

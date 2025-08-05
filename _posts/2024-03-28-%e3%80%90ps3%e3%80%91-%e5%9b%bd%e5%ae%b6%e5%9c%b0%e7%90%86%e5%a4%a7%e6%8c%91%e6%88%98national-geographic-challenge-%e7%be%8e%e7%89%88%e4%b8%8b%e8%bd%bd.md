@@ -1,0 +1,13 @@
+---
+title: "【PS3】 国家地理大挑战(National Geographic Challenge) 美版下载"
+date: 2024-03-28
+tags: []
+categories: ["ps3英文游戏"]
+excerpt: "　　中文名称：国家地理大挑战 　　英文名称：National Geographic Challenge 　　游戏类型：其他类 　　开发厂商：Gusto Games 　　发行厂商：Ignition Entertainment 　　对应主机：PS3 　　语言版本：美版 　　发售日期：2012年01月10&hellip;"
+layout: post
+---
+
+ <p>　　中文名称：国家地理大挑战</p> <p>　　英文名称：National Geographic Challenge</p> <p>　　游戏类型：其他类</p> <p>　　开发厂商：Gusto Games</p> <p>　　发行厂商：Ignition Entertainment</p> <p>　　对应主机：PS3</p> <p>　　语言版本：美版</p> <p>　　发售日期：2012年01月10日</p> <p>　　《国家地理大挑战》是一款益智小游戏。收录大量「国家地理杂志」的内容，充满多样变化性的机智问答题目。有趣的多人互动性益智游戏，运用刺激的动态游戏方式，适合全家大小一同游玩。充分运用了国家地理杂志多样性的谜题、图片与影片。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66051ba63ad32.jpg" width="644" alt="【PS3】 国家地理大挑战(National Geographic Challenge) 美版下载" /></p> <p><h4>下载地址(由网友<font color="red">jinlei0411</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/68014/](https://lad.sfcrom.cn/2024/03/68014/)

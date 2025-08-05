@@ -1,0 +1,13 @@
+---
+title: "switch《奇塔利亚童话 Kitaria Fables》中文版26DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["最新DLC"]
+excerpt: "　　【内含原版+TX专用魔改版】switch《奇塔利亚童话 Kitaria Fables》中文版下载，Kitaria Fables是一款非常卡通风格的模拟经营类游戏，主角是一只猫咪，除了经营农场，游戏中还有冒险战斗内容。 　　《Kitaria Fables》是一款融合了RPG、农场元素的动作冒险游戏&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用魔改版】switch《奇塔利亚童话 Kitaria Fables》中文版下载，Kitaria Fables是一款非常卡通风格的模拟经营类游戏，主角是一只猫咪，除了经营农场，游戏中还有冒险战斗内容。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=716192360&amp;bvid=BV1pX4y1A7CL&amp;cid=355848732&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a3c9a55d.jpg" alt="switch《奇塔利亚童话 Kitaria Fables》中文版26DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a3d7acf6.jpg" alt="switch《奇塔利亚童话 Kitaria Fables》中文版26DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a3e4ac5f.jpg" alt="switch《奇塔利亚童话 Kitaria Fables》中文版26DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a3f1a23d.jpg" alt="switch《奇塔利亚童话 Kitaria Fables》中文版26DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66150a4004790.jpg" alt="switch《奇塔利亚童话 Kitaria Fables》中文版26DLC下载" /></td> </tr> </tbody> </table> <p>　　《Kitaria Fables》是一款融合了RPG、农场元素的动作冒险游戏。你可以在游戏里使用弓，剑。与世界上的黑暗力量对行，探索地牢，寻找遗迹和资源，照料你的农场，完成任务，制作需要的药剂以及更多。</p> <p>　　游戏介绍</p> <p>　　欢迎来到Kitaria的世界</p> <p>　　从前，这里是一片十分和谐的土地，直到有一天村子周围的生物变得具有攻击性，国家要求你去调查原因并保护那里的公民。你从你的基地出发去这个村庄，一路上可以探索到许多，比如野生动物，有用的资源和战利品等。</p> <p>　　没有限制的战斗</p> <p>　　在游戏中捏可以近战或者使用弓箭与法术，带上最适合你的武器与装甲，以及你认为最棒的魔法。你可以自由选择用魔法烧死或冻死你的敌人，也可以使用弓或者剑造成伤害。</p> <p>　　收集足够的资源</p> <p>　　为了在即将到来的战斗以及黑暗中生存下去你必须要收集到充足的资源，然后充分利用。在打败敌人后获得的战利品，种植的农作物以及各种矿石都十分有用，有些甚至可以制作强大的装备。</p> <p>　　和其他人交朋友</p> <p>　　这个村庄上充满了友善(也有一些不咋地的)人们，你可以满足邻居的需求，和他们结交朋友，并得到一定的回报。</p> <p><h4>下载地址(由网友<font color="red">Play丶薄荷</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/142270/](https://lad.sfcrom.cn/2024/04/142270/)

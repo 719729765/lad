@@ -1,0 +1,13 @@
+---
+title: "PC《潮流特警队 Fashion Police Squad》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《潮流特警队 Fashion Police Squad》中文版下载，这是一款第一人称射击玩法的游戏，十分卡通的3D画风，有的类似我的世界的风格，游戏的剧情也比较搞笑，感兴趣的玩家不要错过。 　　游戏类型：第一人称射击类(FPS)游戏 　　游戏制作：Mopeful Games 　　游戏发行：N&hellip;"
+layout: post
+---
+
+ <p>　　PC《潮流特警队 Fashion Police Squad》中文版下载，这是一款第一人称射击玩法的游戏，十分卡通的3D画风，有的类似我的世界的风格，游戏的剧情也比较搞笑，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=300037486&amp;bvid=BV1TF411c7mB&amp;cid=747807144&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-01/2964dd99d433847fd44df9b954393a9b.jpg" alt="PC《潮流特警队 Fashion Police Squad》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-01/68a1bcfadacda6691e1e4453fbc093b0.jpg" alt="PC《潮流特警队 Fashion Police Squad》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-01/c9096ed9b26033e99a5e79928ec09356.jpg" alt="PC《潮流特警队 Fashion Police Squad》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-01/5151273cf8c3cc6b6d71d6a70c1712e2.jpg" alt="PC《潮流特警队 Fashion Police Squad》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：第一人称射击类(FPS)游戏</p> <p>　　游戏制作：Mopeful Games</p> <p>　　游戏发行：No More Robots</p> <p>　　扮演警官Des，通过缝纫、鞭笞、清洗和爆炸等手段，在时尚之都特德波利斯闯荡。好好利用那些能&ldquo;改变服饰&rdquo;的武器，比如缝纫机、2DYE4卡宾枪、正义腰带和W.A.R.drobe发射器来解决掉潮流罪犯们!使用特别定制武器来修补潮流漏洞：拿出正义腰带，将不好好穿裤子的人就地正法;让袜子地精解决那些穿袜子配凉鞋的家伙。面对不同的敌人，要灵活切换武器和策略，想尽办法让特德波利斯再次成为潮流的避风港吧!</p> <p>　　身为潮流特警队的一员，你的职责是解决潮流罪犯、收集赃物，以及穿街走巷畅饮鸡尾酒!活出风采吧!教化潮流罪犯们，让他们走上假释晚会的T台;搜查城市的犄角旮旯，收集秘密套装;接触时尚的上流人士，探索这个奇妙故事背后的真相&mdash;&mdash;这一大堆潮流罪犯都是从哪儿冒出来的!?</p> <p>　　游戏特色</p> <p>　　不管对手穿的是下垂的裤子，还是光污染服饰，与这群破坏潮流的罪犯殊死搏斗</p> <p>　　体验专门定制的武器库&mdash;&mdash;比如说袜子地精</p> <p>　　用尽一切手段在潮流之都特德波利斯闯荡，挖掘它背后的秘密</p> <p>　　与时尚界最强大、最邪恶的BOSS战斗</p> <p>　　破解潮流犯罪者死灰复燃之谜，干掉身居高位的反派</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 or later</p> <p>　　处理器: 1 Ghz</p> <p>　　内存: 2 GB RAM</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《潮流特警队 Fashion Police Squad》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">tony2222</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52759/](https://lad.sfcrom.cn/2024/03/52759/)

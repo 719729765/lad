@@ -1,0 +1,13 @@
+---
+title: "switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版nsz下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "　　switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版下载，这是一款像素画风的冒险解谜游戏，跟随主角探索一个隐藏在历史尘埃中的神秘遗迹，一起来体验一下精彩的剧情吧。 　　故事介绍 　　探寻150年的未解之谜 　　1587年，一群人在美洲&hellip;"
+layout: post
+---
+
+ <p>　　switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版下载，这是一款像素画风的冒险解谜游戏，跟随主角探索一个隐藏在历史尘埃中的神秘遗迹，一起来体验一下精彩的剧情吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=677906893&amp;bvid=BV1mm4y1S7Hb&amp;cid=478846959&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723662e70.jpg" alt="switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7236cf7c8.jpg" alt="switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723754e51.jpg" alt="switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d7237c6a94.jpg" alt="switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版nsz下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d723841980.jpg" alt="switch《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版nsz下载" /></td> </tr> </tbody> </table> <p>　　故事介绍</p> <p>　　探寻150年的未解之谜</p> <p>　　1587年，一群人在美洲建立了第一个殖民地，在定居不久之后就神秘消失了，他们只留下了一个刻在树上的岛名：克劳沃特</p> <p>　　现在是1737年。</p> <p>　　一个年轻且有野心的冒险家休&middot;雷德克里夫探寻着失落的殖民地。现在，形形色色的人住在克劳沃特，他来到这里就是为了探寻这个谜团。他将在岛上探寻，势必会遇到各种麻烦，找到失落的殖民地发生了什么</p> <p>　　游戏特色</p> <p>　　经典的点击解谜机制</p> <p>　　收集，组合，使用道具解决谜题。</p> <p>　　还有海盗!</p> <p>　　试着跟克劳沃特的原住海盗们打交道，当然，还有有趣的对话。</p> <p>　　关注你的日志</p> <p>　　休会把重要的东西画下来，并在日志中记录下相关信息。随着重要事件和发现实时更新。</p> <p>　　做出选择</p> <p>　　满嘴谎言或是实事求是。</p> <p>　　收集艺术品</p> <p>　　岛上有很多文物，收集它们，然后你就会升级&hellip;我是说成就。</p> <p>　　赢得居民的信任</p> <p>　　当地土著谨慎且小心，套他们的话需要获取他们的信任。</p> <p>　　以上内容就是小编为大家带来的《克劳沃特 失落殖民地遗迹 Crowalt Traces of the Lost Colony》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">youmeng</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124432/](https://lad.sfcrom.cn/2024/04/124432/)

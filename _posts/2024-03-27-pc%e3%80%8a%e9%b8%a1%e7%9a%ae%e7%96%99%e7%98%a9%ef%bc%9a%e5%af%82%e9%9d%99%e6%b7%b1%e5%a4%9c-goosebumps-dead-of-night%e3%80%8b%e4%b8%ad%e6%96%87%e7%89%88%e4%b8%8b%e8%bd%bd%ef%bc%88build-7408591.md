@@ -1,0 +1,13 @@
+---
+title: "PC《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版下载（Build 7408591）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版下载，这是根据著名的恐怖小说鸡皮疙瘩系列改编的一款动作冒险游戏，为玩家带来了一个第一人称视角的精彩故事，一起来体验一下吧。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Cosmic Forces 　　游戏&hellip;"
+layout: post
+---
+
+ <p>　　PC《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版下载，这是根据著名的恐怖小说鸡皮疙瘩系列改编的一款动作冒险游戏，为玩家带来了一个第一人称视角的精彩故事，一起来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=499131177&amp;bvid=BV1MK411T7qQ&amp;cid=224169451&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b37bc9c2.jpg" alt="PC《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版下载（Build 7408591）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b382b31f.jpg" alt="PC《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版下载（Build 7408591）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b38934d1.jpg" alt="PC《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版下载（Build 7408591）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039b38ee8df.jpg" alt="PC《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版下载（Build 7408591）" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Cosmic Forces</p> <p>　　游戏发行：Cosmic Forces</p> <p>　　游戏介绍</p> <p>　　作为最畅销的&ldquo;鸡皮疙瘩&rdquo;系列续作，《鸡皮疙瘩：寂静深夜》这款全新的第一人称恐怖生存冒险游戏现已登陆 PC 平台。体验三个完整章节，在真实的 3D 世界中蹑足潜踪，与令人毛骨悚然的 AI 怪物斗智斗勇。</p> <p>　　木偶斯拉皮释放了一群噩梦般的鸡皮疙瘩怪物，它们正朝你而来!逃脱墓地食尸鬼、草坪侏儒、歼灭者 3000、谋杀者小丑以及狂热沼泽狼人等可怕生物的魔爪，同时收集斯拉皮之书散落的书页来将它封印。你将探索臭名昭著的鸡皮疙瘩经典场景，寻找线索，躲避怪物，解开斯拉皮狡诈的谜题。</p> <p>　　阻止斯拉皮向全世界释放怪物的邪恶计划这一重任就交给你了&hellip;&hellip;别担心，你还有几位盟友，比如尼古拉&bull;特斯拉、布鲁尔博士以及由杰克&bull;布莱克倾情配音的 R&bull;L&bull;斯坦。胆小的朋友请注意：你绝对会吓一跳的!</p> <p>　　游戏特色</p> <p>　　经典系列的完全移植版本</p> <p>　　惊险刺激的游戏过程</p> <p>　　快节奏的游戏体验</p> <p>　　带你回味童年经典</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: i5 and up</p> <p>　　内存: 6 GB RAM</p> <p>　　显卡: GTX 770 and up</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　声卡: Stereo</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《鸡皮疙瘩：寂静深夜 Goosebumps Dead of Night》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">1848815996</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52902/](https://lad.sfcrom.cn/2024/03/52902/)

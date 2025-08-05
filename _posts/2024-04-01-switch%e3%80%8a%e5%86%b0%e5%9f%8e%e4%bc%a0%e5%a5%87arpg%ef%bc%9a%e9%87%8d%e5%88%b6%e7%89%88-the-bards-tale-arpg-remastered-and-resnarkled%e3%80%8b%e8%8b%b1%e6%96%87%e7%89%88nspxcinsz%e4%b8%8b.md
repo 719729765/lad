@@ -1,0 +1,13 @@
+---
+title: "switch《冰城传奇ARPG：重制版 The Bard&#039;s Tale ARPG: Remastered and Resnarkled》英文版nsp/xci/nsz下载【1.02补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《冰城传奇ARPG：重制版 The Bard&#039;s Tale ARPG: Remastered and Resnarkled》英文版下载。这是一款颇具颠覆意味的动作角色扮演游戏，画面相当精致，音效由好莱坞专业配音演员负责。 　　游戏里玩家将扮演一名狂妄自大的吟游诗人，在这个欧洲&hellip;"
+layout: post
+---
+
+ <p>　　switch《冰城传奇ARPG：重制版 The Bard&#39;s Tale ARPG: Remastered and Resnarkled》英文版下载。这是一款颇具颠覆意味的动作角色扮演游戏，画面相当精致，音效由好莱坞专业配音演员负责。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=583440037&amp;bvid=BV1Uz4y197fs&amp;cid=200805191&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a736036e89.webp" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》英文版nsp/xci/nsz下载【1.02补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a736083318.webp" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》英文版nsp/xci/nsz下载【1.02补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7360e21e8.webp" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》英文版nsp/xci/nsz下载【1.02补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a73616899d.webp" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》英文版nsp/xci/nsz下载【1.02补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7361c781e.webp" alt="switch《冰城传奇ARPG：重制版 The Bard&amp;#039;s Tale ARPG: Remastered and Resnarkled》英文版nsp/xci/nsz下载【1.02补丁】" /></td> </tr> </tbody> </table> <p>　　游戏里玩家将扮演一名狂妄自大的吟游诗人，在这个欧洲中世纪的奇幻大陆开始冒险旅程。游戏轻松幽默的剧情，完美的人物配音，以及多元化的故事线是其鲜明的特色。</p> <p>　　游戏特色</p> <p>　　50个敌人类型(不算BOSS)</p> <p>　　一个广阔的世界，在城镇、森林、河流、城堡、塔楼、秘密地下城、雪山、洞穴等探索</p> <p>　　一个充满奇异的NPC的演员阵容</p> <p>　　超过十几名特别BOSS</p> <p>　　16个神奇人物发现，然后随意召唤来帮助你</p> <p>　　超过150个独特的武器装备、装甲、工具、代币、文物和战利品!</p> <p>　　比任何其他游戏更多的歌曲和舞蹈，包括僵尸跳舞!</p> <p>　　超过14个小时的杰出表演，来自顶级的好莱坞人才</p> <p>　　经典游戏 - 包括原始经典游戏吟游诗人的故事1、2和3。</p> <p><h4>下载地址(由网友<font color="red">574320983@qq.com</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/108803/](https://lad.sfcrom.cn/2024/04/108803/)

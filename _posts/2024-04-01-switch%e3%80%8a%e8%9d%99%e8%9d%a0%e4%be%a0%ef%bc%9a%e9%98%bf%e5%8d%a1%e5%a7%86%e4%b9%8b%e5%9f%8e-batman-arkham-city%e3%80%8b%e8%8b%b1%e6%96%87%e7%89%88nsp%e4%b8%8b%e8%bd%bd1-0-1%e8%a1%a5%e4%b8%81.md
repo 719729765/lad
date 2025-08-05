@@ -1,0 +1,13 @@
+---
+title: "switch《蝙蝠侠：阿卡姆之城 Batman Arkham City》英文版nsp下载+1.0.1补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "switch《蝙蝠侠：阿卡姆之城 Batman Arkham City》英文版nsp下载+1.0.1补丁，这是根据漫画蝙蝠侠改编的动作冒险游戏，这一次蝙蝠侠将要潜入危险的阿卡姆。 　　蝙蝠侠：阿卡姆之城建立在紧张而富有气氛的蝙蝠侠：阿卡姆疯人院的基础上，让玩家飞行于广大的阿卡姆之城&mdash;&amp;m&hellip;"
+layout: post
+---
+
+ <p>switch《蝙蝠侠：阿卡姆之城 Batman Arkham City》英文版nsp下载+1.0.1补丁，这是根据漫画蝙蝠侠改编的动作冒险游戏，这一次蝙蝠侠将要潜入危险的阿卡姆。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=41587&amp;bvid=BV1zx411c7Tw&amp;cid=69880&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a489ac8f5d.webp" alt="switch《蝙蝠侠：阿卡姆之城 Batman Arkham City》英文版nsp下载+1.0.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a489b2dfb9.webp" alt="switch《蝙蝠侠：阿卡姆之城 Batman Arkham City》英文版nsp下载+1.0.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a489b89013.webp" alt="switch《蝙蝠侠：阿卡姆之城 Batman Arkham City》英文版nsp下载+1.0.1补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a489bdf1a8.webp" alt="switch《蝙蝠侠：阿卡姆之城 Batman Arkham City》英文版nsp下载+1.0.1补丁" /></td> </tr> </tbody> </table> <p>　　蝙蝠侠：阿卡姆之城建立在紧张而富有气氛的蝙蝠侠：阿卡姆疯人院的基础上，让玩家飞行于广大的阿卡姆之城&mdash;&mdash;比阿卡姆疯人院的游戏世界大5倍&mdash;&mdash;高谭市所有暴徒，黑帮和疯狂犯罪主谋们的最高安保新&rdquo;家&ldquo;。一个难以置信的以高谭市最危险罪犯组成的陈列馆，包括猫女、小丑、谜语人、双面人、哈里&middot;奎恩、企鹅人、冷冻人和诸多其他角色，游戏让玩家真正体验到成为黑暗骑士在高谭市街道伸张正义是什么样的感觉。</p> <p>　　蝙蝠侠：阿卡姆之城&mdash;&mdash;年度版包括以下 DLC: 猫女包，夜翼捆绑包，罗宾捆绑包，哈里&middot;奎恩的复仇，挑战地图包和阿卡姆之城皮肤包。</p> <p><h4>下载地址(由网友<font color="red">zuoyunlong2020</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/108119/](https://lad.sfcrom.cn/2024/04/108119/)

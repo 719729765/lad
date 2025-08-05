@@ -1,0 +1,13 @@
+---
+title: "PS3 超次元游戏 海王星1(Hyperdimension Neptunia) 美版ISO下载"
+date: 2024-03-28
+tags: []
+categories: ["ps3英文游戏"]
+excerpt: "　　PS3 超次元游戏 海王星1(Hyperdimension Neptunia) 美版ISO下载。本作是一款角色扮演类的RPG游戏，化身可爱的美少女努力战斗去守护自己的世界吧! 　　中文名称：超次元游戏 海王星 　　英文名称：Hyperdimension Neptunia 　　日文名称：超次元ゲイ&hellip;"
+layout: post
+---
+
+ <p>　　PS3 超次元游戏 海王星1(Hyperdimension Neptunia) 美版ISO下载。本作是一款角色扮演类的RPG游戏，化身可爱的美少女努力战斗去守护自己的世界吧!</p> <p align="center"><img align="" border="0" src="http://img.gamefaqs.net/box/4/9/2/150492_front.jpg" width="350" alt="PS3 超次元游戏 海王星1(Hyperdimension Neptunia) 美版ISO下载" /></p> <p>　　中文名称：超次元游戏 海王星</p> <p>　　英文名称：Hyperdimension Neptunia</p> <p>　　日文名称：超次元ゲイム ネプテューヌ</p> <p>　　游戏类型：角色扮演</p> <p>　　制作厂商：Compile Heart</p> <p>　　发行厂商：日本一(NIS)</p> <p>　　对应主机：PS3</p> <p>　　语言版本：美版</p> <p>　　发售日期：2011-02-15</p> <p>　　运行测试：外置测试完美</p> <p>　　游戏介绍：</p> <p>　　《超次元游戏 海王星》(日语：超次元ゲイム ネプテューヌ，英语：Hyperdimension Neptunia)为Idea Factory和Compile Heart开发的以游戏业界为题材的&ldquo;游戏平台拟人化&rdquo;RPG。将ネプテューヌ作为首次虚拟尝试的游戏平台，为了拯救异世界游戏ギョウ界而去进行打倒女神マジェコンヌ的战斗。游戏改编的电视动画从2013年7月播放至9月。</p> <p>　　本游戏是游戏业界作为题材的游戏之心模拟人化的RPG，各大游戏同时在虚拟的世界中相遇，为了拯救游戏界，必须打倒作为マジェコンヌ的女神。四个女神们各自守护着各自的游戏界，这几个女神们一直在互相的争胜。但是这时下界的先代女神 - 烧录卡的存在使得下界的魔物越来越多。为了拯救世界必须要把マジェコンヌ给封印起来，四位女神之一的ネプテューヌ为了阻止マジェコンヌ，首先要停止其余的女神互相的斗争，然后齐心协力找出钥匙的碎片。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66051cfd36ce7.jpg" width="600" alt="PS3 超次元游戏 海王星1(Hyperdimension Neptunia) 美版ISO下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240328_66051cfdad289.jpg" width="600" alt="PS3 超次元游戏 海王星1(Hyperdimension Neptunia) 美版ISO下载" /></p> <p><h4>下载地址(由网友<font color="red">15613648056</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/66794/](https://lad.sfcrom.cn/2024/03/66794/)

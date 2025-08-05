@@ -1,0 +1,13 @@
+---
+title: "switch《吸血鬼：纽约之影 Vampire: The Masquerade  Shadows of New York》英文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《吸血鬼：纽约之影 Vampire: The Masquerade Shadows of New York》英文版。一款有关吸血鬼的视觉小说游戏，你此前的生活已经逝去并被埋葬。并且你没有来生可以指望，你的吸血鬼生活也行将结束，除非一宗无法的犯罪案可以被你揭露。 　　你是无名之辈，你的&hellip;"
+layout: post
+---
+
+ <p>　　switch《吸血鬼：纽约之影 Vampire: The Masquerade Shadows of New York》英文版。一款有关吸血鬼的视觉小说游戏，你此前的生活已经逝去并被埋葬。并且你没有来生可以指望，你的吸血鬼生活也行将结束，除非一宗无法的犯罪案可以被你揭露。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=925217313&amp;bvid=BV1YT4y1G7T9&amp;cid=176408806&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74e59bcba.webp" alt="switch《吸血鬼：纽约之影 Vampire: The Masquerade  Shadows of New York》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74e6049cd.webp" alt="switch《吸血鬼：纽约之影 Vampire: The Masquerade  Shadows of New York》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74e65b973.webp" alt="switch《吸血鬼：纽约之影 Vampire: The Masquerade  Shadows of New York》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74e6b7acf.webp" alt="switch《吸血鬼：纽约之影 Vampire: The Masquerade  Shadows of New York》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a74e72216d.webp" alt="switch《吸血鬼：纽约之影 Vampire: The Masquerade  Shadows of New York》英文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　你是无名之辈，你的吸血鬼家族的流放者，没有特殊价值的政治犯，在移民之都找不到根的移民。凌晨4点，一个烟鬼最喜欢的消遣方式是通过快餐店的玻璃呆呆地盯着街道，饿着肚子，满怀绝望。</p> <p>　　但当纽约的无政府主义领导者遭遇不幸，在大都会的所有吸血鬼中，你被选中进行调查。毫无疑问，这是一个陷阱，当你身处交战吸血鬼世代之间的权力争夺漩涡，只需要知道一件事，如果吸血鬼王子和他的仆从低估了你，他们将会后悔。</p> <p><strong>游戏特色</strong></p> <p>　　这是一款带有黑色恐怖色彩的视觉小说游戏，适合玩过吸血鬼：化妆舞会和喜欢以叙事为主冒险游戏的玩家。</p> <p>　　这是吸血鬼：纽约同僚的独立资料片，通过完全不同的视角观看熟悉的都市，有新角色，新场景和原声音乐。</p> <p>　　扮演勒森魃族的一员，掌握阴影并与另一边的居民交流，但是要小心，危险总是潜伏在那里，准备将你吞噬。</p> <p>　　探索街道，观看各种迷人的精美插图，与这座城市的古怪居民建立联系，一次通关不能解锁全部的游戏内容。</p> <p>　　塑造你的思想，改变你的命运，你曾经避免定义自己，并试图保持中立，但你现在必须做出选择改变这一切。</p> <p><h4>下载地址(由网友<font color="red">falcon81</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/109863/](https://lad.sfcrom.cn/2024/04/109863/)

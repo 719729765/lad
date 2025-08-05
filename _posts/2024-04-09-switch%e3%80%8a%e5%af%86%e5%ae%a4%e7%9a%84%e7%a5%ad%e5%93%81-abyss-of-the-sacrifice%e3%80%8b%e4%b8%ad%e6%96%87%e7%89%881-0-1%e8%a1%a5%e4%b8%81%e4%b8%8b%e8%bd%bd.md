@@ -1,0 +1,13 @@
+---
+title: "switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版1.0.1补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版下载。这是一款悬疑风格的文字冒险游戏，五个女孩在封闭的地下城市中完成逃生，而前方等待着她们是希望，也可能是绝望。 　　营建于地下深处的巨大生活设施&ldquo;基地&rdquo;。 　　它是在何时，又是出于什么目的建造&hellip;"
+layout: post
+---
+
+ <p>　　switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版下载。这是一款悬疑风格的文字冒险游戏，五个女孩在封闭的地下城市中完成逃生，而前方等待着她们是希望，也可能是绝望。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=800348816&amp;bvid=BV1fy4y1i7A7&amp;cid=256375938&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661531860a3ae.jpg" alt="switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615318686fdd.jpg" alt="switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615318701a82.jpg" alt="switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661531876fe19.jpg" alt="switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版1.0.1补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66153187dd600.jpg" alt="switch《密室的祭品 ABYSS OF THE SACRIFICE》中文版1.0.1补丁下载" /></td> </tr> </tbody> </table> <p>　　营建于地下深处的巨大生活设施&ldquo;基地&rdquo;。</p> <p>　　它是在何时，又是出于什么目的建造起来的――</p> <p>　　那里的人民，是谁带领来的――</p> <p>　　漫长岁月中，真相早已风化，历史消失在遥远的过去。</p> <p>　　这里已经没人知道地面的世界。</p> <p>　　现在，惟有存在于地下的这个基地才是人们的&ldquo;世界&rdquo;。</p> <p>　　突袭那里的&ldquo;异变&rdquo;改变了5个女孩的命运。</p> <p>　　无人的&ldquo;世界&rdquo;。</p> <p>　　动辄来袭的剧烈震动。</p> <p>　　倒塌的墙壁和天顶。</p> <p>　　不断减少的水和食物――</p> <p>　　仅存的5个少女必须在极端恶劣的环境中求得生存。</p> <p>　　如今，基地面临崩溃。</p> <p>　　而少女们最后的漫长试练，</p> <p>　　现今，也将开始――</p> <p>　　游戏介绍</p> <p>　　悬疑ADV融合扎实剧情的逃生游戏</p> <p>　　可爱少女们演出谜中谜正统悬疑。</p> <p>　　逃生部分超高难度，最有信心的玩家也会惊呼不可思议!</p> <p>　　变幻式剧本，在频繁的绝望中寻求希望</p> <p>　　角色不同，关卡展开亦不同。</p> <p>　　即使同一关卡，选择顺序不同，内容和结尾也会改变。</p> <p>　　其结果，可能事关女孩生死&hellip;&hellip;</p> <p><h4>下载地址(由网友<font color="red">Simon-Ch</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146387/](https://lad.sfcrom.cn/2024/04/146387/)

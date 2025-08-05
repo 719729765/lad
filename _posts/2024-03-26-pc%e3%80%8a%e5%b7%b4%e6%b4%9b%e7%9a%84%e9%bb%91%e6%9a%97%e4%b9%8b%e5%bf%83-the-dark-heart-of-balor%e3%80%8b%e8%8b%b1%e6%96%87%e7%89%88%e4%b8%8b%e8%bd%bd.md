@@ -1,0 +1,13 @@
+---
+title: "PC《巴洛的黑暗之心 The Dark Heart of Balor》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《巴洛的黑暗之心 The Dark Heart of Balor》英文版下载，这是一款横版的动作冒险游戏，有些类似暗黑破坏神系列的风格，主角的任务是讲恶魔赶回地狱，喜欢动作游戏的玩家不要错过。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Game Artists, LLC 　　游戏&hellip;"
+layout: post
+---
+
+ <p>　　PC《巴洛的黑暗之心 The Dark Heart of Balor》英文版下载，这是一款横版的动作冒险游戏，有些类似暗黑破坏神系列的风格，主角的任务是讲恶魔赶回地狱，喜欢动作游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=727851597&amp;bvid=BV13S4y1p7qE&amp;cid=756288578&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034b1405920.jpg" alt="PC《巴洛的黑暗之心 The Dark Heart of Balor》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034b15203b1.jpg" alt="PC《巴洛的黑暗之心 The Dark Heart of Balor》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034b160640f.jpg" alt="PC《巴洛的黑暗之心 The Dark Heart of Balor》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034b16bd877.jpg" alt="PC《巴洛的黑暗之心 The Dark Heart of Balor》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Game Artists, LLC</p> <p>　　游戏发行：Game Artists, LLC</p> <p>　　&ldquo;巴洛的黑暗之心&rdquo;是一款黑暗幻想黑客和斜杠侧卷轴，你可以在其中扮演被恶魔附体的猎人。大恶魔巴洛打开了通往人类王国的地狱之门，成群结队的恶魔和怪物涌入人类世界，摧毁了他们道路上的一切。你必须保护那些还活着的人，最终摧毁巴洛，关闭大门。你的探索将带你穿越埃里顿大陆，进入黑暗的地窖、恶魔横行的荒野和世界结构中的恶魔裂缝。它将充满致命的陷阱、伏击和谜题。你路上的恶魔敌人将考验你的战斗技能和新发现的奥术力量。你会变得足够强大以结束巴洛的恐怖统治吗?世界的命运取决于你亨特。</p> <p>　　游戏特色</p> <p>　　惊险的3D侧滚黑客和斜杠游戏。</p> <p>　　要探索的大气黑暗幻想世界。游戏中的每个关卡都有独特的环境设计、各种NPC以及玩家技能和移动的有趣运用。</p> <p>　　大量的致命武器和力量需要解锁。你有各种各样的武器，近战武器和魔法武器，你可以在几个强大的组合中使用。</p> <p>　　要杀死的怪物和恶魔的军队。</p> <p>　　升级系统。随着游戏的进行，您将获得可用于提升角色能力的技能点，例如多种进攻和防守技能以及魔法。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7, 8, 8.1, 10 x64</p> <p>　　处理器: Quad-core Intel or AMD processor, 2.5 GHz or faster</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: NVIDIA GeForce 470 GTX or AMD Radeon 6870 HD series card or higher.</p> <p>　　存储空间: 需要 6 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《巴洛的黑暗之心 The Dark Heart of Balor》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">75005768</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40631/](https://lad.sfcrom.cn/2024/03/40631/)

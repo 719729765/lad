@@ -1,0 +1,13 @@
+---
+title: "死亡终局：轮回试炼2 Death end re;Quest2 PC免安装中文版下载（Build 20200924）"
+date: 2024-03-27
+tags: []
+categories: ["2020年游戏"]
+excerpt: "　　死亡终局：轮回试炼2 Death end re;Quest2 PC免安装中文版下载。这是一款黑暗风格的动作角色扮演游戏，续作保留了死亡终局的设定，错误的选择会导致游戏结束。 　　在遥远的诅咒之城发生的悲剧&mdash;&mdash; 　　现实世界中出现的「神秘现象」「接连失踪的住宿生」「城中潜藏&hellip;"
+layout: post
+---
+
+ <p>　　死亡终局：轮回试炼2 Death end re;Quest2 PC免安装中文版下载。这是一款黑暗风格的动作角色扮演游戏，续作保留了死亡终局的设定，错误的选择会导致游戏结束。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=82644004&amp;bvid=BV1hJ411G7Xk&amp;cid=141400696&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660440d2cbcbd.jpg" width="600" alt="死亡终局：轮回试炼2 Death end re;Quest2 PC免安装中文版下载（Build 20200924）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660440d351ae9.jpg" width="600" alt="死亡终局：轮回试炼2 Death end re;Quest2 PC免安装中文版下载（Build 20200924）" /></p> <p>　　在遥远的诅咒之城发生的悲剧&mdash;&mdash;</p> <p>　　现实世界中出现的「神秘现象」「接连失踪的住宿生」「城中潜藏的阴谋」「妹妹的下落」&hellip;&hellip;</p> <p>　　超越前作的恐惧袭来。</p> <p>　　众多谜团交错，恐怖与绝望的RPG。</p> <p>　　不同于前作的Bug，本作中「诅咒」将逐渐侵蚀现实世界。</p> <p>　　利用Bug的特色依然存在，凭借诅咒&ldquo;击飞敌人&rdquo;的「击飞Bug」。</p> <p>　　全面升级的战斗系统将给玩家带来更大的游戏乐趣。</p> <p>　　故事介绍</p> <p>　　故事发生在一个名叫利兹&middot;萨拉的被诅咒的小镇上，住在女生宿舍里的女士们开始陆续失踪。主人公舞不得不使用她的黑客能力来解开谜团。然而，这引发了新的&ldquo;绝望轮舞曲&rdquo;。前作中消失的天才程序员二之宫椎名也会在本作中出现。</p> <p>　　利兹&middot;萨拉镇位于某一地区的山区，中心建有一座教堂，并附带有女生宿舍。随着女孩们一个接一个的消失，主角们将会卷入一个涉及整个城市范围的神秘现象，以及围绕城市展开的阴谋。现在有四个角色公布，包括回归的主人公二之宫椎名和新主人公东山舞，她是一个智商极高但不怎么爱学习的天才黑客。她的朋友&ldquo;Rotten Dollheart&rdquo;(这是一个昵称)是宿舍管理者的女儿，看起来很阳关待人也很友好。但事实上，与急于解决问题的好奇一面相反，她有着相对封闭的内心。莉莲娜&middot;皮亚塔(Liliana Piata)是第四位介绍的角色，她内容般的说话腔调与她的年龄和外表形成了鲜明的对比。莉莲娜的父亲已经自杀而自己一直被母亲虐待，但实际上她内心在渴望着母爱。</p> <p><h4>下载地址(由网友<font color="red">a721283265</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/61968/](https://lad.sfcrom.cn/2024/03/61968/)

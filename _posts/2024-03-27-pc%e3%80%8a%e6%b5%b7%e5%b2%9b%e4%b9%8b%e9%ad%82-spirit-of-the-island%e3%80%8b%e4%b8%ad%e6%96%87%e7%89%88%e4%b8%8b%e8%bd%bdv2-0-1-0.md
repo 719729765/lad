@@ -1,0 +1,13 @@
+---
+title: "PC《海岛之魂 Spirit of the Island》中文版下载v2.0.1.0"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《海岛之魂 Spirit of the Island》中文版下载v2.0.1.0，这是一款卡通风格的角色扮演游戏，同时为玩家准备了丰富的模拟经营类元素，有大家都喜欢的种田内容，感兴趣的话大家不妨来试试吧。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：1M Bits Horde 　　游戏&hellip;"
+layout: post
+---
+
+ <p>PC《海岛之魂 Spirit of the Island》中文版下载v2.0.1.0，这是一款卡通风格的角色扮演游戏，同时为玩家准备了丰富的模拟经营类元素，有大家都喜欢的种田内容，感兴趣的话大家不妨来试试吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=979787658&amp;bvid=BV1R44y1K7he&amp;cid=551303370&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603974e71da9.webp" alt="PC《海岛之魂 Spirit of the Island》中文版下载v2.0.1.0" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603974ee3bd3.webp" alt="PC《海岛之魂 Spirit of the Island》中文版下载v2.0.1.0" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603974f4c98f.webp" alt="PC《海岛之魂 Spirit of the Island》中文版下载v2.0.1.0" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：1M Bits Horde</p> <p>　　游戏发行：META Publishing</p> <p>　　《Spirit of the Island》是一款绚丽多姿的生活模拟类角色扮演游戏。游戏发生在一片堪称天堂的热带群岛，你的任务就是帮助当地居民，饲养动物，最终将了无人烟的群岛变为繁荣的旅游胜地!</p> <p>　　故事发生在一座偏远的热带岛屿上。踏上漫长的旅程，探索曾经繁荣一时的旅游胜地，会见当地居民，为恢复小镇的往日繁荣献一份力，一步一步揭开有关你过往的秘密!</p> <p>　　游戏介绍</p> <p>　　建造、制作和务农</p> <p>　　与游戏中几乎所有角色互动，释放无穷创造力，解锁数百种食谱，制作数百种物品!</p> <p>　　打造属于游客的理想世界</p> <p>　　建造新的景点，雇佣员工，开发岛屿，并筹划能够吸引世界各地游客的狂欢盛典!</p> <p>　　与自然融为一体</p> <p>　　探索美丽而又危险的世界，发现独特的动植物，勇敢地面对当地气候和四季更迭，收集散落在岛屿各处的稀有文物!</p> <p>　　帮助你的社区繁荣发展</p> <p>　　会见古怪的人物，完成有趣的任务，结交新朋友，改善马鲁希亚居民的生活状况!</p> <p>　　跟随故事线发展</p> <p>　　解决《Spirit Of The Island》中的各个挑战，找出深藏于记忆中的秘密，与此同时，可别忘了磨练自己!</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10 64 bit</p> <p>　　处理器: Intel i3 Processor</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Nvidia GeForce MMX 110</p> <p>　　DirectX 版本: 10</p> <p>　　存储空间: 需要 8 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603974f9b3b3.webp" width="504" alt="PC《海岛之魂 Spirit of the Island》中文版下载v2.0.1.0" /></p> <p>　　以上内容就是小编为大家带来的《岛屿精神 Spirit of the Island》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">dongyahuid</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51970/](https://lad.sfcrom.cn/2024/03/51970/)

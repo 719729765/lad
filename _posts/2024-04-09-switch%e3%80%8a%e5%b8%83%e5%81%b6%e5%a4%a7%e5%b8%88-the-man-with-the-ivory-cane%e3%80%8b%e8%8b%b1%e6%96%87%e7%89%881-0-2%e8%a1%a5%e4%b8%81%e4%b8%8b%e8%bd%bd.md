@@ -1,0 +1,13 @@
+---
+title: "switch《布偶大师 The Man With The Ivory Cane》英文版1.0.2补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《布偶大师 The Man With The Ivory Cane》英文版下载。一款由CateiaGames制作，BIGFISH发行的冒险AVG游戏，玩家需要在游戏中找寻线索，解开关于布偶的谜题。 　　探索20世纪早期的巴黎在这个有趣的故事，犯罪，爱情和命运!解决一个失踪女孩的案件，&hellip;"
+layout: post
+---
+
+ <p>　　switch《布偶大师 The Man With The Ivory Cane》英文版下载。一款由CateiaGames制作，BIGFISH发行的冒险AVG游戏，玩家需要在游戏中找寻线索，解开关于布偶的谜题。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661526154475c.webp" width="600" alt="switch《布偶大师 The Man With The Ivory Cane》英文版1.0.2补丁下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66152615bd1d1.webp" width="600" alt="switch《布偶大师 The Man With The Ivory Cane》英文版1.0.2补丁下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615261637b3e.webp" width="600" alt="switch《布偶大师 The Man With The Ivory Cane》英文版1.0.2补丁下载" /></p> <p>　　探索20世纪早期的巴黎在这个有趣的故事，犯罪，爱情和命运!解决一个失踪女孩的案件，揭露一个木偶大师试图操纵你。</p> <p>　　没有多少人知道这一点，但是这座充满爱的城市，在浪漫的河畔，承载的不仅仅是激情。你要做的就是钻到地下，然后带着证据回来!你能接受这个挑战吗?把你的解谜技巧放在最后的测试和逃脱隐藏的陷阱。</p> <p>　　发现背后的神秘人与象牙手杖或巴黎将永远不会相同!</p> <p>　　游戏特色</p> <p>　　-扮演一个陷入奇怪犯罪的艺术家</p> <p>　　-探索巴黎及其神秘的环境</p> <p>　　-阻止你的对手，发现你的勇气</p> <p>　　-解决数百个任务和玩迷你游戏</p> <p>　　-取得成就，并找到特别的项目</p> <p><h4>下载地址(由网友<font color="red">xzp360607342</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/146163/](https://lad.sfcrom.cn/2024/04/146163/)

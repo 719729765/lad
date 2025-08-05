@@ -1,0 +1,13 @@
+---
+title: "switch《海上快车谋杀案 Murder on the Marine Express》英文版nsz下载【含1.0.1补丁】"
+date: 2024-04-04
+tags: []
+categories: ["nsz英日游戏"]
+excerpt: "　　switch《海上快车谋杀案 Murder on the Marine Express》英文版下载，这是一款文字的推理解谜游戏，像素风格的画面，游戏的故事以一件谋杀案为中心展开，感兴趣的玩家不要错过哦。 　　圣约阿希姆精英女孩学院(St.Joachim Academy for elite gir&hellip;"
+layout: post
+---
+
+ <p>　　switch《海上快车谋杀案 Murder on the Marine Express》英文版下载，这是一款文字的推理解谜游戏，像素风格的画面，游戏的故事以一件谋杀案为中心展开，感兴趣的玩家不要错过哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=430012591&amp;bvid=BV1KG41157Tp&amp;cid=819723220&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb4427c01a.jpg" alt="switch《海上快车谋杀案 Murder on the Marine Express》英文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb442f00a0.jpg" alt="switch《海上快车谋杀案 Murder on the Marine Express》英文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb44376132.jpg" alt="switch《海上快车谋杀案 Murder on the Marine Express》英文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb4440ae45.jpg" alt="switch《海上快车谋杀案 Murder on the Marine Express》英文版nsz下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660eb44479ec0.jpg" alt="switch《海上快车谋杀案 Murder on the Marine Express》英文版nsz下载【含1.0.1补丁】" /></td> </tr> </tbody> </table> <p>　　圣约阿希姆精英女孩学院(St.Joachim Academy for elite girls)预订了新的海洋特快潜艇列车的处女航，该列车从阳光明媚的加利福尼亚一直延伸到日本海岸。这次旅行似乎是一个绝佳的机会，可以欣赏美丽的水下景色，学习更多关于海洋生物的知识，并最终从平常的学校生活中放松下来。然而，田园诗般的旅行变成了一场噩梦，一位陪同的老师死在了他的房间里。谁能杀死学院里最受欢迎和最受爱戴的教授?</p> <p>　　脾气暴躁但有着强烈责任感的学生Ranko Togawa决定在朋友Astrid的陪同下调查事件，以澄清案件主要嫌疑人的姓名。当然，事情不会那么简单。随着受害者人数的不断增加，面对连环杀手的可能性越来越大，混乱慢慢占据了整个列车。兰科必须充分利用时间找出真相，防止神秘的杀人犯继续肆无忌惮地行动，尽管这场混乱中的所有答案都不是她喜欢的&hellip;</p> <p>　　了解隐藏在《海洋快车》中的秘密，并在这个悲剧、惊喜和大量幽默的故事中发现罪魁祸首!</p> <p>　　游戏特色</p> <p>　　一部神秘的视觉小说，具有经典的锁定空间，侦探小说遵循流行侦探小说的风格发展。</p> <p>　　一个分为5章的故事，提供3-4小时的阅读时间。</p> <p>　　复古风格的图形，像素艺术风格的老文本冒险游戏。</p> <p>　　大量有魅力的人物，有幽默的对话。</p> <p>　　兰科电话上的旁白有助于了解火车上的情况，了解更多关于圣约阿希姆学生的情况。</p> <p>　　以上内容就是小编为大家带来的《海上快车谋杀案 Murder on the Marine Express》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">thy00123</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/127325/](https://lad.sfcrom.cn/2024/04/127325/)

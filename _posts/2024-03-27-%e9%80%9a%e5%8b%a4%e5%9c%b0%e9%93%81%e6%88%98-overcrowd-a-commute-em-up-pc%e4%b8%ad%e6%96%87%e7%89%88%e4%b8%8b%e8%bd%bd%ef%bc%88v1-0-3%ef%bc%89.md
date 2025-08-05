@@ -1,0 +1,13 @@
+---
+title: "通勤地铁战 Overcrowd A Commute Em Up PC中文版下载（v1.0.3）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　通勤地铁战 Overcrowd A Commute Em Up PC中文版下载。《通勤地铁战》是一款2.5D策略模拟经营游戏，您将经营一座位于繁华小镇的地铁站。精心设计建造，不断挖掘扩张，合理分配员工，努力将其运作成为世界一流的地铁站吧! 　　每天，数以百万计的人们拼命地挤在地铁里去上下班。您能&hellip;"
+layout: post
+---
+
+ <p>　　通勤地铁战 Overcrowd A Commute Em Up PC中文版下载。《通勤地铁战》是一款2.5D策略模拟经营游戏，您将经营一座位于繁华小镇的地铁站。精心设计建造，不断挖掘扩张，合理分配员工，努力将其运作成为世界一流的地铁站吧!</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=32388267&amp;bvid=BV19W411z7xp&amp;cid=56670770&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603871d63f73.jpg" width="600" alt="通勤地铁战 Overcrowd A Commute Em Up PC中文版下载（v1.0.3）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603871e15b5d.jpg" width="600" alt="通勤地铁战 Overcrowd A Commute Em Up PC中文版下载（v1.0.3）" /></p> <p>　　每天，数以百万计的人们拼命地挤在地铁里去上下班。您能够建造并运营一座完美的地铁站来帮助他们按时通勤吗?</p> <p>　　《通勤地铁战》是一款战略模拟经营游戏，您将经营一座位于繁华的卢布顿镇的地铁站。游戏融合了基础建设、可暂停的事实策略以及空间谜题等元素。</p> <p>　　游戏介绍</p> <p>　　设计与建造</p> <p>　　在四层高的区域内挖掘道路，仔细设计您的布局，并利用用户定义的方向标志来绘制通勤线路。使用各种各样的设备来保持正常运作并解锁和采购。</p> <p>　　管理员工</p> <p>　　您需要组建一个一流的团队，装备并部署他们来实时运作您的地铁站。您可以设置工作优先级、安排休息时间或手动部署它们。建造休息室来让员工保持良好的工作状态，您可以把地铁站建设至新的深度。</p> <p>　　乘客</p> <p>　　就像你我一样，乘客也有需求。一个运作不良的地铁站充满了危险&mdash;&mdash;延误、高温、污垢、老鼠&mdash;&mdash;这将会影响乘客的心理状态和您的地铁站声誉。请当心那些试图破坏您工作的流氓和扒手!</p> <p>　　模拟</p> <p>　　从垃圾箱清理、发电机加油、供电、垃圾收集、供热、通勤AI、商店价格、库存和员工的活动，每件事都可以模拟到个人的层面。高自由度的交互系统为意外和不可预测的游戏提供了充足的游玩空间。</p> <p>　　多种游戏模式</p> <p>　　一般模式&mdash;&mdash;在一般模式中建立一个地铁站网络，雇佣员工并研究技术。当您拥有更多的资源时，可以回到过去的地铁站，并尝试获得一个完整的5星评级!</p> <p>　　沙盒模式&mdash;&mdash;您可以自定义金钱、人员、地图大小和输赢状态等所有内容。让游戏变得简单、困难或富有创造性。</p> <p>　　随机模式&mdash;&mdash;在随机生成的地图上建立一个独一无二的地铁站。</p> <p>　　一般模式&mdash;&mdash;在一般模式中建立一个地铁站网络，雇佣员工并研究技术。当您拥有更多的资源时，可以回到过去的地铁站，并尝试获得一个完整的5星评级!</p> <p>　　沙盒模式&mdash;&mdash;您可以自定义金钱、人员、地图大小和输赢状态等所有内容。让游戏变得简单、困难或富有创造性。</p> <p>　　随机模式&mdash;&mdash;在随机生成的地图上建立一个独一无二的地铁站。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 10</p> <p>　　处理器: i5 or equivalent</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: Desktop nvidia GTX 960 4gb or equivalent (integrated GPUs/lower spec mobile laptop GPUs not supported)</p> <p>　　存储空间: 需要 500 MB 可用空间</p> <p><strong>安装信息</strong></p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">1131610192</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/48909/](https://lad.sfcrom.cn/2024/03/48909/)

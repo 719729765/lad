@@ -1,0 +1,13 @@
+---
+title: "PC《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版下载【v0.9.5j版|集成全DLC】"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版下载【v0.9.5j版|集成全DLC】，这是一款3D的模拟经营游戏，很典型的农场经营类玩法，种田钓鱼，该有的都有，喜欢的玩家不要错过。 　　游戏类型：模拟经营类(SIM)游戏 　　游戏制作：Family Dev&hellip;"
+layout: post
+---
+
+ <p>PC《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版下载【v0.9.5j版|集成全DLC】，这是一款3D的模拟经营游戏，很典型的农场经营类玩法，种田钓鱼，该有的都有，喜欢的玩家不要错过。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ad1c13ef4.webp" alt="PC《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版下载【v0.9.5j版|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ad1c6f56b.webp" alt="PC《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版下载【v0.9.5j版|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ad1cc5229.webp" alt="PC《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版下载【v0.9.5j版|集成全DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603ad1d2b16b.webp" alt="PC《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版下载【v0.9.5j版|集成全DLC】" /></td> </tr> </tbody> </table> <p>　　游戏类型：模拟经营类(SIM)游戏</p> <p>　　游戏制作：Family Devs</p> <p>　　游戏发行：Family Devs/Toplitz Productions</p> <p>　　乡村生活正在召唤着你!在一个精心设计的开放式游戏世界中实现你的梦想并管理你自己的农场。努力工作，谨慎管理，把你的农场变成一个大自然中的小天堂。农场的生活和工作在等着你!</p> <p>　　游戏介绍</p> <p>　　成为一名农民!</p> <p>　　种植水果和蔬菜，照顾你的动物，销售你的产品。</p> <p>　　放松点!</p> <p>　　在附近的湖边钓鱼，与邻居愉快地交谈，或者骑着你的马穿过未开发的大自然--放松和享受是你的每日安排。</p> <p>　　探索开放的游戏世界!</p> <p>　　无数个充满惊喜的地方等着你去发现。充满宝贵矿物的山洞、破败的神秘寺庙、隐藏着秘密的沼泽等等。</p> <p>　　与不同的村民建立关系。</p> <p>　　加入村庄社区，结交新朋友。</p> <p>　　购买、出售或交易产品。</p> <p>　　你可以将利润直接投资于你的农场，使它越来越完善惊艳。</p> <p>　　收集资源，创造你自己的工具和家具。</p> <p>　　《丰登之日》的开放世界充满了资源：木材、石头、矿物、宝石、神奇蘑菇、浆果等等。</p> <p>　　车辆和马匹将帮助你快速、轻松地完成长距离的任务。</p> <p>　　你的收获比预期的要多?没问题&mdash;&mdash;你可以为每个任务选择合适的车辆。</p> <p>　　每次游戏都是独一无二的</p> <p>　　按照你的意愿做出决定&mdash;&mdash;做让你开心的事</p> <p>　　照顾好自己!</p> <p>　　在繁忙的工作中不要忘记自己的健康和快乐，好好吃饭，多喝水，保证睡眠。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 7 or later</p> <p>　　处理器: 2.6 GHz Dual Core or similar</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: GeForce GTX 500 series or similar</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 7 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《丰登之日：我的梦中农场 Harvest Days My Dream Farm》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">dai1135131</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50922/](https://lad.sfcrom.cn/2024/03/50922/)

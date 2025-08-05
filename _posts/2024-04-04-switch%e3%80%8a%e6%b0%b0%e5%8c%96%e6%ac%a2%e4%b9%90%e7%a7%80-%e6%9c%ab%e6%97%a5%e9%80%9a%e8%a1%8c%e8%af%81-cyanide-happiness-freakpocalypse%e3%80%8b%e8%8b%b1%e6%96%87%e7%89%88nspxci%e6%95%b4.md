@@ -1,0 +1,13 @@
+---
+title: "switch《氰化欢乐秀-末日通行证 Cyanide &#038; Happiness Freakpocalypse》英文版nsp/xci整合版下载【含1.2补丁】"
+date: 2024-04-04
+tags: []
+categories: ["Switch魔改版"]
+excerpt: "　　switch《氰化欢乐秀-末日通行证 Cyanide &amp; Happiness Freakpocalypse》英文版下载。这是一款具有黑色幽默、喜剧味道的冒险游戏。玩家将在游戏中体验各种各样的无厘头情节，然而主人公还是要拯救世界。 　　你扮演的角色叫库珀&middot;麦卡锡，人称&amp;ldq&hellip;"
+layout: post
+---
+
+ <p>　　switch《氰化欢乐秀-末日通行证 Cyanide &amp; Happiness Freakpocalypse》英文版下载。这是一款具有黑色幽默、喜剧味道的冒险游戏。玩家将在游戏中体验各种各样的无厘头情节，然而主人公还是要拯救世界。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=247064375&amp;bvid=BV11v411h77E&amp;cid=309029840&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ecdcfc4b6f.jpg" alt="switch《氰化欢乐秀-末日通行证 Cyanide &amp; Happiness Freakpocalypse》英文版nsp/xci整合版下载【含1.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ecdd033fd6.jpg" alt="switch《氰化欢乐秀-末日通行证 Cyanide &amp; Happiness Freakpocalypse》英文版nsp/xci整合版下载【含1.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ecdd0a0fd9.jpg" alt="switch《氰化欢乐秀-末日通行证 Cyanide &amp; Happiness Freakpocalypse》英文版nsp/xci整合版下载【含1.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ecdd13450d.jpg" alt="switch《氰化欢乐秀-末日通行证 Cyanide &amp; Happiness Freakpocalypse》英文版nsp/xci整合版下载【含1.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240404_660ecdd1a0f74.jpg" alt="switch《氰化欢乐秀-末日通行证 Cyanide &amp; Happiness Freakpocalypse》英文版nsp/xci整合版下载【含1.2补丁】" /></td> </tr> </tbody> </table> <p>　　你扮演的角色叫库珀&middot;麦卡锡，人称&ldquo;奇葩给老子滚远点儿&rdquo;。你的梦想是让这个世界好起来，但问题是根本没人喜欢你，学校又无聊得要死，你连毕业舞会的舞伴都找不到，大家都爱欺负你，连你老师都不放过你。你能活着从高中毕业吗?会有人爱你吗?你值得被爱吗?为什么这个游戏叫《氰化欢乐秀-末日通行证》?这些问题的答案都要等你去发掘，在这个氰化秀宇宙中，你可以到处看、到处摸、到处对话。</p> <p>　　游戏特色</p> <p>　　就像在玩充满黑暗幽默的Cyanide&amp;Happiness动画卡通</p> <p>　　对话充分，疯狂的怪胎</p> <p>　　与&ldquo;氰化物与幸福&rdquo;宇宙中您喜欢的角色进行互动，包括泰德熊，鲨鱼爸爸，Se&ntilde;orCleanfist等!</p> <p>　　可供观看，触摸和交谈的大量字符和对象</p> <p>　　电影过场动画和完整的原声带</p> <p>　　解锁服装供您查找，穿着和使自己尴尬</p> <p>　　提供特殊奖励和重玩性的可选边际任务</p> <p>　　跑步或走路-就像现实生活中一样!</p> <p>　　根据您在游戏中的好坏来取得的成就</p> <p>　　死亡的秘密方式!</p> <p>　　正在进行的世界末日舞会故事的第1部分!</p> <p>　　借助Kickstarter上的15,000名性感天才，他们得以重获新生</p> <p>　　体验不受欢迎的失败者的生活</p> <p><h4>下载地址(由网友<font color="red">leoz93</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/129612/](https://lad.sfcrom.cn/2024/04/129612/)

@@ -1,0 +1,13 @@
+---
+title: "PC《牛车水侦探社 Chinatown Detective Agency》免安装中文版下载（v1.0.16）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《牛车水侦探社 Chinatown Detective Agency》免安装中文版下载。这是一款侦探题材的冒险解密游戏，用像素画面为玩家打造了一个赛博朋克风的世界，游戏的剧情也很不错，一起来看看吧。 　　类型:冒险 　　开发商:General Interactive Co. 　　发行商:Hu&hellip;"
+layout: post
+---
+
+ <p>　　PC《牛车水侦探社 Chinatown Detective Agency》免安装中文版下载。这是一款侦探题材的冒险解密游戏，用像素画面为玩家打造了一个赛博朋克风的世界，游戏的剧情也很不错，一起来看看吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=673599357&amp;bvid=BV1VU4y157NS&amp;cid=351696180&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398f52314a.jpg" alt="PC《牛车水侦探社 Chinatown Detective Agency》免安装中文版下载（v1.0.16）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398f5890e4.jpg" alt="PC《牛车水侦探社 Chinatown Detective Agency》免安装中文版下载（v1.0.16）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398f601c24.jpg" alt="PC《牛车水侦探社 Chinatown Detective Agency》免安装中文版下载（v1.0.16）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660398f66ef82.jpg" alt="PC《牛车水侦探社 Chinatown Detective Agency》免安装中文版下载（v1.0.16）" /></td> </tr> </tbody> </table> <p>　　类型:冒险</p> <p>　　开发商:General Interactive Co.</p> <p>　　发行商:Humble Games,WhisperGames</p> <p>　　游戏介绍</p> <p>　　在新加坡午夜。您的联系人没有出现，您的客户想要答案，而您的空余银行余额像霓虹色的达摩克利斯之剑一样悬在您身上。欢迎来到2032。欢迎来到唐人街侦探社。</p> <p>　　随着全球经济接近十年崩溃的最低点，世界处于动荡状态。新加坡是秩序的最后避难所，但即使在这里，政府仍在混乱中挣扎。现在，私家侦探是对那些有能力承担正义的公民的首次呼吁。</p> <p>　　游戏特色</p> <p>&nbsp;</p> <p align="center">　探索濒临崩溃的世界</p> <p>　　雨水堆积的水洼中反射着霓虹灯光。在一座座衰败的城市里，愤怒的人民用涂鸦表达他们的不满。伦敦河畔的阴霾，上海耀眼的灯光。探索上百处由艺术家RicardoJuchem操刀渲染的震撼场景，让你自己沉浸在2032年混乱的未来之中。以新加坡的总部为中心，游历全球，与数十名具备神秘内幕的配音角色交谈，寻找线索。</p> <p>　　通过真实世界的调查破案。</p> <p>　　Amira接手的案子当然需要智慧和直觉，但当线索中断了怎么办?这时候就需要你在游戏之外寻找答案。《ChinatownDetectiveAgency》中的谜题需要真实世界的调查，这可能包括在网上寻找机场代码或追踪一句神秘格言的出处。你不是在扮演侦探，而是要成为侦探。</p> <p>　　千万别破产!</p> <p>　　在《ChinatownDetectiveAgency》中，时间是宝贵的资源。请明智利用你的时间和金钱，事事抢先一步，避免破产的悲惨命运。</p> <p>　　每个选择都会影响你周围的世界，永远改变Amira的故事。你能从恐慌和混乱的魔爪中拯救这座城市吗?</p> <p>　　以上内容就是小编为大家带来的《牛车水侦探社 Chinatown Detective Agency》免安装中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">issachu</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/50763/](https://lad.sfcrom.cn/2024/03/50763/)

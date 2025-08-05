@@ -1,0 +1,13 @@
+---
+title: "switch《春逝百年抄 The Centennial Case: A Shijima Story》中文版1.04补丁+DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "switch《春逝百年抄 The Centennial Case: A Shijima Story》中文版1.04补丁+DLC下载，这是一款由真人出演的冒险解密游戏，为玩家带来了一个精彩的本格推理故事。游戏的制作阵容很强大，喜欢推理游戏的玩家不要错过。 　　这是一款围绕着永恒生命展开的&ldquo;&hellip;"
+layout: post
+---
+
+ <p>switch《春逝百年抄 The Centennial Case: A Shijima Story》中文版1.04补丁+DLC下载，这是一款由真人出演的冒险解密游戏，为玩家带来了一个精彩的本格推理故事。游戏的制作阵容很强大，喜欢推理游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=593902187&amp;bvid=BV1Zq4y1b7Av&amp;cid=505445299&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615497196610.webp" width="1000" alt="switch《春逝百年抄 The Centennial Case: A Shijima Story》中文版1.04补丁+DLC下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154972132ce.webp" width="1000" alt="switch《春逝百年抄 The Centennial Case: A Shijima Story》中文版1.04补丁+DLC下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154972a2b94.webp" width="1000" alt="switch《春逝百年抄 The Centennial Case: A Shijima Story》中文版1.04补丁+DLC下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6615497333077.webp" width="1000" alt="switch《春逝百年抄 The Centennial Case: A Shijima Story》中文版1.04补丁+DLC下载" /></p> <p>　　这是一款围绕着永恒生命展开的&ldquo;新本格&rdquo;派悬疑冒险游戏。游侠网分享春逝百年抄下载，玩家可以在游戏中挑战公平推理谜题。收集&ldquo;线索&rdquo;，建立&ldquo;假设&rdquo;，用逻辑解开谜团。</p> <p>　　玩家将面临挑战，以解决跨越一百年的谋杀之谜。</p> <p>　　这四起凶杀案发生在1922年、1972年和2022年三个时代。</p> <p>　　每个故事由问题篇、推理篇和解决篇三部分组成，带领玩家顺利进入悬疑世界。</p> <p>　　探索各个时代，收集各种&ldquo;线索&rdquo;，解开百年之谜。</p> <p>　　故事介绍</p> <p>　　游戏主要讲述了推理小说家女主河河见遥某天接到学者四十间永司的委托后，便和编辑山濑明里一起造访永司在富士山脚下的老家&ldquo;四十间宅邸&rdquo;。永司的委托内容是查清樱花树下白骨尸体的身份，以及寻找四十间宅邸传说中的&ldquo;不老果实&rdquo;。遥对此传说半信半疑，这时山濑明里递给一本古书，其中的内容由永司的祖先四十见佳乃所写，以小说的形式记载了&ldquo;不老的果实&rdquo;和其百年前的故事，而这些故事对应了现实中所发生的杀人事件。玩家将穿越到日本的不同时期，收集分散在每个时代的信息，揭开一百年来四十见家族四起谋杀案的真相，解开古老的谜团。</p> <p>　　游戏将由伊东幸一郎导演，影视制作与场景导演为参与过网飞热剧《全裸导演》的橘康仁担任，由《新美妙世界》h.a.n.d.工作室开发。参与过《尼尔：自动人形》，《巴比伦的陨落》的江原纯一担任制作人。</p> <p>　　以上内容就是小编为大家带来的《春逝百年抄 The Centennial Case: A Shijima Story》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">akanige</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/145564/](https://lad.sfcrom.cn/2024/04/145564/)

@@ -1,0 +1,13 @@
+---
+title: "PC《死人日记 Dead Man´s Diary》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《死人日记 Dead Man&acute;s Diary》中文版下载，这是一款末日生存类型的冒险游戏，背景是核战之后的废土世界，玩家要在这里体验一场令人难忘的冒险故事，喜欢这个题材的玩家不要错过。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：TML-Studios 　　游戏发行：T&hellip;"
+layout: post
+---
+
+ <p>　　PC《死人日记 Dead Man&acute;s Diary》中文版下载，这是一款末日生存类型的冒险游戏，背景是核战之后的废土世界，玩家要在这里体验一场令人难忘的冒险故事，喜欢这个题材的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=425084018&amp;bvid=BV163411p7FV&amp;cid=557701265&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f911dae2.jpg" alt="PC《死人日记 Dead Man´s Diary》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f91817d6.jpg" alt="PC《死人日记 Dead Man´s Diary》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f91dea27.jpg" alt="PC《死人日记 Dead Man´s Diary》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039f92499b5.jpg" alt="PC《死人日记 Dead Man´s Diary》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：TML-Studios</p> <p>　　游戏发行：TML-Studios</p> <p>　　这是一个虚构的后末世世界。灾难发生15年后，你不得不离开避难所，去探索没有人类生活的世界。你必须独自寻找生存之道。</p> <p>　　Dead Man&#39;s Diary是一款独特的综合游戏，集合了多种游戏元素。其采用了典型的生存游戏机制，收集、制作物品，探索这个并不太友善的世界，寻找食物填饱肚子，或找到睡觉的地方。除此之外，以日记形式呈现的引人入胜的故事和丰富的谜题将使你沉浸在核战后的废土世界中。</p> <p>　　游戏特色</p> <p>　　欣赏!大量精心设计的实景地点，使用引擎制作</p> <p>　　探索!黑暗森林，城市废墟和废弃的工业复合体</p> <p>　　思考!棘手但现实的谜题等待解开</p> <p>　　体验!通过日记片段的完整复述及主角独白的形式讲述了一个内容丰富的故事</p> <p>　　活着!食物，饮水，睡眠&ndash;主角有现实的需要</p> <p>　　制作!所有的设备都可以在工作台上进行升级</p> <p>　　坚持!大型的游戏世界，全面的故事设定让50小时的游戏足够有趣</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: 7/8/8.1/10 (64bit only)</p> <p>　　处理器: Intel Core i5 Processor or similar with at least 2.6 GHz</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: Nvidia GeForce GTX 780 or similar AMD Radeon (no support for onboard cards)</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 40 GB 可用空间</p> <p>　　声卡: Yes</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 载入镜像</p> <p>　　3. 安装游戏</p> <p>　　4. 复制FLT文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　5. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《死人日记 Dead Man&acute;s Diary》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">羊肉汤</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52145/](https://lad.sfcrom.cn/2024/03/52145/)

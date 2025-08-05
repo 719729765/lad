@@ -1,0 +1,13 @@
+---
+title: "switch《节奏灵魂 Beat Souls》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《节奏灵魂 Beat Souls》中文版下载，这是一款音乐节奏类型的游戏，玩家将随着节奏感技巧的音乐进行游戏，这款游戏画风和玩法都很有趣，喜欢音游的玩家不妨来体验一下它吧。 　　《节奏灵魂 Beat Souls》是一款音乐和激烈动作玩法互相碰撞所产生的高速节奏游戏，您必须避开障碍物并&hellip;"
+layout: post
+---
+
+ <p>　　switch《节奏灵魂 Beat Souls》中文版下载，这是一款音乐节奏类型的游戏，玩家将随着节奏感技巧的音乐进行游戏，这款游戏画风和玩法都很有趣，喜欢音游的玩家不妨来体验一下它吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=759415844&amp;bvid=BV1p64y167Sa&amp;cid=379097543&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe9583ab7.jpg" alt="switch《节奏灵魂 Beat Souls》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe9648af2.jpg" alt="switch《节奏灵魂 Beat Souls》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe970432c.jpg" alt="switch《节奏灵魂 Beat Souls》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe97c3eef.jpg" alt="switch《节奏灵魂 Beat Souls》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe9893cca.jpg" alt="switch《节奏灵魂 Beat Souls》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　《节奏灵魂 Beat Souls》是一款音乐和激烈动作玩法互相碰撞所产生的高速节奏游戏，您必须避开障碍物并收集灵魂，在挑战最高分的途中累积酷炫的连击!跳出惊艳众人的舞步，来段炸翻全场的表演，击败节奏妖怪吧!缤纷可爱的动画美学搭配霓虹赛博庞克风格，融合出《Beat Souls》独特的视觉效果，而律动感十足的音乐则能让您百玩不厌!</p> <p>　　掌握躲避与跳跃的优雅舞步以避开障碍物，同时移动您的&ldquo;僕从&rdquo;伙伴来收集灵魂。但小心了!碰撞到&ldquo;噪音&rdquo;将打断您的律动、重置连击并消耗体力。如果体力耗尽游戏就结束了。化身为传说中能透过舞蹈与妖怪沟通的神社少女 Mikoto，在超过 30 道可调整难度的关卡中战斗吧!您具备战胜&ldquo;噪音&rdquo;的力量吗?</p> <p>　　游戏特色</p> <p>　　左右移动和跳跃，躲避噪音，打出飞翔的节奏。如果你撞到了噪音或「节拍灵魂」，你将受到伤害，当你的体力到0时，游戏就结束......继续躲避直到歌曲结束，让我们努力清除舞台上的障碍!</p> <p>　　你还可以控制你的附助角色来捕捉节拍灵魂。捕捉节拍灵魂来获得分数! 捕捉所有节拍灵魂，争取完美的分数!</p> <p>　　躲避和击打的独特动作就是魅力所在!通过在避开障碍物的同时击中节拍灵魂来获得分数!</p> <p>　　伴奏字符的颜色属性是很重要的!仅仅击球是不够的，还需要得分!用节拍灵魂的颜色结合伴奏的颜色获得分数!有两种颜色：「黄色」和「浅蓝色」。颜色属性可以随时改变!</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fe98e7f73.png" width="447" alt="switch《节奏灵魂 Beat Souls》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《节奏灵魂 Beat Souls》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">lemonyeung</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101666/](https://lad.sfcrom.cn/2024/04/101666/)

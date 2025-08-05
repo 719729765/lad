@@ -1,0 +1,13 @@
+---
+title: "PC《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版下载，这是一款冒险解谜游戏，开放世界的玩法，为玩家带来的是一个推理题材的故事，感兴趣的玩家不要错过。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Toy Box &hellip;"
+layout: post
+---
+
+ <p>　　PC《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版下载，这是一款冒险解谜游戏，开放世界的玩法，为玩家带来的是一个推理题材的故事，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=625479900&amp;bvid=BV1Ct4y1y7QA&amp;cid=184707461&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f3c0da10.jpg" alt="PC《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f3deee71.jpg" alt="PC《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f3e5378e.jpg" alt="PC《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66033f3ebf85c.jpg" alt="PC《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Toy Box Inc./White Owls Inc.</p> <p>　　游戏发行：Rising Star Games</p> <p>　　一款开放世界的生存恐怖视频游戏，既是原作《致命预感》的续集，又是前传。导演剪辑版。</p> <p>　　游戏介绍</p> <p>　　故事发生於前作的9年后，由主角讲述2005年所发生事件的回忆引入，体验主角经历的&quot;前作Greenvale事件5年前所发生的事件&quot;，是续编的主要情节&quot;Pre-sequel(前编)&quot;。</p> <p>　　年轻的 FBI 调查员York到访位于新奥尔良的宁静田园小镇&quot;Le Carr&eacute;&quot;，解决一连串让人费解的连环杀人事件。</p> <p>　　本作将会有两名女主角登场。于2019年登场的是主角审问的Aaliyah，是名性格刚烈的年轻女性 FBI 调查员。另外於2005年登场的是保安官的女儿，10 岁的少女Patricia带点老成。跟随扮演华生角色的她，在充满南方气息的开放世界闲逛。</p> <p>　　将要被揭晓的惊人事实。原以为已被解决的2005年事件，将会让现今的主角和两名女主角逐渐陷入混乱和疯狂之中。</p> <p>　　最低配置:</p> <p>　　操作系统: 64-bit Windows 8</p> <p>　　处理器: Intel CPU Core i5-3470 CPU</p> <p>　　内存: 6 GB RAM</p> <p>　　显卡: Geforce GTX 750 2GB</p> <p>　　存储空间: 需要 10 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《致命预感2：伪装的祝福 Deadly Premonition 2 A Blessing in Disguise》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">pyzx9102lxy</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39792/](https://lad.sfcrom.cn/2024/03/39792/)

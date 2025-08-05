@@ -1,0 +1,13 @@
+---
+title: "PC《RPG高尔夫传奇 RPGolf Legends》中文版下载（Build 7846327）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《RPG高尔夫传奇 RPGolf Legends》中文版下载，RPGolf Legends是一款像素画风的角色扮演类游戏，讲述的是少女为了让高尔夫球重新繁荣而努力的幻想故事，感兴趣的话大家可以来看看哦。 　　类型:动作,冒险,角色扮演,体育 　　开发商:ArticNet 　　发行商:KEMC&hellip;"
+layout: post
+---
+
+ <p>　　PC《RPG高尔夫传奇 RPGolf Legends》中文版下载，RPGolf Legends是一款像素画风的角色扮演类游戏，讲述的是少女为了让高尔夫球重新繁荣而努力的幻想故事，感兴趣的话大家可以来看看哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=295183175&amp;bvid=BV1pF411i7uw&amp;cid=471764864&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603953854a40.jpg" alt="PC《RPG高尔夫传奇 RPGolf Legends》中文版下载（Build 7846327）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039538b6c2e.jpg" alt="PC《RPG高尔夫传奇 RPGolf Legends》中文版下载（Build 7846327）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660395392bb7f.jpg" alt="PC《RPG高尔夫传奇 RPGolf Legends》中文版下载（Build 7846327）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039539a22dc.jpg" alt="PC《RPG高尔夫传奇 RPGolf Legends》中文版下载（Build 7846327）" /></td> </tr> </tbody> </table> <p>　　类型:动作,冒险,角色扮演,体育</p> <p>　　开发商:ArticNet</p> <p>　　发行商:KEMCO</p> <p>　　这是在一个高尔夫已经荒废的世界里</p> <p>　　少女遇见了高尔夫球杆的精灵，一起开始冒险的</p> <p>　　有个性的动作&middot;高尔夫RPG。</p> <p>　　在这个高尔夫的技术代表一切的世界里，拿到好分数，可能有助于你今后的冒险!</p> <p>　　森林，沼泽，沙漠，雪地，天空岛，还有布置了各种机关的地下城等等</p> <p>　　充满挑战的球场等着你。</p> <p>　　一边获得拥有固定技能的新服饰</p> <p>　　一边乘船，坐飞艇，驾驶高尔夫球车，奔向高尔夫球场!</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 10 and up</p> <p>　　处理器: Intel&reg; Core&trade; i5</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: 4GB VRAM</p> <p>　　存储空间: 需要 800 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. (如果有setup.exe文件的话)安装游戏</p> <p>　　3. (如果存在crack文件夹的话)复制crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　4. 运行游戏</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039539ee962.png" width="527" alt="PC《RPG高尔夫传奇 RPGolf Legends》中文版下载（Build 7846327）" /></p> <p>　　以上内容就是小编为大家带来的《RPG高尔夫传奇 RPGolf Legends》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Fdfd</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53359/](https://lad.sfcrom.cn/2024/03/53359/)

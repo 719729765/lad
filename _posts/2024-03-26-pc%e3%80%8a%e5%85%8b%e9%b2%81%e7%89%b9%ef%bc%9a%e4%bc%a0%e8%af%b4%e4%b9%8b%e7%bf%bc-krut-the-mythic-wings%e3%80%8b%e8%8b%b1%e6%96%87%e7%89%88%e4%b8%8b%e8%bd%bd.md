@@ -1,0 +1,13 @@
+---
+title: "PC《克鲁特：传说之翼 Krut The Mythic Wings》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《克鲁特：传说之翼 Krut The Mythic Wings》英文版下载，这是一款横版闯关类的动作游戏，游戏改编自泰国的一部动画片，在设定上充满了东南亚民间传说的元素，赶快来体验一下吧。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：RSU Horizon/Good Job Mul&hellip;"
+layout: post
+---
+
+ <p>　　PC《克鲁特：传说之翼 Krut The Mythic Wings》英文版下载，这是一款横版闯关类的动作游戏，游戏改编自泰国的一部动画片，在设定上充满了东南亚民间传说的元素，赶快来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=598381346&amp;bvid=BV15B4y1v7iJ&amp;cid=773701593&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660346087c93e.webp" alt="PC《克鲁特：传说之翼 Krut The Mythic Wings》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660346097e68d.webp" alt="PC《克鲁特：传说之翼 Krut The Mythic Wings》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603460a8f041.webp" alt="PC《克鲁特：传说之翼 Krut The Mythic Wings》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603460c06ebb.webp" alt="PC《克鲁特：传说之翼 Krut The Mythic Wings》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：RSU Horizon/Good Job Multimedia/Pixel Perfex</p> <p>　　游戏发行：Blowfish Studios</p> <p>　　《Krut: The Mythic Wings》是一款快节奏砍杀横向卷轴平台动作游戏，根据2018年泰国CG动画长片&ldquo;Krut: The Himmaphan Warriors&rdquo;改编。快来一起跟随一位嘉鲁达勇士的脚步，踏上魔法之岛海媚攀的冒险之旅吧。</p> <p>　　在充斥着神秘生物与魔法的世界中，残暴的食人魔军队入侵了嘉鲁达族群的家乡。嘉鲁达军队被击败，首都也惨遭沦陷。在毁灭和绝望中，一名身受重伤的战士发现自己来到了一个叫做海媚攀的神秘魔法小岛上。在那里他遇到了一个神秘人，神秘人将一件名为传说之翼的法宝交给了他。传说在几百年前的旷世之战中，一位传奇英雄正是使用了这对翅膀给这片土地带来了和平。而现在，新的冒险即将开始。</p> <p>　　游戏特色</p> <p>　　拥有精美3D游戏画面的横向卷轴平台动作砍杀游戏。</p> <p>　　六个富有挑战性的关卡</p> <p>　　多套特殊招式和连击组合</p> <p>　　三段难度设置，从休闲到硬核玩家都能乐享其中</p> <p>　　最低配置:</p> <p>　　操作系统: Windows 8</p> <p>　　处理器: AMD FX-8320 (3.5 GHz) / Intel i5-4690K (3.5 GHz) or better</p> <p>　　内存: 8 GB RAM</p> <p>　　显卡: NVIDIA GeForce GTX 760</p> <p>　　DirectX 版本: 11</p> <p>　　存储空间: 需要 2 GB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《克鲁特：传说之翼 Krut The Mythic Wings》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">RYU02000</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/39290/](https://lad.sfcrom.cn/2024/03/39290/)

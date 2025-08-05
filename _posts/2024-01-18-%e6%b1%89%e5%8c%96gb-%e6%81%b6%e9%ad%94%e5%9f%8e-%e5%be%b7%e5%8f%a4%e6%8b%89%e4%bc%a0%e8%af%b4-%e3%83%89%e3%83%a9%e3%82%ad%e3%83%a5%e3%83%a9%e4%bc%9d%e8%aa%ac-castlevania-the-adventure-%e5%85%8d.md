@@ -1,0 +1,13 @@
+---
+title: "[汉化]GB 恶魔城 德古拉传说 ドラキュラ伝説 Castlevania: The Adventure 免费下载"
+date: 2024-01-18
+tags: []
+categories: ["GAME藏经阁"]
+excerpt: "《德古拉传说》（日版名：ドラキュラ伝説，英文版名：Castlevania: The Adventure，又译作“恶魔城：冒险”）是由科乐美开发的动作游戏。该作于1989年10月27日发售，也是恶魔城系列在Game Boy平台上的第一作。游戏名称恶魔城：德古拉传说常用译名恶魔城：冒险类型平台动作平台G&hellip;"
+layout: post
+---
+
+ <div><ul>     <ul>    </ul> </ul> </div><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/01/20240117_65a7dba50b1c9.jpg" title="GB 恶魔城 德古拉传说" alt="GB 恶魔城 德古拉传说 ドラキュラ伝説 Castlevania: The Adventure"></p><p>《德古拉传说》（日版名：ドラキュラ伝説，英文版名：Castlevania: The Adventure，又译作“恶魔城：冒险”）是由科乐美开发的动作游戏。该作于1989年10月27日发售，也是恶魔城系列在Game Boy平台上的第一作。</p><table><thead><tr><th>游戏名称</th><th>恶魔城：德古拉传说</th></tr></thead><tbody><tr><td>常用译名</td><td>恶魔城：冒险</td></tr><tr><td>类型</td><td>平台动作</td></tr><tr><td>平台</td><td>Game Boy、Virtual Console</td></tr><tr><td>开发商</td><td>科乐美</td></tr><tr><td>发行商</td><td>科乐美</td></tr><tr><td>程序</td><td>山田善朗、前川正人</td></tr><tr><td>美术</td><td>中里伸也、木村幸一</td></tr><tr><td>音乐</td><td>福武茂、半泽纪雄、船内秀浩</td></tr><tr><td>系列</td><td>恶魔城系列</td></tr><tr><td>模式</td><td>单人游戏</td></tr><tr><td>发行日</td><td>Game Boy</td></tr><tr><td> </td><td>日本：1989年10月27日</td></tr><tr><td> </td><td>北美：1989年12月15日</td></tr><tr><td> </td><td>PAL：1990年9月28日</td></tr><tr><td> </td><td>3DS Virtual Console</td></tr><tr><td> </td><td>日本：2012年3月14日</td></tr><tr><td> </td><td>PAL：2012年7月5日</td></tr><tr><td> </td><td>北美：2012年10月25日</td></tr></tbody></table><a name="ci_title0" ></a><h2>剧情</h2><p>传说中德古拉100年要复活一次，想不到传说成真，身为贝尔蒙特家族的克里斯德佛·贝尔蒙特决定进入恶魔城内冒险犯难。</p><a name="ci_title1" ></a><h2>游戏特色</h2><ul></ul><a name="ci_title2" ></a><h2>游戏截图</h2><p><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/01/20240117_65a7dba51b067.jpg" title="GB 恶魔城 德古拉传说 游戏截图" alt="GB 恶魔城 德古拉传说 ドラキュラ伝説 Castlevania: The Adventure"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/01/20240117_65a7dba53bae8.jpg" title="GB 恶魔城 德古拉传说 游戏截图" alt="GB 恶魔城 德古拉传说 ドラキュラ伝説 Castlevania: The Adventure"><br><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/01/20240117_65a7dba55a902.jpg" title="GB 恶魔城 德古拉传说 游戏截图" alt="GB 恶魔城 德古拉传说 ドラキュラ伝説 Castlevania: The Adventure"></p><a name="ci_title3" ></a><h2>游戏资源</h2><a name="ci_title4" ></a><h3>Castlevania - The Adventure (Europe)</h3><p>https://juse.lanzouw.com/i2fHYu912yb</p><a name="ci_title5" ></a><h3>Castlevania - The Adventure (USA)</h3><p>https://juse.lanzouw.com/iHri0u9130d</p><a name="ci_title6" ></a><h3>Castlevania - The Adventure (USA) (Castlevania Anniversary Collection)</h3><p>https://juse.lanzouw.com/iR16Fu912zc</p> </div> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/01/1830/](https://lad.sfcrom.cn/2024/01/1830/)

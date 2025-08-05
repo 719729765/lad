@@ -1,0 +1,13 @@
+---
+title: "switch《袜子冒险 Sockventure》中文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《袜子冒险 Sockventure》中文版下载，这是一款2D的横版动作冒险游戏，玩家在游戏中的任务是寻找袜子。游戏为玩家准备的是硬核的平台跳跃类玩法，美术风格也很养眼，一起来体验一下吧。 　　Sockventure 是个关于一个最喜欢的袜子被诅咒洗衣机吃掉的孩子的故事。那孩子需要帮忙&hellip;"
+layout: post
+---
+
+ <p>　　switch《袜子冒险 Sockventure》中文版下载，这是一款2D的横版动作冒险游戏，玩家在游戏中的任务是寻找袜子。游戏为玩家准备的是硬核的平台跳跃类玩法，美术风格也很养眼，一起来体验一下吧。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=803004954&amp;bvid=BV1yy4y1p7pf&amp;cid=336222407&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd3909916.jpg" alt="switch《袜子冒险 Sockventure》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd39c7364.jpg" alt="switch《袜子冒险 Sockventure》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd3a7254e.jpg" alt="switch《袜子冒险 Sockventure》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd3b303f2.jpg" alt="switch《袜子冒险 Sockventure》中文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd3bbeca6.jpg" alt="switch《袜子冒险 Sockventure》中文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　Sockventure 是个关于一个最喜欢的袜子被诅咒洗衣机吃掉的孩子的故事。那孩子需要帮忙，叫来了个超级英雄后，冒险就开始了。通过危险的等级在洗衣机内前进，并找到失踪的袜子!</p> <p>　　通过 200 多等级的超难平台，获得跳墙，奔跑和踩踏类的新技术，并安全的将袜子带回来。解锁黑暗章节，收集硬币，通过挑战，并找到失踪的袜子。</p> <p>　　在这款 2D 平台游戏，您将控制超级英雄来帮助一位孩子找到所有在诅咒的洗衣机里失踪的袜子。Sockventure 有着绚丽的五彩缤纷解析度，可手工制的等级，严密的控制，还有千变万化的有趣玩法。</p> <p>　　游戏特色</p> <p>　　150多个级别-8章中超过150个手工制作的级别。</p> <p>　　4种特殊技能-在游戏中获得新技能。墙跳，双跳，冲刺，踩踏。</p> <p>　　硬币-查找并收集所有硬币以解锁每个章节中的事件等级。</p> <p>　　8个活动关卡-特殊关卡旨在以全新的刺激方式挑战玩家。</p> <p>　　挑战-每章都要克服多个挑战。</p> <p>　　排行榜-尝试在每个章节和每个级别上均排在全球排行榜的首位。</p> <p>　　20多种袜子-查找隐藏的袜子并将其用作皮肤。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fd3c1c4a5.png" width="435" alt="switch《袜子冒险 Sockventure》中文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《袜子冒险 Sockventure》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">花开树下</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100462/](https://lad.sfcrom.cn/2024/04/100462/)

@@ -1,0 +1,13 @@
+---
+title: "PC《底特律：化身为人 Detroit: Become Human》免安装中文版下载（v20211121）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《底特律：化身为人 Detroit: Become Human》免安装中文版下载，这是一款设定在未来世界的角色扮演游戏，为玩家讲述了一个非常出色的科幻题材故事。感兴趣的玩家不要错过。 　　类型:动作,冒险 　　开发商:Quantic Dream 　　发行商:Quantic Dream 　　游&hellip;"
+layout: post
+---
+
+ <p>　　PC《底特律：化身为人 Detroit: Become Human》免安装中文版下载，这是一款设定在未来世界的角色扮演游戏，为玩家讲述了一个非常出色的科幻题材故事。感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=16945585&amp;bvid=BV1EW411Y7b4&amp;cid=27701072&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660392de3338e.webp" alt="PC《底特律：化身为人 Detroit: Become Human》免安装中文版下载（v20211121）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660392de918f2.webp" alt="PC《底特律：化身为人 Detroit: Become Human》免安装中文版下载（v20211121）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660392dee8cdc.webp" alt="PC《底特律：化身为人 Detroit: Become Human》免安装中文版下载（v20211121）" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660392df4faa7.webp" alt="PC《底特律：化身为人 Detroit: Become Human》免安装中文版下载（v20211121）" /></td> </tr> </tbody> </table> <p>　　类型:动作,冒险</p> <p>　　开发商:Quantic Dream</p> <p>　　发行商:Quantic Dream</p> <p>　　游戏介绍</p> <p>　　2038年的底特律，科技突飞猛进，人形机器人随处可见。他们会说话、会走路，而且行为同人类并无二致，但是他们只不过是服侍人类的机器而已。扮演三个迥然不同的机器人，通过他们的眼睛观察一个处于混乱边缘的世界&mdash;&mdash;而那可能就是我们的未来。</p> <p>　　你的每一个抉择都会对这款游戏紧张刺激的多分支剧情造成巨大影响。你不仅要面对各种道德困境，还将决定其他人的生死命运。你将如何在成千上万个选择和几十个结局中做出抉择，改变底特律的未来和人类的命运?</p> <p>　　游戏内容</p> <p>　　在扣人心弦的故事中做出您的选择</p> <p>　　进入一个充满道德困境和艰难选择的世界，将机器人奴隶转变为改变世界的革命力量。站在外部旁观者的角度发掘人类的意义&mdash;&mdash;并以机械之眼见证整个世界。</p> <p>　　您的选择，他们的人生</p> <p>　　塑造一个庞大的分支剧情，您的选择将不仅决定三位主角的命运，还将影响整个底特律城的走向。您将如何控制Kara、Connor和Markus呢?这将关系到他们的生存和死亡&mdash;&mdash;即使他们中的一员付出了终极的代价，整个故事仍将继续&hellip;&hellip;</p> <p>　　无尽的道路，无尽的结局</p> <p>　　您所做出的每个选择，不论是多么微小的决定，都将影响到故事的结局。截然不同的游戏结局：每次重复游玩都将使您发掘出一个完全不同的结局。</p> <p>　　对于PC端的完整优化</p> <p>　　《Detroit: Become Human》将为PC端带来惊人的画面效果、4K分辨率、60帧帧率以及完全整合的鼠标/键盘和手柄控制，使您获得至今为止最为完整的《Detroit: Become Human》游戏体验。</p> <p><h4>下载地址(由网友<font color="red">dlaysf168</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51407/](https://lad.sfcrom.cn/2024/03/51407/)

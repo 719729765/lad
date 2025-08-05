@@ -1,0 +1,13 @@
+---
+title: "PC《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版下载，这是一款卡通风格的冒险解谜游戏，讲述了一个时间旅行题材的精彩故事，感兴趣的玩家可以来关注一下哦。 　　游戏类型：冒险解密类(AVG)游戏 　　游戏制作：Warm Kitten 　　游戏发行&hellip;"
+layout: post
+---
+
+ <p>　　PC《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版下载，这是一款卡通风格的冒险解谜游戏，讲述了一个时间旅行题材的精彩故事，感兴趣的玩家可以来关注一下哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=245400832&amp;bvid=BV12v411t75A&amp;cid=261522198&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034ca7bb6e7.jpg" alt="PC《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034ca8a8428.jpg" alt="PC《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034ca93916f.jpg" alt="PC《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034ca9ec4e6.jpg" alt="PC《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：冒险解密类(AVG)游戏</p> <p>　　游戏制作：Warm Kitten</p> <p>　　游戏发行：Warm Kitten</p> <p>　　一个关于时间旅行的2D 冒险，点击播放贾斯汀比伯黑客贾苏丁追随他想念他的前女友朱莉娅和工作分心。 这时我们一个相同怪事发生了，他与原始人克鲁特交换了一种时空&hellip;&hellip;。贾苏丁，朱莉娅和克鲁特可以被操纵来解决各种奇怪的谜题。</p> <p>　　游戏介绍</p> <p>　　你愿意为克洛特在现代世界的教育负责吗?</p> <p>　　如果你真的想治好猫过敏你就得好好旅行。。。</p> <p>　　朱莉娅有一种感觉，有些事情不对。。。</p> <p>　　毫无疑问，在挑战最后一道防线时，还有比破碎的头盔更大的问题吗?</p> <p>　　如果你陷入困境，你可以随时向Daela寻求提示(没关系-她不会告诉任何人)。</p> <p>　　舒适的2D点击式冒险。。。</p> <p>　　多个可播放角色</p> <p>　　基于逻辑和古怪边缘的谜题</p> <p>　　流畅的2D动画</p> <p>　　全副武装</p> <p>　　内置提示系统</p> <p>　　罗恩&middot;吉尔伯特本人支持Kickstarter</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 or later</p> <p>　　处理器: Dual core from Inter or AMD at 1.8 GHz</p> <p>　　内存: 4 GB RAM</p> <p>　　显卡: DirectX 10 compatible graphics card</p> <p>　　存储空间: 需要 5 GB 可用空间</p> <p>　　推荐配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《怪客贾斯丁的黑客时刻 Justin Wack and the Big Time Hack》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">FS12138</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41371/](https://lad.sfcrom.cn/2024/03/41371/)

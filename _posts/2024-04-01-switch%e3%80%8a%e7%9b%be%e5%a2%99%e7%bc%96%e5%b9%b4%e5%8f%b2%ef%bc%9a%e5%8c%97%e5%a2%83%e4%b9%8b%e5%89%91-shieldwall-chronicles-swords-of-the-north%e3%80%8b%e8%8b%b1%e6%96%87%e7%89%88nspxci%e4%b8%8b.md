@@ -1,0 +1,13 @@
+---
+title: "switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　【内含原版+TX专用9.2魔改版】switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版。这是一款独特的回合制策略游戏。玩家们将带领自己的雇佣兵进入到严寒的北国之境，而在寻找财富的过程中，需要利用刀刃和魔法书来对抗大量的敌人&hellip;"
+layout: post
+---
+
+ <p>　　【内含原版+TX专用9.2魔改版】switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版。这是一款独特的回合制策略游戏。玩家们将带领自己的雇佣兵进入到严寒的北国之境，而在寻找财富的过程中，需要利用刀刃和魔法书来对抗大量的敌人。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7b7a73378.jpg" alt="switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7b7add95f.jpg" alt="switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7b7b73544.jpg" alt="switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7b7c0e30c.jpg" alt="switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a7b7c95ba9.jpg" alt="switch《盾墙编年史：北境之剑 Shieldwall Chronicles Swords of the North》英文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　游戏介绍</p> <p>　　参加深层次的，基于回合的战斗。战斗是现实的，包括细节，如武器范围，伤害效果，反击不减慢游戏进行。玩家也必须有效地使用掩护和视线才能成功。</p> <p>　　从15个不同的班级中建立一个聚会。选择一个由六位英雄组成的聚会，从学者式的巫师到坚强的战士。充分利用每个角色类型对于确保胜利至关重要，因为只有在某些任务中才能做到最好。巫师有巨大的破坏性魔法，但会迅速落到简单的矛刺，而伟大的战士可以阻止部落，如果适当支持。</p> <p>　　游戏特点</p> <p>　　独特的士气系统为战斗增加了全新的战术层。如果勇士们相信战争的潮流在他们这边，他们会打得更好，如果他们不相信，他们会开始恐慌。看着一个朋友倒下或者一个敌人的领导人被杀会极大地影响士气。箭和咒语，即使它们没有命中，也会影响敌人和朋友的勇气。最后，嗜血机械意味着某些战士将为他们杀死的每个敌人找到新的能源。</p> <p>　　收集上百个强大的魔法物品装备你的派对。每个角色最多可以装备9件物品，从剑、盾牌、斗篷、戒指到头盔。每个物品范围从普通物品到传奇物品，只有很小的益处，传奇物品既能提高属性又能赋予携带者全新的力量。例如，战士可以装备魔法戒指，使它们能够召唤火球或召唤不死守护者。魔术物品系统允许你进一步定制你的队伍，并开发全新的战术和战斗计划。</p> <p>　　在活动中享受超过50个小时的游戏。你的旅程将看到你带领你的队伍穿越白雪覆盖的荒野，穿越黑暗的洞穴，古老的废墟和大城市的血腥街道。战斗可以在各种困难重放，没有级别限制为顽固玩家提供无尽的享受。</p> <p>　　深入到一个坚硬，现实的世界，融合黑暗时代的历史和文化，幻想种族和怪物。北方的塔伦王国是人们用长矛、斧头和剑在盾牌墙里对付精灵、矮人、地精甚至龙的地方。巫师和怪物很强大，但是仍然可以用正确的战术、盔甲和勇气击败它们。</p> <p><h4>下载地址(由网友<font color="red">rjwin</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/110419/](https://lad.sfcrom.cn/2024/04/110419/)

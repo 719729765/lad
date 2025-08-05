@@ -1,0 +1,13 @@
+---
+title: "PC《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery &#8211; Episode 2: Pilgrims in Purple Moss》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery - Episode 2: Pilgrims in Purple Moss》英文版下载，太空队长麦卡利系列的第二章故事，继续讲述太空队长麦卡利在宇宙中的冒险经历。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作&hellip;"
+layout: post
+---
+
+ <p>　　PC《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery - Episode 2: Pilgrims in Purple Moss》英文版下载，太空队长麦卡利系列的第二章故事，继续讲述太空队长麦卡利在宇宙中的冒险经历。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034341eeb4d.jpg" alt="PC《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery - Episode 2: Pilgrims in Purple Moss》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603434380c6e.jpg" alt="PC《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery - Episode 2: Pilgrims in Purple Moss》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_6603434443711.jpg" alt="PC《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery - Episode 2: Pilgrims in Purple Moss》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034344dd15d.jpg" alt="PC《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery - Episode 2: Pilgrims in Purple Moss》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Renegade Sector Games</p> <p>　　游戏发行：Renegade Sector Games</p> <p>　　太空海盗麦卡里船长再次漫游叛徒区，寻找宝藏和冒险!他和他的新机器人伙伴一起前往一个神秘的沉没废墟，他认为这是传奇太空海盗激光胡子的宝藏之一。与他的新机器人伙伴一起，他前往一个神秘的沉没废墟，他相信这是传奇太空海盗Laserbeard的藏宝地之一。在这个低保3D动作冒险游戏中，麦卡里船长必须探索一个奇怪而神秘的外星世界，与外星生命体作战，寻找食物，并最终找到激光胡子的宝藏。</p> <p>　　游戏特色</p> <p>　　探索陌生的外星世界</p> <p>　　扮演麦卡利船长，你将穿越白色悬崖和紫色沼泽，深入神秘的古代遗址。注意你周围的环境，因为危险潜伏在每个角落的后面。这个世界充满了奖励探索的隐藏路径和秘密。</p> <p>　　食用外来植物</p> <p>　　船长需要吃东西才能生存!注意那些你可以用来恢复能量的植物。食物还有很多其他的影响，从恢复健康、增加短跑长度到产生幻觉。探索您的环境，寻找稀有且有益的物品!</p> <p>　　与外星怪物作战</p> <p>　　游戏以快节奏锁定战斗为特色。绕过敌人，躲避他们的攻击。使用可靠的激光枪向敌人开火，或者通过击打和投掷石块来保存弹药。你将面对各种各样的外星人，包括多个老板打架。</p> <p>　　最低配置:</p> <p>　　操作系统: Windows XP SP2+</p> <p>　　处理器: SSE2 instruction set support</p> <p>　　内存: 2 GB RAM</p> <p>　　显卡: DX9 (shader model 3.0) or DX11 with feature level 9.3 capabilities.</p> <p>　　DirectX 版本: 9.0</p> <p>　　存储空间: 需要 300 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《太空队长麦卡利：紫苔朝圣者 Space Captain McCallery - Episode 2: Pilgrims in Purple Moss》，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">comedj888</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/41518/](https://lad.sfcrom.cn/2024/03/41518/)

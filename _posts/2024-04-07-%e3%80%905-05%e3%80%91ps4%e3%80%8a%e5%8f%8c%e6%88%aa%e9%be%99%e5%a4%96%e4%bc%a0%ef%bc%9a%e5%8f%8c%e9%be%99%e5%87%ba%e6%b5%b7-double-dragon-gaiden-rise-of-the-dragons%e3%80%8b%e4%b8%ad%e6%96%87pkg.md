@@ -1,0 +1,13 @@
+---
+title: "【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden  Rise of the Dragons》中文PKG下载+1.0.4补丁"
+date: 2024-04-07
+tags: []
+categories: ["PS4最新破解"]
+excerpt: "【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden &nbsp;Rise of the Dragons》中文PKG下载+1.0.4补丁在这款首次融入格斗游戏中大受欢迎的组队切换形式和Roguelite元素的横板清屏游戏中，双截龙兄弟再次登场。你可以选择4个初始角色其中&hellip;"
+layout: post
+---
+
+ <p>【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden &nbsp;Rise of the Dragons》中文PKG下载+1.0.4补丁在这款首次融入格斗游戏中大受欢迎的组队切换形式和Roguelite元素的横板清屏游戏中，双截龙兄弟再次登场。你可以选择4个初始角色其中的2个进行游戏，也可以解锁其他9个角色，每个角色都有自己独特的招式和游戏风格，每次游玩都能有独一无二的体验。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=740716895&amp;bvid=BV1nk4y1E7HQ&amp;cid=1117362590&amp;page=1" width="410"></iframe></p> <p>　　主要特色：</p> <p>　　双人组合战斗 - 你可以选择两名战士，无缝切换控制他们，让你在组合技、防御和进攻招式上拥有多种策略，让敌人无所遁形。</p> <p>　　结合格斗游戏和Roguelite元素 &ndash; 通过动态任务选择功能，体验无尽的游玩可能性;你选择任务的顺序将影响任务的长度、敌人的数量和整体难度。在每个任务结束时，可以购买随机的升级道具，提升你的角色能力，或者保留资金在任务中复活你的角色。这样你可以根据需要选择提升角色实力还是保留资金进行复活。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128e8ae23b3.webp" width="700" alt="【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden  Rise of the Dragons》中文PKG下载+1.0.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128e8b5134d.webp" width="700" alt="【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden  Rise of the Dragons》中文PKG下载+1.0.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128e8bac6b6.webp" width="700" alt="【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden  Rise of the Dragons》中文PKG下载+1.0.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128e8c1abe6.webp" width="700" alt="【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden  Rise of the Dragons》中文PKG下载+1.0.4补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240407_66128e8c904d2.webp" width="700" alt="【5.05】PS4《双截龙外传：双龙出海 Double Dragon Gaiden  Rise of the Dragons》中文PKG下载+1.0.4补丁" /></p></div> <p>　　13个独特可玩角色 - 从李比利、李吉米、玛莉安和大叔马丁开始战斗。一路上赚取代币，解锁多样化的9个角色，每个角色都有自己独特的游戏风格和优势。根据每个角色的优势和弱点，策略性地选择你的双人组合，让你在战斗中发挥最大的优势。</p> <p>　　塑造你的体验和奖励 - 调整游戏难度以影响每个游戏阶段所获得的代币数量，并使用这些代币在代币商店解锁内容，包括角色、提示等等。你可以使用修改器来进入永久死亡或无限模式。这样你可以根据自己的喜好调整游戏难度，并选择不同的游戏模式。</p> <p>　　本地合作模式 - 与朋友一起清理城市街道，在支持最多两个玩家的本地合作模式中共同作战。</p> <p><h4>下载地址(由网友<font color="red">DGACT</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/132290/](https://lad.sfcrom.cn/2024/04/132290/)

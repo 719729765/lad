@@ -1,0 +1,13 @@
+---
+title: "switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版下载，这是一款点击式的解谜游戏，玩家将在游戏中经历一场和神秘遗迹有关联的冒险故事，喜欢解谜游戏的玩家不要错过哦。 　　《遗产：忘却之门(The Legacy: Forgotten Gates)》是FIVE-&hellip;"
+layout: post
+---
+
+ <p>　　switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版下载，这是一款点击式的解谜游戏，玩家将在游戏中经历一场和神秘遗迹有关联的冒险故事，喜欢解谜游戏的玩家不要错过哦。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbc14c50b.jpg" style="width: 600px; height: 337px;" alt="switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbc1e2c97.jpg" alt="switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbc286188.jpg" alt="switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbc31c73e.jpg" alt="switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版nsp下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbc3a8453.jpg" alt="switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版nsp下载" /></td> </tr> </tbody> </table> <p>　　《遗产：忘却之门(The Legacy: Forgotten Gates)》是FIVE-BN GAMES制作的一款解谜找图游戏。游戏以神秘古迹探险为题材，壮观的历史文物，巧妙的机关陷阱，寻找更多的未解之谜。在玩法上，游戏和大多解谜作品类似，不同的难度选择，各种有趣的小游戏。主角是某玛雅文明展出博物馆的保安。某天半夜，展品之一的巨大圆形石板忽然启动，成了一个传送门将主角吸入其中。主角莫名奇妙被送到一个谜之神殿，然而离开神殿后，天上的两个月亮昭示着这似乎并非主角熟悉的世界&hellip;&hellip;神秘的文明，暗中窥伺的黑恶势力，主角的回家之路显然不会轻松&hellip;&hellip;</p> <p>　　游戏介绍</p> <p>　　已是深夜，博物馆几乎空无一人。在玛雅神器展上，其中一个展品突然开始移动。这一声音引起了一位名叫戴安娜的年轻女子的注意，她是一名博物馆员工，也是玛雅文化专家。当她走近这件文物时，她意识到它看起来像一个入口。。。突然，某种未知的力量把她举起来，将她传送到一座古老的寺庙!现在戴安娜必须弄清楚她在哪里，她是如何到达那里的，以及她将如何回家。这位年轻女子遇到了一种类似玛雅文化的文明，但这既不是过去，也不是平行的现实。这是另一颗行星，几个世纪前通过一些特殊的门与地球相连。现在大门又被激活了。。。</p> <p>　　只有当地的萨满和守门员Shaash才能帮助Diana回家。但这并不容易。戴安娜将不得不面对无数的考验，在无尽的河谷中旅行，遇到另一个世界的奇怪的人和神奇的动物，同时试图躲避一切危险，并在途中解决数十个不同的挑战。</p> <p>　　-多个精彩的位置和令人惊叹的图形</p> <p>　　-意外的绘图转折点</p> <p>　　-难忘的人物</p> <p>　　-迷人的迷你游戏和谜题</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609fbc403e07.png" width="357" alt="switch《遗产：忘却之门 The Legacy Forgotten Gates》中文版nsp下载" /></p> <p>　　以上内容就是小编为大家带来的《遗产：忘却之门 The Legacy Forgotten Gates》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">beecham</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101069/](https://lad.sfcrom.cn/2024/04/101069/)

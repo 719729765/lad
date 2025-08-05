@@ -1,0 +1,13 @@
+---
+title: "PC《瓦纳利斯：战术 Vanaris Tactics》中文版下载"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《瓦纳利斯：战术 Vanaris Tactics》中文版下载，这是一款角色扮演游戏游戏，在真逗上采用的策略战棋玩法，游戏通过像素艺术为玩家带来了一个有趣的世界，感兴趣的玩家不要错过。 　　游戏类型：角色扮演类(RPG)游戏 　　游戏制作：Matheus Reis 　　游戏发行：Toge Pr&hellip;"
+layout: post
+---
+
+ <p>　　PC《瓦纳利斯：战术 Vanaris Tactics》中文版下载，这是一款角色扮演游戏游戏，在真逗上采用的策略战棋玩法，游戏通过像素艺术为玩家带来了一个有趣的世界，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=895972919&amp;bvid=BV1bA4y1X7mM&amp;cid=581937734&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-05/8efdc8224c8dffe55f2859485129b591.jpg" alt="PC《瓦纳利斯：战术 Vanaris Tactics》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-05/aece962bd159814c13aed6b892af64b0.jpg" alt="PC《瓦纳利斯：战术 Vanaris Tactics》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-05/1daf1fa4d750919738a5b1ba3e7b452f.jpg" alt="PC《瓦纳利斯：战术 Vanaris Tactics》中文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2022/08-05/f789bc2b7f325a9531cf5a4d84aaf060.jpg" alt="PC《瓦纳利斯：战术 Vanaris Tactics》中文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：角色扮演类(RPG)游戏</p> <p>　　游戏制作：Matheus Reis</p> <p>　　游戏发行：Toge Productions</p> <p>　　《瓦纳利斯：战术》作为一款短篇叙事战术角色扮演游戏，讲述了几个难民的逃亡故事&mdash;&mdash;祖国落入敌手，他们被迫背井离乡，离开故土。 带领难民翻越瓦纳利斯的高墙，团结同胞，与压迫者斗智斗勇，寻找自由之地!</p> <p>　　《瓦纳利斯：战术》讲述了主人公莫甘娜&ldquo;翻越瓦纳利斯高墙、寻找自由之地&rdquo;的逃亡故事。她与兄长奈杰尔以及外甥阿德里安被迫逃离祖国，离开曾经的家乡。探索瓦纳利斯辽阔的疆土，结识遭遇相似、渴求自由、被迫离乡别井的那些人们。</p> <p>　　游戏特色</p> <p>　　《瓦纳利斯：战术》参考各大经典奇幻战术角色扮演游戏，战斗依靠次序回合系统。</p> <p>　　联合各不相同的角色，每个角色各有各的强项、能力和故事。</p> <p>　　获得新的能力，让自己面对新的挑战更加游刃有余。</p> <p>　　兵器和服饰的搭配不同，队友的玩法就会出现千差万别。</p> <p>　　探索瓦纳利斯，寻找强大的宝藏，聆听无人知晓的故事。不过，你要保持警觉，毕竟每个角落都潜伏着危机。</p> <p>　　15段特别的遭遇剧情，手工绘制的过场动画，非强制性的普通战斗和头目对战，让你逐渐深入了解事情的真相。</p> <p>　　最低配置:</p> <p>　　需要 64 位处理器和操作系统</p> <p>　　操作系统: Windows 7 Service Pack 1</p> <p>　　处理器: Dual Core 1.6 GHz</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: OpenGL 2 enabled, 512 MB</p> <p>　　存储空间: 需要 250 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. 安装游戏</p> <p>　　3. 运行游戏</p> <p>　　以上内容就是小编为大家带来的《瓦纳利斯：战术 Vanaris Tactics》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">qqqqwewads</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52374/](https://lad.sfcrom.cn/2024/03/52374/)

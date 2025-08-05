@@ -1,0 +1,13 @@
+---
+title: "switch《浪涌协奏曲～献给失落之星的歌～DX 》日文版nsp/xci下载【1.0.1补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《浪涌协奏曲～献给失落之星的歌～DX 》日文版下载。本作剧情将以玩家与找寻记忆的迷之美少女伊安的交流进行，借助妖精的力量修复荒废的世界，找回伊安的记忆。 　　游戏世界设定为伊安所处的行星ラシェーラ所在的星系因为太阳的原因，ラシェーラ行星上的人们将面对移住和再生两个选择。被称为&amp;ldq&hellip;"
+layout: post
+---
+
+ <p>　　switch《浪涌协奏曲～献给失落之星的歌～DX 》日文版下载。本作剧情将以玩家与找寻记忆的迷之美少女伊安的交流进行，借助妖精的力量修复荒废的世界，找回伊安的记忆。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=242447&amp;bvid=BV16x411w7Qq&amp;cid=390842&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a78f77658e.jpg" alt="switch《浪涌协奏曲～献给失落之星的歌～DX 》日文版nsp/xci下载【1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a78f7e42a0.jpg" alt="switch《浪涌协奏曲～献给失落之星的歌～DX 》日文版nsp/xci下载【1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a78f853907.jpg" alt="switch《浪涌协奏曲～献给失落之星的歌～DX 》日文版nsp/xci下载【1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a78f8bbf47.jpg" alt="switch《浪涌协奏曲～献给失落之星的歌～DX 》日文版nsp/xci下载【1.0.1补丁】" /></td> </tr> </tbody> </table> <p>　　游戏世界设定为伊安所处的行星ラシェーラ所在的星系因为太阳的原因，ラシェーラ行星上的人们将面对移住和再生两个选择。被称为&ldquo;天文&rdquo;的组织推崇移住计划，想推行行星规模的瞬间移动计划。不过这虽然能让人们迅速移居到其他可以居住的星球上，但也会迅速毁掉一个星球。而推崇再生的则是为称为&ldquo;地文&rdquo;的组织，他们提倡通过人们的思念，运用在这个世界为称之为诗魔法的力量来修复星球。</p> <p>　　整个世界因为天文和地文两派的争斗而疲惫不堪，而如今到了这个世界的皇帝世代交替的时候，天文和地文两个组织都在拥立自己的候补人，而女主角伊安则是天文一派力推的皇帝候选人。在这个世界，新皇帝即位要通过民意表决，而失忆少女伊安就被卷入这个混乱的漩涡之中&hellip;&hellip;</p> <p><h4>下载地址(由网友<font color="red">hfjdn</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111765/](https://lad.sfcrom.cn/2024/04/111765/)

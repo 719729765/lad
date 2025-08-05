@@ -1,0 +1,13 @@
+---
+title: "PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689!圆嘟嘟的蓝助手们又回来照料花园了。它们要种植一棵相传之前就播下了种的巨大的魔法橡树。为橡树浇水施肥，让它长入云霄，然后收获金色橡子。 圆嘟嘟的蓝助手们又回去照看花园了。它们要种植一棵相&hellip;"
+layout: post
+---
+
+ <p>PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689!圆嘟嘟的蓝助手们又回来照料花园了。它们要种植一棵相传之前就播下了种的巨大的魔法橡树。为橡树浇水施肥，让它长入云霄，然后收获金色橡子。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=782461939&amp;bvid=BV1Z24y1w7jr&amp;cid=1104567202&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bedc9ca9f.webp" width="700" alt="PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bedd13738.webp" width="700" alt="PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bedd83974.webp" width="700" alt="PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bede01277.webp" width="700" alt="PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603bede6999f.webp" width="700" alt="PC《世纪之花2：金橡子/Plantera 2: Golden Acorn》中文版下载Build.12573689" /></p></div> <p>圆嘟嘟的蓝助手们又回去照看花园了。它们要种植一棵相传之前就播下了种的巨大的魔法橡树。以橡树为中心建造花园来吸引助手，这些圆嘟嘟的蓝色生物会帮你拾捡物品、采收植物。</p> <p>为橡树浇水施肥，让它长入云霄，然后收获金色橡子。</p> <p>用装饰物装点花园，见证新的植物、灌木和树木让它变得比从前更加郁郁葱葱，看着它成为越来越多海里游的、地上跑的和天上飞的动物的栖息之地。</p> <p>你可以选择自己采摘树木和采收植物，也可以让助手去完成这些工作，你就静静地看着，或者去建造并买入新植物。即便在你离线的时候，这些助手们也会继续干活，照料花园!</p> <p>继续玩下去会解锁新的物品，而随着花园的扩建和升级，你的这棵魔法橡树也会越长越大，它的树冠很快就会长到和天空一样高!</p> <p>特点</p> <p>建造梦中花园：</p> <p>完全自由设计、装饰和居住你的花园。你可以自己选择在花园中放置什么和多少作物、灌木、树木、动物和装饰品。</p> <p>即使在你不玩游戏时也能继续生长：</p> <p>在蓝色醇香的帮助下，你的花园将继续种植收割的新作物，即使在你不玩游戏时也能赚取额外的金钱和经验。</p> <p>升级并解锁新的作物和动物：</p> <p>获得经验并升级，解锁一系列新的作物、灌木、树木、动物、装饰品、地块，甚至还有为你的朋友醇香准备的帽子和面具等特殊物品。</p> <p>吓跑不速之客：</p> <p>吓跑花园的不速之客(如狡猾的狐狸、暴躁的猪和不明飞行物等)，方法是拳击它们或设置守卫犬、篱笆甚至蜜蜂等防御设施。</p> <p>互动或坐下来放松：</p> <p>通过收割庄稼、抵御坏蛋和向花园添加新物品与游戏互动，或者只是坐下来看着和放松。</p> <p><h4>下载地址(由网友<font color="red">16655016673</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/51018/](https://lad.sfcrom.cn/2024/03/51018/)

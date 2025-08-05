@@ -1,0 +1,13 @@
+---
+title: "【JSON修改】PS4《零:月蚀的假面（FATAL FRAME: Mask of the Lunar Eclipse）》中文金手指PKG下载【CUSA36876_00/ 01.04】"
+date: 2024-04-09
+tags: []
+categories: ["PS4金手指"]
+excerpt: "【JSON修改】PS4《零:月蚀的假面（FATAL FRAME: Mask of the Lunar Eclipse）》中文金手指PKG下载【CUSA36876_00/ 01.04】!是光荣特库摩旗下的恐怖游戏，是和风恐怖冒险游戏&ldquo;零&rdquo;系列的第4作，支持中文。 　　修改效果：&hellip;"
+layout: post
+---
+
+ <p>【JSON修改】PS4《零:月蚀的假面（FATAL FRAME: Mask of the Lunar Eclipse）》中文金手指PKG下载【CUSA36876_00/ 01.04】!是光荣特库摩旗下的恐怖游戏，是和风恐怖冒险游戏&ldquo;零&rdquo;系列的第4作，支持中文。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614e97d1c4a5.webp" width="700" alt="【JSON修改】PS4《零:月蚀的假面（FATAL FRAME: Mask of the Lunar Eclipse）》中文金手指PKG下载【CUSA36876_00/ 01.04】" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_6614e97d9ae32.webp" width="700" alt="【JSON修改】PS4《零:月蚀的假面（FATAL FRAME: Mask of the Lunar Eclipse）》中文金手指PKG下载【CUSA36876_00/ 01.04】" /></p> <p>　　修改效果：</p> <p>　　JSONBASE.pkg+json:</p> <p>　　Denoise 去噪点</p> <p>　　Turn Off Box-Shadow 关闭边框阴影</p> <p>　　God Mode 无敌模式</p> <p>　　Infinite Health 无限生命</p> <p>　　maxHealth 2000 生命上限2000</p> <p>　　Instant Camera Lock 射影机瞬间锁定</p> <p>　　Instant Camera Cooldown 射影机瞬间冷却</p> <p>　　One Hit Kill 一击必杀</p> <p>　　Score 9999999 分数9999999</p> <p>　　Blue Spirit Stone 500 蓝色灵力碎片500</p> <p>　　Red Spirit Stone 500 红色灵力碎片500</p> <p>　　Reset Play Time 重置游戏时间</p> <p>　　JSONBASE-60FPS.pkg+json:</p> <p>　　Denoise 去噪点</p> <p>　　Turn Off Box-Shadow 关闭边框阴影</p> <p>　　God Mode 无敌模式</p> <p>　　Infinite Health 无限生命</p> <p>　　Max Health 2000 生命上限2000</p> <p>　　Instant Camera Lock 射影机瞬间锁定</p> <p>　　Instant Camera Cooldown 射影机瞬间冷却</p> <p>　　One Hit Kill 一击必杀</p> <p>　　Score 9999999 分数9999999</p> <p>　　Blue Spirit Stone 500 蓝色灵力碎片500</p> <p>　　Red Spirit Stone 500 红色灵力碎片500</p> <p>　　Reset Play Time 重置游戏时间</p> <p>　　Unlock 60FPS|解锁60帧率上限(pkg自带)</p> <p>　　*更新说明</p> <p>　　2ND 20230425：新增 关闭边框阴影</p> <p>　　使用方法：</p> <p>　　1. 确保 Playstation4 5.05 以上破解(GoldHEN 2.2.2 及以上)</p> <p>　　2. 下载游戏 1.04 整合版(Dreamcast 提供)，安装</p> <p>　　3. 安装特定PKG补丁(普通版 或解锁60fps版)：</p> <p>　　HP0106-CUSA36876_00-APPZEROMOL000000-A0104-V0100-FAKE-JSONBASE.pkg 或</p> <p>　　HP0106-CUSA36876_00-APPZEROMOL000000-A0104-V0100-FAKE-JSONBASE-60FPS.pkg</p> <p>　　4. 使用 FTP 或文件管理器(PS4 Xplorer)导入 CUSA36876_01.04.json 文件到机器内置 /user/data/GoldHEN/cheats/json 目录</p> <p>　　5. 运行游戏，按 SHARE 键呼出 GoldHEN Cheat Menu，根据喜好勾选修改项</p> <p>　　6. 注意：每次使用修改PKG或者json，建议事先使用save mounter/Apollo备份重要进度存档</p> <p><h4>下载地址(由网友<font color="red">神名</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/139267/](https://lad.sfcrom.cn/2024/04/139267/)

@@ -1,0 +1,13 @@
+---
+title: "switch《植兽物语 Monster Harvest》中文版nsp/xci下载【含1.05补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《植兽物语 Monster Harvest》中文版下载，这是一款像素风格的模拟经营游戏，同时加入了丰富的动作冒险元素，在一个奇幻的世界中经营自己的农场吧。 　　Monster Harvest是一款带有扭曲功能的怪物收集和农用动作角色扮演游戏!生长，收集和变异您的农作物，然后将它们投入&hellip;"
+layout: post
+---
+
+ <p>　　switch《植兽物语 Monster Harvest》中文版下载，这是一款像素风格的模拟经营游戏，同时加入了丰富的动作冒险元素，在一个奇幻的世界中经营自己的农场吧。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=456979886&amp;bvid=BV1L5411b7iy&amp;cid=230661811&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8d54bf97.jpg" alt="switch《植兽物语 Monster Harvest》中文版nsp/xci下载【含1.05补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8d649c9f.jpg" alt="switch《植兽物语 Monster Harvest》中文版nsp/xci下载【含1.05补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8d747919.jpg" alt="switch《植兽物语 Monster Harvest》中文版nsp/xci下载【含1.05补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8d800f24.jpg" alt="switch《植兽物语 Monster Harvest》中文版nsp/xci下载【含1.05补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8d90caba.jpg" alt="switch《植兽物语 Monster Harvest》中文版nsp/xci下载【含1.05补丁】" /></td> </tr> </tbody> </table> <p>　　Monster Harvest是一款带有扭曲功能的怪物收集和农用动作角色扮演游戏!生长，收集和变异您的农作物，然后将它们投入战斗!充满发现的地方和建立农场的多种方法，随时准备在充满活力的Planimal Point世界中进行手工制作，探索和战斗。</p> <p>　　游戏介绍</p> <p>　　种植和发现突变动物</p> <p>　　在探索世界的过程中，您会发现奇怪的史莱姆石，它们会以您从未想像的方式使您的农作物发生变异!根据季节不同，史莱姆能够帮助您突变农作物，您最多可以创建72个不同的突变!</p> <p>　　三角翼是忠诚的变异农作物，它们一头又一头地在你身旁。在您穿越Planimal Point进行冒险时，它们将成为您的重要伴侣，在您尝试摧毁邪恶的SlimeCo时，参加激动人心的回合制战斗并探索地牢。</p> <p>　　天气因素影响很大</p> <p>　　游戏世界具有三个独特的季节，这些季节会影响您的游戏方式，而奇怪的天气和季节会改变您的生长能力-当奇怪的突变随季节变化时，请当心!</p> <p>　　有多种不同的方法可以构建和自定义游戏中的最佳农场!手工制作和放置数十种物品，并通过手工制作物品使您的农场更上一层楼!解锁灌溉管道，酸洗机等，以将新鲜收获的农作物制成可投放市场的产品。</p> <p>　　游戏特色</p> <p>　　1、农场与突变!使用神奇的粘液来改变您在农场上种植的农作物。</p> <p>　　2、可收藏的同伴!一些史莱姆将您的农作物变异为Planimals!</p> <p>　　3、三个独特的季节：干燥，潮湿和黑暗-奇怪的天气和季节改变了玩家的成长能力。</p> <p>　　4、进入Planimal Point镇，发现那里的人和生物。</p> <p>　　5、在您的农场上制作并放置数十种物品!</p> <p><h4>下载地址(由网友<font color="red">zaijianz</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100748/](https://lad.sfcrom.cn/2024/04/100748/)

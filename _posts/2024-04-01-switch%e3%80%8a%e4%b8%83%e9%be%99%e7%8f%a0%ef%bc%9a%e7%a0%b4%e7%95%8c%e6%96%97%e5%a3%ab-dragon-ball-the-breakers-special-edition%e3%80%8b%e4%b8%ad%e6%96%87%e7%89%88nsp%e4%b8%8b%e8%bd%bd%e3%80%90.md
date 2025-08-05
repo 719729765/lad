@@ -1,0 +1,13 @@
+---
+title: "switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版nsp下载【含1.0.1补丁+3DLC】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版下载，这是龙珠系列推出的一部非对抗玩法的动作游戏，提供了1对7的战斗模式，喜欢龙珠的玩家可以尝试一下。 　　《七龙珠 破界斗士》为1对7的线上非对称线上动作游戏。由七龙珠最具代&hellip;"
+layout: post
+---
+
+ <p>　　switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版下载，这是龙珠系列推出的一部非对抗玩法的动作游戏，提供了1对7的战斗模式，喜欢龙珠的玩家可以尝试一下。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=516647237&amp;bvid=BV1Jg411a7sg&amp;cid=864606918&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8edb8b40.jpg" alt="switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版nsp下载【含1.0.1补丁+3DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8ee3c50f.jpg" alt="switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版nsp下载【含1.0.1补丁+3DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8eeb2b7c.jpg" alt="switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版nsp下载【含1.0.1补丁+3DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8ef3a4e5.jpg" alt="switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版nsp下载【含1.0.1补丁+3DLC】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f8efbbc8d.jpg" alt="switch《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版nsp下载【含1.0.1补丁+3DLC】" /></td> </tr> </tbody> </table> <p>　　《七龙珠 破界斗士》为1对7的线上非对称线上动作游戏。由七龙珠最具代表性的敌对角色弗力札、塞鲁等「侵略者」，与7名不具超凡力量的普通市民「幸存者」间展开的终极脱逃游戏。</p> <p>　　●从闭锁的空间「时空裂痕」中脱逃!</p> <p>　　幸存者会被突然出现的神秘现象「时空裂痕」吸入，请与伙伴同心协力使用各种方式一步步击退侵略者，并逃离战场。</p> <p>　　●畅玩七龙珠系列经典的「侵略者」角色!</p> <p>　　侵略者会使用绝对优势的力量歼灭幸存者。侵略者在战斗期间不断进化后，会逐步增强力量，并用以破坏区域场景，缩小地图范围，使游戏后半场更有紧张感。</p> <p>　　●使用多样的招式及道具</p> <p>　　幸存者不会毫无准备就上场挑战这种威胁。只要善用七龙珠系列的招式或道具，就可以暂时抵抗侵略者。</p> <p>　　游戏中从藏匿、脱逃、直接攻击侵略者到便于搜索的道具一应俱全，请善用这些项目思考出形形色色的方式逃离。</p> <p>　　●依照自身的喜好个人化</p> <p>　　侵略者或幸存者都具有各式各样的招式、造型等个人化项目。无论是以幸存者脱逃，或是以侵略者歼灭所有幸存者，都可以搭配出属于自己的组合，并且享受谋略的乐趣!</p> <p>　　以上内容就是小编为大家带来的《七龙珠：破界斗士 Dragon Ball The Breakers Special Edition》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Azrael111</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100819/](https://lad.sfcrom.cn/2024/04/100819/)

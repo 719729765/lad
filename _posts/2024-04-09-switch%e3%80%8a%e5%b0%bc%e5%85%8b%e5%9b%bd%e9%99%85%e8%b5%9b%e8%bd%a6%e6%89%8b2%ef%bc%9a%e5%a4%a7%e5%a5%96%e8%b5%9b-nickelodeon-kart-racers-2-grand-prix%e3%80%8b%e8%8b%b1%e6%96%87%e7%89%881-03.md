@@ -1,0 +1,13 @@
+---
+title: "switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版1.03补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版下载。一款娱乐向竞速游戏，里面包含了尼克国际儿童频道中出现的众多卡通角色，诸如海绵宝宝、猫狗、忍者神龟等等。 　　《Nickelodeon Kart Racers》回来了，我&hellip;"
+layout: post
+---
+
+ <p>　　switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版下载。一款娱乐向竞速游戏，里面包含了尼克国际儿童频道中出现的众多卡通角色，诸如海绵宝宝、猫狗、忍者神龟等等。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=797289647&amp;bvid=BV1oy4y1k7qs&amp;cid=242588487&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-07/d9b6a043c39373269529fdfd6f84b8c2.jpg" alt="switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版1.03补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-07/df89e020e255130b630886219ba1baae.jpg" alt="switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版1.03补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-07/009e1b52725a0772758a414e304cf9bc.jpg" alt="switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版1.03补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-07/8afe29ec08dddf0180da30234e3707cc.jpg" alt="switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版1.03补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-07/ec9dd89c3aa29a2d200d7102db9b9876.jpg" alt="switch《尼克国际赛车手2：大奖赛 Nickelodeon Kart Racers 2: Grand Prix》英文版1.03补丁下载" /></td> </tr> </tbody> </table> <p>　　《Nickelodeon Kart Racers》回来了，我们将其踢入超速状态!在《Nickelodeon Kart Racers 2: Grand Prix》中，你可以从30个可玩的赛车手和70个团队成员中选择，以组建最终的维修站。从《Nickelodeon》的名人堂中选择喜欢的人，包括JoJo Siwa、海绵宝宝、忍者神龟、the babies from Rugrats、the cool kids from Hey Arnold!、Ren and Stimpy、Lincoln Loud and his sisters等等!</p> <p>　　更多角色+更多卡丁车+更多曲目=更多乐趣!首先，在一系列有趣的比赛中加速穿越各种充满粘液的赛道，在这里你可以赢得令人垂涎的奖杯和超过80种的卡丁车升级!然后，进入下一档，在线多人游戏或本地竞技场多人游戏中挑战你的朋友，看看谁能先冲过终点线或应对狂野的竞技场挑战!丝毫没有放慢脚步!</p> <p>　　游戏介绍</p> <p>　　-卡丁车游戏有史以来最大的尼克角色集合!</p> <p>　　-100个心爱的尼克角色供你选择</p> <p>　　-30名可玩的赛车手和70名机组人员，每个人都有旨在帮助你获胜的独特能力</p> <p>　　-制定最终的维修人员策略，以提高你的进攻、防御或娱乐水平!</p> <p>　　-数以万计的全明星角色组合</p> <p>　　-本地多人最多支持4人，在线多人最多支持8人</p> <p>　　-新型的改进赛车引擎，带来了一流的赛车乐趣!</p> <p><h4>下载地址(由网友<font color="red">10443664303</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/143390/](https://lad.sfcrom.cn/2024/04/143390/)

@@ -1,0 +1,13 @@
+---
+title: "PC《蓝精灵：毒叶大作战 The Smurfs &#8211; Mission Vileaf》中文版下载v1.0.19.3"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《蓝精灵：毒叶大作战 The Smurfs - Mission Vileaf》中文版下载v1.0.19.3!踏上冒险之旅，拯救您的森林! 在一本满是灰尘的魔法书上，巫师 格格巫 将他的手缓缓停在一种邪恶植物 毒叶 的配方上。 这种植物会结出&ldquo;毒笼草&rdquo;种子，它们会吸引和&hellip;"
+layout: post
+---
+
+ <p>　　PC《蓝精灵：毒叶大作战 The Smurfs - Mission Vileaf》中文版下载v1.0.19.3!踏上冒险之旅，拯救您的森林! 在一本满是灰尘的魔法书上，巫师 格格巫 将他的手缓缓停在一种邪恶植物 毒叶 的配方上。 这种植物会结出&ldquo;毒笼草&rdquo;种子，它们会吸引和囚禁蓝精灵&hellip;&hellip;不仅如此，这些 毒笼草 植物对森林也危害极大，因为它们有毒，尤其是对菝葜田!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=721298241&amp;bvid=BV1hQ4y1q7Yw&amp;cid=433016830&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be93e307d.webp" width="700" alt="PC《蓝精灵：毒叶大作战 The Smurfs - Mission Vileaf》中文版下载v1.0.19.3" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be94615f7.webp" width="700" alt="PC《蓝精灵：毒叶大作战 The Smurfs - Mission Vileaf》中文版下载v1.0.19.3" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be94b76cc.webp" width="700" alt="PC《蓝精灵：毒叶大作战 The Smurfs - Mission Vileaf》中文版下载v1.0.19.3" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be952d445.webp" width="700" alt="PC《蓝精灵：毒叶大作战 The Smurfs - Mission Vileaf》中文版下载v1.0.19.3" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603be959d2af.webp" width="700" alt="PC《蓝精灵：毒叶大作战 The Smurfs - Mission Vileaf》中文版下载v1.0.19.3" /></p></div> <p>　　踏上冒险之旅，拯救您的森林!</p> <p>　　在一本满是灰尘的魔法书上，巫师 格格巫 将他的手缓缓停在一种邪恶植物 毒叶 的配方上。</p> <p>　　这种植物会结出&ldquo;毒笼草&rdquo;种子，它们会吸引和囚禁蓝精灵&hellip;&hellip;不仅如此，这些 毒笼草 植物对森林也危害极大，因为它们有毒，尤其是对菝葜田!</p> <p>　　蓝爸爸 决定寻求一群蓝精灵同伴的帮忙，为所有感染 毒叶 的植物找到一种超强解药的材料。</p> <p>　　多亏 灵灵 发明的 蓝精灵净化机，你们得以踏上冒险之途，前去寻找解毒材料，释放蓝精灵同伴，并拯救整个村庄!</p> <p>　　基本信息</p> <p>　　在 5 个不同的世界中，包含 4 个标志性的蓝精灵形象：蓝妹妹、健健、聪聪 和 厨厨</p> <p>　　在前往 格格巫 住所的途中，使用 蓝精灵净化机 治疗被 毒叶 感染的植物</p> <p>　　蓝精灵净化机 还会让您跳跃、滑行、潜水、吸附等等，一定要把握好时机，克服每个障碍，打败敌人</p> <p>　　该游戏巧妙结合了平台和探索游戏玩法：您需要找到通过垂直关卡的方式，并不断探索，揭开每一个秘密</p> <p>　　不断努力让蓝精灵村庄恢复生机，同时找到分散在关卡中的道具来改进 蓝精灵净化机</p> <p>　　这款游戏适合任何年龄段的蓝精灵粉丝，同样也适合每一个 3D 平台游戏的爱好者!</p> <p><h4>下载地址(由网友<font color="red">韩不错的大白</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53759/](https://lad.sfcrom.cn/2024/03/53759/)

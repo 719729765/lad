@@ -1,0 +1,13 @@
+---
+title: "switch《Inua – A Story in Ice and Time》英文版nsp/xci下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《Inua &ndash; A Story in Ice and Time》英文版下载，这是一款风格唯美的冒险解谜游戏，以因纽特人这个生存在冰雪中的族群文化背景为基础制作，为玩家讲述了一个十分动人的故事。 　　这是一款以因纽特人的文化和艺术为灵感来源的剧情向游戏。游戏以剧情为驱动，而&hellip;"
+layout: post
+---
+
+ <p>　　switch《Inua &ndash; A Story in Ice and Time》英文版下载，这是一款风格唯美的冒险解谜游戏，以因纽特人这个生存在冰雪中的族群文化背景为基础制作，为玩家讲述了一个十分动人的故事。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=332241886&amp;bvid=BV1iA411N7iX&amp;cid=311841123&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8cedb82db.jpg" alt="switch《Inua – A Story in Ice and Time》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8cee2c71c.jpg" alt="switch《Inua – A Story in Ice and Time》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8cee9244e.jpg" alt="switch《Inua – A Story in Ice and Time》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8cef02fce.jpg" alt="switch《Inua – A Story in Ice and Time》英文版nsp/xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8cef7b886.jpg" alt="switch《Inua – A Story in Ice and Time》英文版nsp/xci下载" /></td> </tr> </tbody> </table> <p>　　这是一款以因纽特人的文化和艺术为灵感来源的剧情向游戏。游戏以剧情为驱动，而玩家则需要跟随剧情做出正确的互动、并解开过程中的各个谜题，才能继续推进，看到后续的发展。</p> <p>　　游戏介绍</p> <p>　　1、探索神秘的加拿大遥远的北方，穿越时空并与过去的事件互动以改变现在。</p> <p>　　2、在这个叙事游戏中，您将不得不解开空间和时间来解决令人费解的难题并引导角色。</p> <p>　　3、每个级别由发生在同一地点但在不同时间发生的几个场景组成。</p> <p>　　游戏特色</p> <p>　　1、仿佛是铅笔彩绘一般清新的画风呈现出了许多美妙的景色。</p> <p>　　2、游戏中的谜题难度并不会很高，而且通常提示都非常的明显。</p> <p>　　3、多位主角的剧情分线展开，为玩家们讲述了一个因纽特式的非凡故事。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a8cefd05f7.png" width="570" alt="switch《Inua – A Story in Ice and Time》英文版nsp/xci下载" /></p> <p>　　以上内容就是小编为大家带来的《Inua &ndash; A Story in Ice and Time》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">441304299@qq.com</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/111698/](https://lad.sfcrom.cn/2024/04/111698/)

@@ -1,0 +1,13 @@
+---
+title: "switch《太空粉碎 Astrosmash》英文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp英日游戏"]
+excerpt: "　　switch《太空粉碎 Astrosmash》英文版nsp下载!《太空粉碎Astrosmash》最初是1981年Intellivision控制台的射击游戏，是对20世纪80年代16位游戏的现代重新构想。这个重新设计的版本基于游戏的原始主题和游戏玩法，但更加令人兴奋和具有挑战性。新的图形是惊人的，&hellip;"
+layout: post
+---
+
+ <p>　　switch《太空粉碎 Astrosmash》英文版nsp下载!《太空粉碎Astrosmash》最初是1981年Intellivision控制台的射击游戏，是对20世纪80年代16位游戏的现代重新构想。这个重新设计的版本基于游戏的原始主题和游戏玩法，但更加令人兴奋和具有挑战性。新的图形是惊人的，惊人的背景音乐增加了很多兴奋。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=746932753&amp;bvid=BV16C4y1V72n&amp;cid=1291804513&amp;p=1" width="410"></iframe></p> <p>　　ASTROSMASH&reg;最初由John Sohl于1981年为Intellivision&reg;游戏机设计，并迅速成为当时最受欢迎的游戏之一。它的销量超过100万份，并跻身有史以来最畅销的Intellivision&reg;游戏前五名。在这个以太空为主题的游戏中，玩家使用激光大炮摧毁来袭的流星、炸弹和其他目标。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4b17bb93b.webp" width="700" alt="switch《太空粉碎 Astrosmash》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4b1822ac0.webp" width="700" alt="switch《太空粉碎 Astrosmash》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4b187f5ed.webp" width="700" alt="switch《太空粉碎 Astrosmash》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4b18d4087.webp" width="700" alt="switch《太空粉碎 Astrosmash》英文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a4b193752b.webp" width="700" alt="switch《太空粉碎 Astrosmash》英文版nsp下载" /></p></div> <p>　　在ASTROSMASH&reg;中，您可以控制一门激光炮，它沿着平面向左或向右滚动，以瞄准坠落的物体，如大小流星、旋转炸弹、制导导弹，或不时在更高级别穿过屏幕的不明飞行物。背景中可以看到低矮的山丘和星星。</p> <p>　　有许多类型的目标，每种目标都可能以不同的速度移动。随着游戏的进行，速度的范围会增加。</p> <p>　　游戏有十个关卡，每个关卡都有不同的对象。每一个级别都有不同的美丽背景和令人惊叹的背景音乐。声音和背景音乐与游戏完美同步。这是著名作曲家汤米&middot;塔拉里科的杰作。他赢得了超过35个行业奖项，并制作了300多个游戏。</p> <p>　　玩家可以选择按下射击按钮进行单枪射击，也可以切换到每秒多枪的自动射击。超空间选项将激光炮移动到一个随机的位置，这个位置可能比起点更安全，也可能不安全。</p> <p>　　这款ASTROSMASH&reg;转世版在不偏离游戏原始主题和游戏性的情况下，更令人兴奋，更具视觉吸引力，也更具挑战性。新的图形是惊人的，由著名游戏音乐作曲家Tommy Tallarico编写的令人惊叹的背景音乐为这部经典视频游戏增添了令人难以置信的兴奋。此外，ASTROSMASH&reg;现在使玩家能够相互合作或对抗;本地或在线，甚至跨平台，最多可容纳四名玩家。</p> <p>　　单人模式</p> <p>　　合作和对比模式</p> <p>　　本地和在线多人模式，最多4名玩家(跨平台)</p> <p>　　10个不同级别</p> <p>　　不同种类的敌人，比如宇宙飞船、小行星、不明飞行物</p> <p>　　神奇的图形</p> <p>　　由著名游戏音乐作曲家Tommy Tallarico编写和设计的超棒声音</p> <p>　　键盘和操纵手柄支持</p> <p><h4>下载地址(由网友<font color="red">RD201</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/107067/](https://lad.sfcrom.cn/2024/04/107067/)

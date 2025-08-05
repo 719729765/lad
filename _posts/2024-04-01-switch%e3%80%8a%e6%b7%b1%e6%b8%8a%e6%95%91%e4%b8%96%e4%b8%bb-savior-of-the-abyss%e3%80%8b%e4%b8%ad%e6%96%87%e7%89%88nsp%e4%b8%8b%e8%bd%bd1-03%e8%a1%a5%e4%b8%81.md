@@ -1,0 +1,13 @@
+---
+title: "switch《深渊救世主 Savior of the Abyss》中文版nsp下载+1.03补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《深渊救世主 Savior of the Abyss》中文版nsp下载+1.03补丁，这是一款像素风格的角色扮演游戏，在故事题材中加入了克苏鲁元素，感兴趣的玩家不要错过。 　　《深渊救世主》是一款RPG Maker风格的恐怖冒险游戏，根据探索周围环境获得的线索解开谜语。 　　游戏的目标是&hellip;"
+layout: post
+---
+
+ <p>switch《深渊救世主 Savior of the Abyss》中文版nsp下载+1.03补丁，这是一款像素风格的角色扮演游戏，在故事题材中加入了克苏鲁元素，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=847157838&amp;bvid=BV1o54y177fT&amp;cid=383793396&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6483c4fa.webp" width="600" alt="switch《深渊救世主 Savior of the Abyss》中文版nsp下载+1.03补丁" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6488185f.webp" width="600" alt="switch《深渊救世主 Savior of the Abyss》中文版nsp下载+1.03补丁" /></p> <p>　　《深渊救世主》是一款RPG Maker风格的恐怖冒险游戏，根据探索周围环境获得的线索解开谜语。</p> <p>　　游戏的目标是控制主角斯特拉，让她可以爬到地上。</p> <p>　　为了避免猝死，你应该时刻保持警惕，对周围的事物保持怀疑。</p> <p>　　始终仔细检查您的周围环境并使用您必须使用的物品以避免死亡。</p> <p>　　收集并使用各种工具前往地面。</p> <p>　　保存点是固定的。</p> <p>　　它有三个结局。</p> <p>　　故事介绍</p> <p>　　斯特拉在一家旧医院的地下室醒来。</p> <p>　　这是一个不祥的地方，但史黛拉决定探索周围环境，以找到地面。</p> <p>　　斯特拉在危及生命的磨难中找到了自己的出路，发现了设施背后的秘密以及她为什么在这里。</p> <p>　　请安全地带领史黛拉，以便她能够安全地达到目的。</p> <p><h4>下载地址(由网友<font color="red">273592557</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100638/](https://lad.sfcrom.cn/2024/04/100638/)

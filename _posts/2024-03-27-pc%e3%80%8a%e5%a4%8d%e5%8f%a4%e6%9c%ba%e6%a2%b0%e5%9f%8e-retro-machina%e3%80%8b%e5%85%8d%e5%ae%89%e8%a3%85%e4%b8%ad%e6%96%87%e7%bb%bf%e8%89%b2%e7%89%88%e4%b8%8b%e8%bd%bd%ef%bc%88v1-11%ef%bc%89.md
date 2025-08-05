@@ -1,0 +1,13 @@
+---
+title: "PC《复古机械城 Retro Machina》免安装中文绿色版下载（v1.11）"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "PC《复古机械城 Retro Machina》免安装中文绿色版下载!《复古机械城》是一款以复古未来世界为背景的单人动作探索游戏。体验一个小机器人的旅程，解开复杂的谜题并解开早已被遗忘的世界的神秘过往。 　　全部评测:! 　　关于这款游戏 　　这座星球上只剩下一座城市，如今唯一的居住者们是机器人。在一&hellip;"
+layout: post
+---
+
+ <p>PC《复古机械城 Retro Machina》免安装中文绿色版下载!《复古机械城》是一款以复古未来世界为背景的单人动作探索游戏。体验一个小机器人的旅程，解开复杂的谜题并解开早已被遗忘的世界的神秘过往。</p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039423bb08e.webp" style="width: 460px; height: 215px;" alt="PC《复古机械城 Retro Machina》免安装中文绿色版下载（v1.11）" /></p> <p>　　全部评测:!</p> <p>　　关于这款游戏</p> <p>　　这座星球上只剩下一座城市，如今唯一的居住者们是机器人。在一座玻璃天穹的保护下，奋斗城从曾经充满生机的地方拔地而起，工作机器人努力保证着这座城市的运转。为了维持这种运转，每个机器人都要完美地胜任自己的工作，一旦出现缺陷就会被废弃。</p> <p>　　在出了故障被丢进垃圾场后，一个机器工人开始了一场自身的修复之旅。然而这座城市如今却将这名忠诚的工作者当做了威胁，因此机器人和所有保护着奋斗城的防御力量都和这位前同事反目了。这个小机器人有着独特的能力，可以操控这座城市里各种的机器，包括途中遇到的所有机器人，从而展开了一场修复自身并寻找智慧生物的旅程。</p> <p>　　只不过貌似没有任何智慧生物还活着的迹象。这里只有编程过的机器人为那些早已不知所踪的人类保持着城市的干净整洁。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660394241aa86.webp" width="600" alt="PC《复古机械城 Retro Machina》免安装中文绿色版下载（v1.11）" /></p> <p>　　一切都靠你自己</p> <p>　　人类很久前就消失了，只留下他们的机器人造物。如今这个世界正分崩离析。是否有谁可以帮助你修复这个世界并告诉你曾经生活在这里的人出了什么事?</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603942470e93.webp" alt="PC《复古机械城 Retro Machina》免安装中文绿色版下载（v1.11）" /></p> <p>　　你的敌人也是你的工具</p> <p>　　这个孤单的小机器人幸好有自己的独门绝技：可以入侵并控制任何别的机器。随时随地想用就用：你可以让机器互相打斗，可以探索到不了的地方，可以解开谜题或是让自己的旅途有个伴。各种有着不同能力的机器人等着你来发现。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_66039424c6fc1.webp" alt="PC《复古机械城 Retro Machina》免安装中文绿色版下载（v1.11）" /></p> <p>　　享受手绘的画风</p> <p>　　《复古机械城》的艺术风格基于二十世纪科幻小说的插图。游戏的背景是复古未来世界，灵感来自于Jacque Fresco等世界知名未来学家这类传奇人物的作品。</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660394251d858.webp" alt="PC《复古机械城 Retro Machina》免安装中文绿色版下载（v1.11）" /></p> <p>　　探索这个多方位的世界</p> <p>　　从这个星球上最后的城市奋斗城的地下设施到地上金街，你的旅程将会带你穿过整个区域，其中有新的挑战、新的机器人还有各种等待探索的秘密。</p> <p>安装介绍</p> <p>1. 解压缩<br />2. 载入镜像<br />3. 安装游戏<br />4. 复制PLAZA文件夹下的未加密补丁到游戏目录覆盖<br />5. 运行游戏<br />&nbsp;</p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_660394257fb62.webp" alt="PC《复古机械城 Retro Machina》免安装中文绿色版下载（v1.11）" /></p> <p><h4>下载地址(由网友<font color="red">barry2383</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/52415/](https://lad.sfcrom.cn/2024/03/52415/)

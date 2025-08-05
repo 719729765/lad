@@ -1,0 +1,13 @@
+---
+title: "switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》港版中文xci下载【含1.0.2补丁】"
+date: 2024-04-02
+tags: []
+categories: ["xci中文游戏"]
+excerpt: "　　switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》中文版下载，这是女神异闻录系列推出的一款2D动作格斗游戏，如今这款游戏终于移植到了switch平台上，对这款游戏感兴趣的玩家不要错过。 　　《女神异闻录4 终极竞技场2》是《女神异闻录4：竞技场》的续作，其&hellip;"
+layout: post
+---
+
+ <p>　　switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》中文版下载，这是女神异闻录系列推出的一款2D动作格斗游戏，如今这款游戏终于移植到了switch平台上，对这款游戏感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=852172469&amp;bvid=BV1SL4y1u76Y&amp;cid=545823946&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a038496f.jpg" alt="switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》港版中文xci下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a0479190.jpg" alt="switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》港版中文xci下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a052f286.jpg" alt="switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》港版中文xci下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a061849f.jpg" alt="switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》港版中文xci下载【含1.0.2补丁】" /></td> </tr> </tbody> </table> <p>　　《女神异闻录4 终极竞技场2》是《女神异闻录4：竞技场》的续作，其中加入了几处新的变化，包括新的Persona卡技能，新的战士Rise Kujikawa 和 Ken Amada。</p> <p>　　故事接续前作之后，引发特别搜查队与暗影行者(シャドウワーカー)生死决战的「P-1Grand Prix」格斗大会结束后数日，为了找出设计这一切的幕后主使者，特别搜查队与暗影行者分头进行调查，没想到就在这个时候，「深夜电视」竟然又在八十稻羽开始播放了!再度在画面上现身的「KUMA 总统」隆重宣言。影片的内容是恶搞程度超过百分之两百的格斗大会「P-1 Climax」。</p> <p>　　主要特点包括：</p> <p>　　- Ultimax 版本 - 包括之前发布的所有 Persona 4 Arena Ultimax 内容，包括原始的 Persona 4 Arena 故事</p> <p>　　可玩角色的深度名单 - Persona 3 粉丝最喜欢的版本和&ldquo;影子&rdquo;版本提供了一系列可供选择的战斗风格from</p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660b4a0663970.png" style="width: 455px; height: 156px;" alt="switch《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》港版中文xci下载【含1.0.2补丁】" /></p> <p>　　以上内容就是小编为大家带来的《女神异闻录4 午夜斗技场2 Persona 4 Arena Ultimax》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Sugarman</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/119941/](https://lad.sfcrom.cn/2024/04/119941/)

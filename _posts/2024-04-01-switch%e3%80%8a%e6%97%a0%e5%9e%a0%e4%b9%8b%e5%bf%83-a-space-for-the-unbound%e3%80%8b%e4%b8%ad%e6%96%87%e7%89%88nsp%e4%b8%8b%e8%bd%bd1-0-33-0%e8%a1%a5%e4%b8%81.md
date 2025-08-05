@@ -1,0 +1,13 @@
+---
+title: "switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁!本作以精美的像素风格，重现了90年代末期印尼乡村的生活气息，并且讲述了一对拥有超自然力量的少年少女克服困难、获得友谊的冒险故事。 　　关于这款游戏 　　高中生涯即将结束，随之而来的却是世界&hellip;"
+layout: post
+---
+
+ <p>switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁!本作以精美的像素风格，重现了90年代末期印尼乡村的生活气息，并且讲述了一对拥有超自然力量的少年少女克服困难、获得友谊的冒险故事。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=375606080&amp;bvid=BV1Jo4y1m76x&amp;cid=337038422&amp;page=1" width="410"></iframe></p> <p style="text-align: center;"><img src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6b1a2543.webp" style="width: 460px; height: 215px;" alt="switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁" /></p> <p>　　关于这款游戏</p> <p>　　高中生涯即将结束，随之而来的却是世界末日《无垠之心》以精美的像素风格，重现了90年代末期印尼乡村的生活气息，并且讲述了一对拥有超自然力量的少年少女克服困难、获得友谊的冒险故事。</p> <p>　　跟随阿塔姆和拉雅，在高中毕业季展开一场自我发现之旅。在此期间，一股神秘的超自然力量突然来袭，他们必须探索和调查自己居住的小镇，发掘隐藏的秘密，直面世界末日，与此同时加深彼此之间的了解。</p> <p>　　以一个90年代末期的印尼小镇为背景，加之充满生机的可互动场景，《无垠之心》定能为您带来不一般的游戏体验。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6b205bc3.webp" alt="switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6b25af1b.webp" alt="switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6b2cb2ac.webp" alt="switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6b348396.webp" alt="switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f6b39cdcf.webp" alt="switch《无垠之心 A Space for the Unbound》中文版nsp下载+1.0.33.0补丁" /></td> </tr> </tbody> </table> <p>　　主要特色</p> <p>　　梦回90年代!一窥90年代末期的印尼乡村!</p> <p>　　探索印尼乡村，享受轻松氛围，发掘隐藏的超自然事件。</p> <p>　　与其他村民交谈互动，听听他们的个人琐事。</p> <p>　　如同盗梦空间一般，潜入别人的内心空间。</p> <p>　　聆听Masdito &quot;Ittou&quot; Bachtiar创作的精美音乐。</p> <p><h4>下载地址(由网友<font color="red">skaro</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101034/](https://lad.sfcrom.cn/2024/04/101034/)

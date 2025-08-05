@@ -1,0 +1,13 @@
+---
+title: "PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16"
+date: 2024-03-27
+tags: []
+categories: ["PC中文游戏"]
+excerpt: "　　PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16!探索神秘的流亡者岛。收集资源，制作，建立定居点。认识当地人，创建自己的部落，自动化和管理。狩猎，照顾好你的睡眠，食物和水。在部落的世界里放松一下。但请记住，只有您才能将其从破坏中拯救出来。 　　你&hellip;"
+layout: post
+---
+
+ <p>　　PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16!探索神秘的流亡者岛。收集资源，制作，建立定居点。认识当地人，创建自己的部落，自动化和管理。狩猎，照顾好你的睡眠，食物和水。在部落的世界里放松一下。但请记住，只有您才能将其从破坏中拯救出来。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=265876214&amp;bvid=BV1kY411D78U&amp;cid=981684696&amp;p=1" width="410"></iframe></p> <p>　　你被一个蒙面的当地人从水中拉出来。在他的帮助下，你开始深入神秘岛屿的旅程。面对等待您的挑战，探索尚未被发现的地方。危险的火山，神秘的人物和神秘的部落。你会怎么做才能生存?</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b90fc6516.webp" width="700" alt="PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b91039d11.webp" width="700" alt="PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b9108ec17.webp" width="700" alt="PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b91106ba1.webp" width="700" alt="PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240327_6603b9115dd0c.webp" width="700" alt="PC《部落：原始建设者/Tribe: Primitive Builder》中文版下载v1.0.16" /></p></div> <p>　　作为建设者，你的声音等于长辈。使用你在部落中的位置：原始建造者是恢复你部落的荣耀。找到对您和您的村民有用的一切。利用环境对你有利，否则就会像以前的许多文明一样灭亡。无论您做什么，都要提前计划。一个错误的决定可能会导致你的文明崩溃......</p> <p>　　升级你的建筑，使用你获得的材料来创造一个繁荣的村庄。为您的部落提供住所、食物和工作。通过执行仪式来解锁新的蓝图，以建造更耐用、更宏伟的建筑。建造新的结构，让你进入岛上的新部分。请记住，虽然未被发现的地方隐藏着许多秘密，但它们也可能很危险!</p> <p>　　开始您的岛屿之旅!听从长辈的指导，完成任务，深入主线故事。如果你要领导部落，你必须首先获得他们的信任，这样当困难时期到来时，你可以确信他们会帮助你。</p> <p>　　为您的部落创建一套工具并征服荒野。刀具、斧头和其他物品将有助于生产所需的资源。在穿越岛上的荒野时，它们可以证明是非常有帮助的。</p> <p>　　建造者的角色很重要，但材料不是一切!为了生活，你需要吃饭。生产正确的工具并去狩猎。你不仅需要肉来满足你的饥饿，还需要满足村民的饥饿。当地人可以帮助你获得食物。你不能让饥饿在村子里盛行!</p> <p>　　发展你的村庄!在部落：原始建造者中，您可以控制部落的扩张速度，因为您负责照顾他们的需求。扩张太快，发现自己挨饿，扩张太慢，最终对即将发生的事情准备不足。你会找到生存的方法吗?</p> <p><h4>下载地址(由网友<font color="red">超级火车王</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/53782/](https://lad.sfcrom.cn/2024/03/53782/)

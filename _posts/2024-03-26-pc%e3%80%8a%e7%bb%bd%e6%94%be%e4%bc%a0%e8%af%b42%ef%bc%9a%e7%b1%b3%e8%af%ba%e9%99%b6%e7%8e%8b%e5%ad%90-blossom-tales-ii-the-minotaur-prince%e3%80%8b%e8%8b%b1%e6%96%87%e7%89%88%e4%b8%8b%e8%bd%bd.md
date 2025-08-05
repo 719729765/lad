@@ -1,0 +1,13 @@
+---
+title: "PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载，这是一款像素画风的动作冒险游戏，故事剧情非常有趣，游戏拥有丰富的主线和支线内容，感兴趣的玩家不要错过。 　　游戏类型：动作冒险类(ACT)游戏 　　游戏制作：Castle Pixe&hellip;"
+layout: post
+---
+
+ <p>　　PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载，这是一款像素画风的动作冒险游戏，故事剧情非常有趣，游戏拥有丰富的主线和支线内容，感兴趣的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=386473039&amp;bvid=BV1Jd4y1U7H5&amp;cid=787456775&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034be7391b6.jpg" alt="PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034be89c7d5.jpg" alt="PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034be96eb99.jpg" alt="PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034bea0cd92.jpg" alt="PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_66034beb22666.jpg" alt="PC《绽放传说2：米诺陶王子 Blossom Tales II The Minotaur Prince》英文版下载" /></td> </tr> </tbody> </table> <p>　　游戏类型：动作冒险类(ACT)游戏</p> <p>　　游戏制作：Castle Pixel, LLC.</p> <p>　　游戏发行：Playtonic Friends</p> <p>　　备受好评的 2D 动作解谜游戏《绽放传说：沉睡的国王》公布续作《绽放传说 2：米诺陶王子(Blossom Tales 2: The Minotaur Prince)》。本作的故事发生在前作的百年之后，主角莉莉将再次开始不可思议的冒险。本作拥有引人入胜的主线故事与丰富有趣的支线任务，不少选择都会影响剧情的走向;数十个迷你地牢和洞穴将带给玩家超过 15 小时的游戏体验。</p> <p>　　游戏介绍</p> <p>　　爷爷这次讲的新故事，将带你在一个广袤的开放世界中走过闹鬼森林、海盗水岸等其他神秘莫测的地方!迷人的小镇、可怕的敌人、狡猾的谜题、强大的武器，全都等你去探索。</p> <p>　　爷爷将绘声绘色讲述莉莉冒险的精彩瞬间，让你享受&ldquo;故事中的故事&rdquo;。</p> <p>　　你能帮莉莉打败米诺陶之王，救出她的弟弟吗?</p> <p>　　游戏特色</p> <p>　　引人入胜的主线剧情外加支线任务</p> <p>　　复古2D世界里的经典俯视角动作冒险</p> <p>　　几十个迷你地下城、洞穴等地点等你探索</p> <p>　　通过选择来影响剧情和事件</p> <p>　　多种多样的武器和技能</p> <p>　　游戏内容超过15小时</p> <p>　　以上内容就是小编为大家带来的《绽放传说 2米诺陶王子 Blossom Tales II The Minotaur Prince》英文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">Nightingale</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/40998/](https://lad.sfcrom.cn/2024/03/40998/)

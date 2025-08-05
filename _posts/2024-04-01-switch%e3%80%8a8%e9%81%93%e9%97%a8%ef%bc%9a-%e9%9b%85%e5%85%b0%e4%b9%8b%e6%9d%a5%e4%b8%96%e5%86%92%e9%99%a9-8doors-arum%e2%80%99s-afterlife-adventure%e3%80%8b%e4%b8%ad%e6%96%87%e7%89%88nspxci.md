@@ -1,0 +1,13 @@
+---
+title: "switch《8道门： 雅兰之来世冒险 8Doors Arum’s Afterlife Adventure》中文版nsp/xci下载【含1.0.2补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《8道门： 雅兰之来世冒险 8Doors Arum&rsquo;s Afterlife Adventure》中文版下载，这是一款类银河恶魔城玩法的2D横版动作游戏，以带有东方元素的阴间世界背景，喜欢动作游戏的玩家不要错过。 　　这是一款以东方文明中的阴间世界观为基础所打造的横版动作冒&hellip;"
+layout: post
+---
+
+ <p>　　switch《8道门： 雅兰之来世冒险 8Doors Arum&rsquo;s Afterlife Adventure》中文版下载，这是一款类银河恶魔城玩法的2D横版动作游戏，以带有东方元素的阴间世界背景，喜欢动作游戏的玩家不要错过。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=255672045&amp;bvid=BV1HY411j7An&amp;cid=574759731&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9eb386c6.jpg" alt="switch《8道门： 雅兰之来世冒险 8Doors Arum’s Afterlife Adventure》中文版nsp/xci下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9ebabb89.jpg" alt="switch《8道门： 雅兰之来世冒险 8Doors Arum’s Afterlife Adventure》中文版nsp/xci下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9ec3248b.jpg" alt="switch《8道门： 雅兰之来世冒险 8Doors Arum’s Afterlife Adventure》中文版nsp/xci下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9ec9dc5b.jpg" alt="switch《8道门： 雅兰之来世冒险 8Doors Arum’s Afterlife Adventure》中文版nsp/xci下载【含1.0.2补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_6609f9ed1703c.jpg" alt="switch《8道门： 雅兰之来世冒险 8Doors Arum’s Afterlife Adventure》中文版nsp/xci下载【含1.0.2补丁】" /></td> </tr> </tbody> </table> <p>　　这是一款以东方文明中的阴间世界观为基础所打造的横版动作冒险游戏，主人公为了探究自己的村子中神秘的死因，毅然决然的来到了阴间世界，而在这里等待她的将是数不清的挑战。</p> <p>　　故事介绍</p> <p>　　因横扫村子的谜之死，失去了自己父亲的雅兰为了查明原因走向阴间。等待到达阴间的雅兰的是一个充满阴魂和混乱的阴间世界。在陷入混乱的阴间世界的雅兰，为了寻找父亲，开始旅行炼狱。</p> <p>　　游戏特色</p> <p>　　探险：由8个地区组成的阴间世界和多种模式的危险障碍。</p> <p>　　战斗：利用攻击组合闪避的艰难战斗。还有固有模式的30种以上亡灵和12种以上的BOSS亡灵。</p> <p>　　成长：进行游戏时获得的能力和被动技能以及7种武器。</p> <p>　　世界观：带有独特而魅力的东方阴间世界观。</p> <p>　　故事：以韩国传统故事为基础制作的背景和人物。</p> <p>　　独特的图片：以&ldquo;白色&rdquo;/&ldquo;黑色&rdquo;/&ldquo;红色&rdquo;三种颜色描述的阴间世界。</p> <p>　　动画制作：把所有角色一个个画出的动画。</p> <p>　　以上内容就是小编为大家带来的《8道门： 雅兰之来世冒险 8Doors Arum&rsquo;s Afterlife Adventure》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">makiOOOO</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101657/](https://lad.sfcrom.cn/2024/04/101657/)

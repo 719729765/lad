@@ -1,0 +1,13 @@
+---
+title: "【体验版】switch《双盲把戏 Death Trick: Double Blind》中文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　【体验版】switch《死亡诡计：双盲 Death Trick: Double Blind》中文版nsp下载!控制两个主角从不同的角度处理案件：一个是魔术师和受害者的同事，另一个是与失忆症作斗争的私人眼睛。利用他们独特的技能和专业知识，与大量角色交朋友并审问他们，调查各个地点，并在充满曲折和背叛&hellip;"
+layout: post
+---
+
+ <p>　　【体验版】switch《死亡诡计：双盲 Death Trick: Double Blind》中文版nsp下载!控制两个主角从不同的角度处理案件：一个是魔术师和受害者的同事，另一个是与失忆症作斗争的私人眼睛。利用他们独特的技能和专业知识，与大量角色交朋友并审问他们，调查各个地点，并在充满曲折和背叛的曲折叙事中寻找矛盾，肯定会让潜在的侦探和马戏团粉丝感到震惊和高兴。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=313518762&amp;bvid=BV1oP41117et&amp;cid=1125709701&amp;p=1" width="410"></iframe></p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f1fef38ce.webp" width="700" alt="【体验版】switch《双盲把戏 Death Trick: Double Blind》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f1ff6045c.webp" width="700" alt="【体验版】switch《双盲把戏 Death Trick: Double Blind》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f1ffd0f13.webp" width="700" alt="【体验版】switch《双盲把戏 Death Trick: Double Blind》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f2003892c.webp" width="700" alt="【体验版】switch《双盲把戏 Death Trick: Double Blind》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609f200d7369.webp" width="700" alt="【体验版】switch《双盲把戏 Death Trick: Double Blind》中文版nsp下载" /></p></div> <p>　　摩根旅行马戏团的明星魔术师失踪了，但演出必须继续!</p> <p>　　来吧，来参加摩根的旅行马戏团，这是美国最伟大的表演!或者它就是这样，直到它的明星哈蒂消失了。</p> <p>　　时光倒流到 20 世纪中叶，一位魔术师和一位私家侦探正在处理失踪魔术师的案件。惊叹于郁郁葱葱的纸浆艺术视觉效果和大气的配乐，让人回想起旅行马戏团的黄金时代!但永远不要忘记，有一个杀人之谜正在酝酿之中。</p> <p>　　控制两个主角从不同的角度处理案件：一个是魔术师和受害者的同事，另一个是与失忆症作斗争的私人眼睛。利用他们独特的技能和专业知识，与大量角色交朋友并审问他们，调查各个地点，并在充满曲折和背叛的曲折叙事中寻找矛盾，肯定会让潜在的侦探和马戏团粉丝感到震惊和高兴。</p> <p>　　&diams; 双视角 &diams;</p> <p>　　魔术师和私人眼睛之间交替：两个不同的角色，可以访问不同的信息，并将碎片放在一起以查看更大的图景!</p> <p>　　&diams; 回合和行动点 &diams;</p> <p>　　在打发时间之前，人们只能采取有限的行动，请仔细计划要追查哪些线索以及要调查哪些地点。</p> <p>　　&diams; 独特的&ldquo;收藏&rdquo;机制 &diams;</p> <p>　　收集、呈现和搜索&ldquo;收藏&rdquo;中每一条信息中的矛盾之处。</p> <p>　　★ 8个完全动画的角色，各有各自的目标和动机。</p> <p>　　★ 10 个华丽的地点可供调查和重访。</p> <p>　　★ 50+ CG 和更多漫画面板，让马戏团栩栩如生。</p> <p>　　★ 一个庞大的、非线性的叙事，让人全神贯注和着迷。</p> <p>　　★ 每个主要角色都有不同的可解锁结局。</p> <p><h4>下载地址(由网友<font color="red">lan66</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101049/](https://lad.sfcrom.cn/2024/04/101049/)

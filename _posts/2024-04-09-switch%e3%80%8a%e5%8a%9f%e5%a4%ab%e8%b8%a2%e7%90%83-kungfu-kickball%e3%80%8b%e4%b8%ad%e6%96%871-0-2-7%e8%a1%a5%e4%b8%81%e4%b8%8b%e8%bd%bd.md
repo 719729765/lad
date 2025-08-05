@@ -1,0 +1,13 @@
+---
+title: "switch《功夫踢球 KungFu Kickball》中文1.0.2.7补丁下载"
+date: 2024-04-09
+tags: []
+categories: ["switch游戏补丁"]
+excerpt: "　　switch《功夫踢球 KungFu Kickball》中文版下载，这是一款将功夫格斗和踢球玩法结合在了一起的游戏，以像素画风为大家呈现了一个有趣的功夫世界。对这趣味玩法感兴趣的玩家可以来试试哦。 　　《KungFu Kickball》是一款足球题材的乱斗游戏，这里只有战斗力最强的球员可以摘得桂&hellip;"
+layout: post
+---
+
+ <p>　　switch《功夫踢球 KungFu Kickball》中文版下载，这是一款将功夫格斗和踢球玩法结合在了一起的游戏，以像素画风为大家呈现了一个有趣的功夫世界。对这趣味玩法感兴趣的玩家可以来试试哦。</p> <p style="text-align: center;"><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=933227342&amp;bvid=BV1aM4y137nx&amp;cid=413948508&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661540930cc62.jpg" alt="switch《功夫踢球 KungFu Kickball》中文1.0.2.7补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154093a72ed.jpg" alt="switch《功夫踢球 KungFu Kickball》中文1.0.2.7补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661540947a108.jpg" alt="switch《功夫踢球 KungFu Kickball》中文1.0.2.7补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_661540951c4f3.jpg" alt="switch《功夫踢球 KungFu Kickball》中文1.0.2.7补丁下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240409_66154095b96c1.jpg" alt="switch《功夫踢球 KungFu Kickball》中文1.0.2.7补丁下载" /></td> </tr> </tbody> </table> <p>　　《KungFu Kickball》是一款足球题材的乱斗游戏，这里只有战斗力最强的球员可以摘得桂冠!拳击?飞踢?别管什么方式了，把球狠狠地砸向你的对手吧!</p> <p>　　与你的好友一同投身于这项将足球与功夫融合于一体的梦幻比赛中吧!飞腾于空中，使出连环拳、飞踢或秘术来压倒你的对手，顺便再用足球把他们的脑袋砸得响叮当。每一次铃响都意味着你拿下一分，时间用完时得分最高的团队将成为本轮赢家。</p> <p>　　在单人锦标赛模式中面对愈发强大的AI，磨练您的技巧，接着在本地多人/在线多人游戏中与各路好手一较高下。</p> <p>　　游戏特色</p> <p>　　1v1和2v2在线多人比赛</p> <p>　　与您的朋友在本地和在线玩，或与速战速决。</p> <p>　　快速学习，难以掌握</p> <p>　　只有三个按钮可以跟踪，但是可以使用不同的组合进行许多移动。</p> <p>　　6个独特的阶段</p> <p>　　详细的像素图和有趣的形状使每个级别都变得不同而有趣。</p> <p>　　3个玩家等级</p> <p>　　选择扮演和尚，忍者或老大师。</p> <p>　　每一个钟声都算是一个分数，并且在时间用完时得分最高的团队被宣布为获胜者。</p> <p>　　角色介绍</p> <p>　　和尚 - 面面具到的选择</p> <p>　　刺客 - 极度快速，但打击不够强力</p> <p>　　醉拳拳师 - 战斗风格别出一格</p> <p>　　大师 - 因年事已高而行动较缓，但仍然能够打出不可思议的一击</p> <p>　　武林传奇 - 敏捷，但仍然能够用踢击将球踢飞</p> <p>　　熊猫 - 真正的重击手</p> <p>　　以上内容就是小编为大家带来的《功夫踢球 KungFu Kickball》中文版，更多精彩内容敬请关注游戏年轮。</p> <p><h4>下载地址(由网友<font color="red">13508343037</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/144967/](https://lad.sfcrom.cn/2024/04/144967/)

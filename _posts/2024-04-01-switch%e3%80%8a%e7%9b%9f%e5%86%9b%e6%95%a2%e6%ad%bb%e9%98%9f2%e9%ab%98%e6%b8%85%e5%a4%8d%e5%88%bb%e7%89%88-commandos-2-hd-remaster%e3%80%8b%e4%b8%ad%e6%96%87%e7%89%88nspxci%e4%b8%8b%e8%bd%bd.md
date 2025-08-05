@@ -1,0 +1,13 @@
+---
+title: "switch《盟军敢死队2高清复刻版 Commandos 2 &#8211; HD Remaster》中文版nsp/xci下载【含1.0.1补丁】"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "　　switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》!重温定义游戏类型的实时战术巨作：《盟军敢死队 2 - 高清复刻版》原作为传奇的 Pyro Studios 开发，本作是对游戏界最负盛名巨作的真切致敬。 　　重温定义游戏类型的实时战术巨作：《盟军敢死队 2&hellip;"
+layout: post
+---
+
+ <p>　　switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》!重温定义游戏类型的实时战术巨作：《盟军敢死队 2 - 高清复刻版》原作为传奇的 Pyro Studios 开发，本作是对游戏界最负盛名巨作的真切致敬。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=755482566&amp;bvid=BV16r4y1c7m2&amp;cid=261554430&amp;page=1" width="410"></iframe></p> <p>　　重温定义游戏类型的实时战术巨作：《盟军敢死队 2 - 高清复刻版》原作为传奇的 Pyro Studios 开发，本作是对游戏界最负盛名巨作的真切致敬。以前所未有的高清分辨率、重制控制、新版界面和全新教程，再次体验《盟军敢死队 2：勇往直前》。在二战背景下，控制一队精英敢死队员深入敌后，利用多样专长完成一系列艰难任务。潜入根据真实二战地点设定的各种环境，领导敢死队秘密行动，披荆斩棘，最终扭转战争的走向。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a03c3b2f5c.jpg" alt="switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a03c44afaa.jpg" alt="switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a03c4e9e9f.jpg" alt="switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a03c5757f1.jpg" alt="switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a03c6185b4.jpg" alt="switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a03c6a84d5.jpg" alt="switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240401_660a03c75157c.jpg" alt="switch《盟军敢死队2高清复刻版 Commandos 2 - HD Remaster》中文版nsp/xci下载【含1.0.1补丁】" /></td> </tr> </tbody> </table> <p><h4>下载地址(由网友<font color="red">skyiori</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/101802/](https://lad.sfcrom.cn/2024/04/101802/)

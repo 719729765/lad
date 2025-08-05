@@ -1,0 +1,13 @@
+---
+title: "1917 异形入侵 DX 1917 &#8211; The Alien Invasion DX PC英文版下载（B.1821897）"
+date: 2024-03-26
+tags: []
+categories: ["PC英文游戏"]
+excerpt: "　　1917 异形入侵 DX 1917 - The Alien Invasion DX PC英文版下载。这是一款记忆射手结合速度和疯狂动作的弹幕射击游戏。 　　你的角色是一名学识渊博的武器科学家，Brunhild Stahlm&uuml;ller博士，她升级了一架配备有高级外星技术的第一次世界大战时&hellip;"
+layout: post
+---
+
+ <p>　　1917 异形入侵 DX 1917 - The Alien Invasion DX PC英文版下载。这是一款记忆射手结合速度和疯狂动作的弹幕射击游戏。</p> <p><iframe align="middle" allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=41755776&amp;bvid=BV1Xt41147BV&amp;cid=73295894&amp;page=1" width="410"></iframe></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660319688f861.jpg" width="600" alt="1917 异形入侵 DX 1917 - The Alien Invasion DX PC英文版下载（B.1821897）" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/03/20240326_660319695b773.jpg" width="600" alt="1917 异形入侵 DX 1917 - The Alien Invasion DX PC英文版下载（B.1821897）" /></p> <p>　　你的角色是一名学识渊博的武器科学家，Brunhild Stahlm&uuml;ller博士，她升级了一架配备有高级外星技术的第一次世界大战时候的三翼机来攻击入侵者。你需要替人类复仇并将战争带到黑暗的空间，直到你到达一个远古的外星世界</p> <p>　　故事介绍</p> <p>　　这一年是1917年 - 战争吞噬中的地球。在前所未有的技术前，成千上万的人被冠以宗教迷信的罪名，并在遭到了屠杀，死在了前所未有的技术手上。然而，之前发生的一切暴行也只是个前奏，一个更大，不可预知的灾难即将发生。当4月15日这一天来临，一群外星人将从这饱受战争蹂躏的天空中降临，并肆意地向士兵开火，平民百姓也难逃厄运。这个世界的根基摇摇欲坠,人类将面临着最黑暗的时代。面对这样可怕，势不可挡的敌人，这个生存在地球上种族虽然已经混乱且疲惫不堪，但为了避免遭灭顶之灾或着更差的状况发生，除了抛开旧日恩怨协力抗战，他们别无选择。尽管如此，在一个技术先进得宇宙里畅通无阻地物种面前，勇气和团结是远远不够的。</p> <p>　　与此同时，学识渊博的武器科学家Brunhild Stahlm&uuml;ller博士与她的助手Harmuth Griesgram通过不懈的努力，终于研发出了一架实验飞机，代号&ldquo;赤魔号&rdquo;。这款战机不仅拥有现有的航空技术，也结合了外星航空技术，而这一技术是从最近战役中获取的外星飞机残骸中提取出来的。这项新研发能够延长飞机在大气飞行的时间并开展更深入的星际之旅。因为找不到一个完全自愿并无条件地去驾驶的飞行员，勇敢的博士戴上他的头盔，坐上&ldquo;赤魔号&rdquo;并开展了她的处女之航;飞向Verdun战场。她要征服的目标是个博弈高手，是一个把自己加冕为统治人类的新国王，也是个篡夺家和野心家。注入了燃料和仇恨后，她的这次女武神之旅要么在浴血奋战中取得胜利，要么光荣的牺牲。然而她并不知道自己只是别人玩弄的瓮中之鳖，她的一举一动都暴露在Brunhild那贪婪，鄙视的眼里。</p> <p>　　游戏特色</p> <p>　　战斗来之外星世界的中心Verdun!</p> <p>　　宏伟且奢侈的像素艺术，灵感来自黄金时代的拱形建筑物。</p> <p>　　容易接受的难度提升曲线。</p> <p>　　富有激情和精炼的游戏玩法</p> <p>　　8个阶段都会遭遇到巨型BOSS。</p> <p>　　杀戮和流血。</p> <p>　　迷幻的音乐。</p> <p>　　完全兼容Xbox手柄。</p> <p>　　数字艺术书(PDF)。</p> <p>　　最低配置:</p> <p>　　操作系统: WINDOWS XP / WINDOWS VISTA / WINDOWS 7 / WINDOWS 8 / WINDOWS 10</p> <p>　　处理器: Any x64 and x86 Processor</p> <p>　　内存: 1 GB RAM</p> <p>　　显卡: DirectX or OpenGL Compatible Video card</p> <p>　　存储空间: 需要 150 MB 可用空间</p> <p>　　安装信息</p> <p>　　1. 解压缩</p> <p>　　2. (如果有setup.exe文件的话)安装游戏</p> <p>　　3. (如果存在crack文件夹的话)复制crack文件夹下的未加密补丁到游戏目录覆盖</p> <p>　　4. 运行游戏</p> <p><h4>下载地址(由网友<font color="red">switchgamer</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/03/38923/](https://lad.sfcrom.cn/2024/03/38923/)

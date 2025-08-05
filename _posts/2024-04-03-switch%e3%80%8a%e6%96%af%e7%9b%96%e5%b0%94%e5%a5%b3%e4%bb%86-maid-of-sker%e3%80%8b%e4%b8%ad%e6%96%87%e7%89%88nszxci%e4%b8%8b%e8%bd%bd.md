@@ -1,0 +1,13 @@
+---
+title: "switch《斯盖尔女仆 Maid of Sker》中文版nsz+xci下载"
+date: 2024-04-03
+tags: []
+categories: ["nsz中文游戏"]
+excerpt: "switch《斯盖尔女仆 Maid of Sker》中文版nsz下载!Wales Interactive公布了恐怖游戏新作《斯盖尔女仆(Maid of Sker)》，探索名为Sker的庄园，不过这个庄园其实是真实存在的! 游戏介绍 《斯盖尔女仆(Maid of Sker)》是由Wales Inter&hellip;"
+layout: post
+---
+
+ <p>switch《斯盖尔女仆 Maid of Sker》中文版nsz下载!Wales Interactive公布了恐怖游戏新作《斯盖尔女仆(Maid of Sker)》，探索名为Sker的庄园，不过这个庄园其实是真实存在的!</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=969197770&amp;bvid=BV1gp4y1v7n7&amp;cid=223419810&amp;page=1" width="410"></iframe></p> <p>游戏介绍</p> <p>《斯盖尔女仆(Maid of Sker)》是由Wales Interactive独立制作并发行的一款第一人称视角恐怖冒险类游戏，场景设在一个偏僻的酒店，那里流传着令人毛骨悚然的英国民间传说。勇敢面对安静男人(Quiet Men)的噩梦。当他们到达时，不要惊慌 - 甚至不要呼吸。</p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6f1cc0634.webp" alt="switch《斯盖尔女仆 Maid of Sker》中文版nsz+xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6f1d2d013.webp" alt="switch《斯盖尔女仆 Maid of Sker》中文版nsz+xci下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240403_660d6f1d92fdc.webp" alt="switch《斯盖尔女仆 Maid of Sker》中文版nsz+xci下载" /></td> </tr> </tbody> </table> <p>展开</p> <p>游戏背景</p> <p>游戏取材于伊丽莎白ˑ威廉姆斯(Elizabeth Williams)货真价实的鬼故事，你扮演的托马斯ˑ埃文斯(Thomas Evans)是一位音乐家，为了拯救他心爱的女人投入了一场可怕的战斗。故事发生的背景是1898年的斯凯尔大宅(Sker House)之内及其周边，这座建筑至今仍然屹立不倒，据说是英国最闹鬼的地方之一。</p> <p>游戏构设</p> <p>游戏具有逼真的4k视觉效果，玩法专注于故事情节、探险和非武器即时谋略。可体验多条线索叙述，您的决定对解锁不同的故事发展和多样结局起到重要作用。基于3D音效的AI系统是核心生存游戏机制。隐藏、奔跑、爬行、陷阱和分散注意力是你需要掌握的一些技能，以便在具备超级听力的敌人中生存。随着你的进度，敌人会变得越来越难以避免，到时候，立住不动并屏住呼吸是唯一的选择!正确计时，您眼下还算安全。跑得喘不过气来，难受之极。</p> <p>游戏特色</p> <p>&middot;4K高清的视觉效果。</p> <p>&middot;根据真实故事传说改编。</p> <p>&middot;核心生存玩法游戏机制。</p> <p>&middot;3D音效环绕代入氛围。</p> <p>&middot;紧张、压抑的游戏环境。</p> <p>游戏测评</p> <p>Shhhh！Be Quit,You Might piss somebody up！</p> <p>这是一款画面感十分强烈的第一人称视角恐怖游戏，从画质方面来看，它与《孤岛危机5》有些相似之处，同样的高清画面和真实感将会给玩家一种沉入式的氛围，对于恐怖游戏玩家来说有着无与伦比的吸引力。</p> <p>由于作品本身和真实的传说有关，所以采用的素材都会无限接近于真实的生活，而又是因为此，该开发商还惹上了一场官司~&ldquo;这座房屋的管理者是在网上看到这款游戏的消息。制作组还发布了海报，海报中展示了以这座房屋照片为背景的宣传内容，此外《斯盖尔女仆》将这座房屋描述为&ldquo;鬼屋&rdquo;，引起了房屋管理者的不满，管理者甚至还要求提起法律诉讼。&rdquo;而这个封面图是根据真实的照片进行刻画出来的，足以见得其还原程度之高。</p> <p><h4>下载地址(由网友<font color="red">foodkey8</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/124805/](https://lad.sfcrom.cn/2024/04/124805/)

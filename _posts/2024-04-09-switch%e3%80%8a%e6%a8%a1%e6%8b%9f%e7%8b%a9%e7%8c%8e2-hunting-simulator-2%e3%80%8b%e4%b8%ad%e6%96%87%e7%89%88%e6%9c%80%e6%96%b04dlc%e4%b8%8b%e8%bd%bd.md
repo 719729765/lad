@@ -1,0 +1,13 @@
+---
+title: "switch《模拟狩猎2 Hunting Simulator 2》中文版最新4DLC下载"
+date: 2024-04-09
+tags: []
+categories: ["最新DLC"]
+excerpt: "　　switch《模拟狩猎2 Hunting Simulator 2》中文版下载。这是一款模拟狩猎游戏，开局只有一人一狗，猎物全靠打，带上你的爱犬，漫步在德克萨斯州的沙漠、科罗拉多及欧洲的森林之中，利用你手中的武器在几十余种猎物之中寻找你的目标。 　　带着你的猎狗在你身边，探索德克萨斯沙漠和科罗拉多&hellip;"
+layout: post
+---
+
+ <p>　　switch《模拟狩猎2 Hunting Simulator 2》中文版下载。这是一款模拟狩猎游戏，开局只有一人一狗，猎物全靠打，带上你的爱犬，漫步在德克萨斯州的沙漠、科罗拉多及欧洲的森林之中，利用你手中的武器在几十余种猎物之中寻找你的目标。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=968855754&amp;bvid=BV1Cp4y1S7yy&amp;cid=211052510&amp;page=1" width="410"></iframe></p> <table align="center" border="0" cellpadding="3" cellspacing="1" width="100%"> <tbody> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-16/16a2e2865e3230bc5eee8059ea5786d2.jpg" alt="switch《模拟狩猎2 Hunting Simulator 2》中文版最新4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-16/9ab02ef39c2ff725ee3677a51e5af3d4.jpg" alt="switch《模拟狩猎2 Hunting Simulator 2》中文版最新4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-16/f0db9d7ba44cf81c654bc3a6e897e0c7.jpg" alt="switch《模拟狩猎2 Hunting Simulator 2》中文版最新4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-16/b4c44023745b9efcd69e54398d8981d6.jpg" alt="switch《模拟狩猎2 Hunting Simulator 2》中文版最新4DLC下载" /></td> </tr> <tr> <td align="center"><img border="0" src="https://www.2023game.com/d/file/p/2020/10-16/b9d6e9f3a78e22941f743844f53ec55e.jpg" alt="switch《模拟狩猎2 Hunting Simulator 2》中文版最新4DLC下载" /></td> </tr> </tbody> </table> <p>　　带着你的猎狗在你身边，探索德克萨斯沙漠和科罗拉多和欧洲的森林，你追踪33种动物。从160多件官方武器、配件和服装中选择装备(包括布朗宁、温彻斯特和布什内尔)。</p> <p>　　现在是开放季节!在令人惊叹的自然环境中，从最好的官方武器和配件中选择你的装备，并与你的狗出发，在这个狩猎模拟中寻找各种动物物种。</p> <p>　　游戏特色</p> <p>　　&bull;在广阔的开放世界中探索科罗拉多平原、德克萨斯沙漠和欧洲森林。</p> <p>　　&bull;使用最佳狩猎技术，在自然环境中追踪33种动物。</p> <p>　　&bull;猎杀具有真实行为和先进人工智能的动物。</p> <p>　　&bull;用你的猎狗追踪猎物。拉布拉多猎犬，德国短毛猎犬和比格犬，每只狗都有其特定的狩猎属性。</p> <p>　　&bull;为自己配备超过160件武器、配件和来自最好品牌的服装，包括布朗宁、温彻斯特、布什内尔、氪星和弗尼&middot;卡伦。</p> <p><h4>下载地址(由网友<font color="red">1270577890</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/142389/](https://lad.sfcrom.cn/2024/04/142389/)

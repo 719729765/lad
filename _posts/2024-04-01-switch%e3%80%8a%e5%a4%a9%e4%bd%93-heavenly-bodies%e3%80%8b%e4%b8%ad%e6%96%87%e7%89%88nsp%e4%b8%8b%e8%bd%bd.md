@@ -1,0 +1,13 @@
+---
+title: "switch《天体 Heavenly Bodies》中文版nsp下载"
+date: 2024-04-01
+tags: []
+categories: ["nsp中文游戏"]
+excerpt: "switch《天体 Heavenly Bodies》中文版nsp下载用二十世纪七十年代宇航员的双手和手臂进行推动、拉动和扭转，穿越一系列越来越危险的物理模拟星空场景 &ndash; 不过在失重状态下，一切都不是静止、固定的，任何事都不简单。 　　《Heavenly Bodies》是一款有关宇航员、身&hellip;"
+layout: post
+---
+
+ <p>switch《天体 Heavenly Bodies》中文版nsp下载用二十世纪七十年代宇航员的双手和手臂进行推动、拉动和扭转，穿越一系列越来越危险的物理模拟星空场景 &ndash; 不过在失重状态下，一切都不是静止、固定的，任何事都不简单。</p> <p style="text-align: center;"><iframe allowfullscreen="true" border="0" frameborder="0" framespacing="0" height="400" scrolling="no" src="//player.bilibili.com/player.html?aid=676752973&amp;bvid=BV1XU4y1M7yb&amp;cid=444880514&amp;page=1" width="410"></iframe></p> <p>　　《Heavenly Bodies》是一款有关宇航员、身体和失重状态的游戏。</p> <p>　　在这款具有挑战性的物理游戏中，探索失重运动不断变化的精妙之处。在一个科研太空站上，用左右摇杆来控制宇航员的手臂，推拉攀爬，探索全实体模拟的场景。</p> <div> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609efecebd31.webp" width="700" alt="switch《天体 Heavenly Bodies》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609efed47e46.webp" width="700" alt="switch《天体 Heavenly Bodies》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609efed9c94a.webp" width="700" alt="switch《天体 Heavenly Bodies》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609efee16972.webp" width="700" alt="switch《天体 Heavenly Bodies》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609efee8075a.webp" width="700" alt="switch《天体 Heavenly Bodies》中文版nsp下载" /></p> <p align="center"><img align="" border="0" src="https://lad.sfcrom.cn/wp-content/uploads/2024/04/20240331_6609efeedcf85.webp" width="700" alt="switch《天体 Heavenly Bodies》中文版nsp下载" /></p></div> <p>　　星空中的职责等待你去完成</p> <p>　　你身负重任，必须让地球上最尖端的工程系统投入运作。能帮你的只有任务指挥部的无线电通讯，而你必须运用敏锐的头脑和灵活的四肢来组装太空望远镜，维护精巧的太阳能电池板，并研究宇宙植物学。不过在失重状态下，一切都不是静止、固定的，任何事都不简单。</p> <p>　　强烈推荐使用控制器</p> <p>　　《Heavenly Bodies》拥有一套极为独特的移动系统，专门为使用双摇杆控制器而设计。虽然技术上支持可重新绑定的键盘和鼠标控制，但此二者并不能提供所期望的体验。</p> <p>　　特色：</p> <p>　　众多恒星场景，灵感源于历史上太空探索者和研究人员的壮举。</p> <p>　　可单人游玩，或通过本地合作与好友一起玩。你可以单独执行任务，也可搭档太空好友一同探索。</p> <p>　　使用 Steam 的 Remote Play Together 在线游玩。</p> <p>　　在失重状态下，直观地控制宇航员的四肢，以执行具有挑战性的精细操作。</p> <p>　　操纵极其昂贵的太空载具和精密机械。</p> <p>　　70 年代风格的视觉美学，灵感源于太空摄影档案和技术插图。</p> <p>　　可自定义的控制模式难度和可重新绑定的控制按键。</p> <p>　　可重新绑定的控制按键</p> <p><h4>下载地址(由网友<font color="red">shojofish</font>发布)：</h4></p> 
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://lad.sfcrom.cn/2024/04/100907/](https://lad.sfcrom.cn/2024/04/100907/)
